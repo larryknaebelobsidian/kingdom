@@ -1,0 +1,81 @@
+#toc
+
+### Obs. 1 
+> Resurrection of the saints will be private as Christ's resurrection was (only to believers) in order that the preparatory events for th ecoming judgment of the world may be introduced in such a manner (privately) as to establish "the snare" and "the net" intended for the unbelieving and wicked (p. 315 Vol 2)
+
+> "Saints in Rev. 20:4-6 was specifically that of those who passed through the great tribulation under the culminated Antichrist, and was preceded by that of others, as implied in Rev. 14:1-4, etc" (p. 315 Vol 2)
+
+> " The word "first" applied to the resurrection has reference not to its being first in time (which would be incorrect, seeing that Christ's res. and that of saints, Matt. 27:52,53, preceded), but of its being a resurrection whish also brings those who participated in it within the privileges of "the first-born", viz., a double portion, Deut. 21:17;  priesthood, Num. 3:13; and government or dominion, Gen. 27:29. The subject of the resurrection, for a long time, was not clear to the writer until he observed the real scriptural application of the word "first, " as just given." (p. 315 Vol 2)
+
+> "prophetical writers are also agreed that what is called the Sec. Advent (the Advent itself as distinguished from the reign and Kingdom that follows) is not to be regarded as simple one act, but embracing a series of acts connected with the one Coming (for when Jesus comes again He remains upon earth).  That is, the Sec. Advent is to be considered more in the light of the First Advent (which latter embraced not less than thirty-three years, and numerous acts predicted as related to His coming), as something which, owing to a variety of things prophesied concerning it, cannot possibly be limited to a few years." (p. 315 Vol 2)
+
+> "Comparing all the events that are included in the Sec. Advent, it is simply impossible, without great violation of order, etc., to crowd them all together as the instantaneous resultants of such a Coming." (p. 315 Vol 2)
+
+> "This, then, impresses caution in not compressing what is intimated concerning the translation or removal of saints necessarily to one transaction or day" (p. 315 Vol 2)
+
+> "writers now generally attribute to this introductory manifestation a period of seven years, or forty years, and of (thirty and forty conjoined) seventy years. (Considering the events to follow the Advent before the overthrow of Antichrist, such as the development of the confederation, the return of a portion of the Jews to Palestine, the doom of the harlot, etc., the longer periods are preferable)" (p. 315 Vol 2)
+
+> "It is universally admitted by Millenarians that "the day of the Lord Jesus" is preceded not only by "a morning", but that it virtually begins in "the night"; Christ representing His Coming to be when it is yet "night", He being "the morning star", which ushers in "the morning" of the glorious day." (p. 316 Vol 2)
+
+> "This refers the resurrection and translation of a chosen body to "the night", i.e. to the close of this dispensation, as preparatory to the introduction of an incoming one." (p. 316 Vol 2)
+
+
+
+### Obs. 2
+Jesus coming "for of in behalf" of His saints (1 Thess. 3:14-17; 1 Cor. 15:51,52) and Jesus coming "with all" His saints (Zech. 14:5; Rev. 19:14; 1 Thess. 3:13; Jude 14,15)
+
+
+FOR His saints 1 Th. 3:14-17; 1 Cor. 15:51-52||WITH His saints Zech. 14:5; Rev. 19:14; 1 Th. 3:13; Jude 14,15
+----|--------|---
+secret, concealed, thief-like 1 Th. 5:2; Mt. 24:43,44; Lk. 12:37-40; Rev. 3:3||visible, conspicuous
+peaceful Lk. 17:26-30; Mt. 24:36-39; 1 Th. 5:3||war,distress Zech. 14; Rev. 19, Joel 3; Lk. 21:27
+first-fruits||general harvest
+
+
+### Obs. 3
+Luke 17:34-37 - Translation
+
+eagles/vultures - saints
+body - followers of the antichrist
+
+### Obs. 4
+***Once class of believers kept from the great tribulation and another class goes into it.***
+
+Rev 7 - 144,000 - note: Peters says this 144,000 is a different group than the 144,000 of chapter 14
+
+Rev 7 - great multitude from every nation
+
+### Obs. 5
+> "hiding of the saints when this time of trouble, this storm of persecution and fury bursts upon the Church and world" (p. 325 Vol 2)
+
+### Obs. 6
+Translation will be unwitnessed but known to the nations.
+
+> "It is likely, however, from the consultation of the wicked against them, that while the removal is allowed it will be attributed to natural causes, or to a concerted movement, and that all reference to its supernatural occurrence will be stoutly denied" (p. 327 Vol 2)
+
+> "In all probability, "the sign of the Son of Man" (Matt. 24:30) will be something connected with this translation" (p. 327 Vol 2)
+
+
+
+### Obs. 7
+> "the astonishing [[removal of certain chosen ones]], accounted worthy, owing to their distinctive faith in God's promises, to escape" (p. 327 Vol 2)
+
+> "surely those who believe in God's Word and are [[left behind]] will be most wonderfully affected by the event." (p. 327 Vol 2)
+
+> "(The writer has often, often felt that it is specially for this period that he is laboring, when his work will be appreciated, etc )" (p. 327 Vol 2)
+
+> "The Church, then starting up with Abrahamic faith will recognize its chronological position, will see what is before it, and, energetically infused by fear and hope, prepare itself for the fearful ordeal through which it must pass. And we are assured that the Church in this contest, overpowered as shw will be, will sustain the persecution with triumphant faith, feeling convinced from the events occuring and the time elapsed, that the Son of Man is even already present, waiting for the moment of direct interference." (p. 327-328 Vol 2)
+
+***Peters believes that the majority of christians (but not all) will be [[left behind]] to experience the tribulation***
+
+
+### Obs. 8
+The Restrainer 2 Thess 2:6,7
+
+Peters suggests Theodoret's opinion is perhaps correct: "the decree of God's Providence"
+
+### Obs. 9
+Peters believes there will be 2 translations: before ("[[the first-fruits]]") and after ("[[the harvest]]") the great tribulation (p. 329 Vol 2 )
+
+
+
