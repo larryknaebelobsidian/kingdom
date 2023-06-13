@@ -32,3 +32,9 @@
 
 > Let the reader consider that the grammatical interpretation was for ages *the only one* used; and can a reason be given why it should suddenly be abandoned for another?
 > p.  49 Vol. 1 Prop. 4 Obs. 2
+
+> God appeals to the literalness of His Word, as affording proof that each part shall find in due time its mate.  His veracity and power are staked on a literal fulfilment.
+> p.  50 Vol. 1 Prop. 4 Obs. 2
+
+> It is the most reasonable to anticipate, that a principle of interpretation once universally held and for ages applied, would not undergo a reversal without a plain direction from God authorizing it to be made.
+> p.  50 Vol. 1 Prop. 4 Obs. 2
