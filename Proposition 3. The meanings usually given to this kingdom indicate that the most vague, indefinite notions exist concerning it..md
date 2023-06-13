@@ -8,11 +8,10 @@
 
 
 > They are as little agreed concerning its beginning as in its meaning.
-> 
+> . . .
 >is it not remarkable that a kingdom of God, so distinctively covenanted and predicted, should be so indefinite in its commencement that eminent and pious men are unable to point out its beginning with any degree of absolute certainty?
->
+>. . .
 >unknown to Scripture, and based solely on assertion
->
 > p. 44 Vol 1 Prop. 3 Obs. 8
 
 > In the following pages, it will be shown, step by step, that the kingdom of God did previously exist on earth, that it does not apply to the existing Church, and that the kingdom of Jesus Christ, when established, is **not new** but **a renewal** with precious, astounding additions.
