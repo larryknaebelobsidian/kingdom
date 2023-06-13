@@ -7,6 +7,7 @@ Using Obsidian Git plugin for auto backups and commits to github.
 Modified ***.git/config*** with 2 lines noted below:
 This allowed for long file names and to leave the crlf warnings alone so commits would work.
 
+```
 [core]
 	repositoryformatversion = 0
 	filemode = false
@@ -22,3 +23,4 @@ This allowed for long file names and to leave the crlf warnings alone so commits
 [branch "main"]
 	remote = origin
 	merge = refs/heads/main
+```
