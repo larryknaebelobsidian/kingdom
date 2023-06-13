@@ -20,7 +20,7 @@ Abraham was 99, Ishmael was 13
 	- for God's confirmation of His covenant
 	- for God's exceeding multiplication
 - You will be a father of a multitude of nations
-	- name changed to abraham
+	- name changed to Abraham
 - God will make Abraham
 	- exceedingly fruitful
 	- nations of him

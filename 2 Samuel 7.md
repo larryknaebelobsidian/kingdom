@@ -6,7 +6,7 @@
 - I will appoint a [[place]] (for My people Israel)
 	- I will plant them (Israel)
 		- that they may dwell
-			- in thier own place
+			- in their own place
 			- not be disturbed again
 			- unrighteous will not afflict them any more as formerly
 - I will give you [[rest ]]from all your enemies
