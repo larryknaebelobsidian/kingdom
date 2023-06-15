@@ -92,14 +92,24 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > Luther, on John 14:25-28, gives an infallible rule for trying the professed (by men) utterances of the Holy Spirit, thus: "If one come, therefore, and present anything to me as taught or revealed by the Holy Spirit, I keep to the Word and hold this doctrine up to it, as to the true touchstone.  If now I see that it agrees with that which Christ says, I receive it as right and good.  But if it be a departure from it, or would produce something different from it, then I say, Thou art not the Holy Ghost, but the detestable devil.  For the true Spirit comes in no other name than in the name of Christ, and teaches nothing other than what the Lord Christ has said."
 > p.  55 Vol. 1 Prop. 4 Obs. 3 note 3
 
-> The fact is that, to induce the highest certitude, we must receive the authoritative letter as containing the truth, give it its logical force (through reason), and allow its intuitive influence (through a responding moral nature), dependant upon the Spirit that gave the truth, and upon our adaptability for its reception.  God's Word is true, whether men receive or reject it.
+> The fact is that, to induce the highest certitude, we must receive the authoritative letter as containing the truth, give it its logical force (through reason), and allow its intuitive influence (through a responding moral nature), dependent upon the Spirit that gave the truth, and upon our adaptability for its reception.  God's Word is true, whether men receive or reject it.
 > p.  55 Vol. 1 Prop. 4 Obs. 3 note 3
 
 > a revelation unintelligible is no revelation at all 
 > - Dr. Sprecher, *Groundwork of Theol.*, p. 1, ch. 5
-> p.  55 Vol. 1 Prop. 4 Obs. 4 note 
+> p.  56 Vol. 1 Prop. 4 Obs. 4 note 
 
 > God designed His Word not simply "for the learned, but for all men," which design is only met by the grammatical sense.
 > - Chillingworth (*Works*, vol. 1, p.231)
-> p.  55 Vol. 1 Prop. 4 Obs. 4 note
+> p.  56 Vol. 1 Prop. 4 Obs. 4 note
 
+> The interpretation of Scripture is to be conducted by the same rules applicable to the interpretation of a classical or profane author.
+> - Ernesti (*Inst. Interp. of the New Testament*)
+> p.  57 Vol. 1 Prop. 4 Obs. 5 note
+
+> no exegesis is to be considered isolated from other Scripture, but must be regarded in its connection with general analogy, spirit, or design of the writers.
+> p.  57 Vol. 1 Prop. 4 Obs. 5 note
+
+> it appears to me to be this, that we take the words of Scripture as we find them; that we endeavor to ascertain their true, grammatical sense, whether in the Old or the New Testament, in the first instance, and then receive the truths whish are thereby conveyed, whether articles of faith or rules of practice, according to the plain and simple and obvious meaning of the language itself.
+> - Greswel (*Parables*, vol. 3, p. 173)
+>p.  57 Vol. 1 Prop. 4 Obs. 5 note 
