@@ -66,4 +66,5 @@
 > Three distinctive types of interpretation: the grammatical, the ideal, and these two, more or less, combined
 > p.  50 Vol. 1 Prop. 4 Obs. 2 note 1
 
-> 
+> The student will not fail to observe that Protestant Confessions of Faith insist upon this grammatical sense . . .
+> p.  52 Vol. 1 Prop. 4 Obs. 2 note 2
