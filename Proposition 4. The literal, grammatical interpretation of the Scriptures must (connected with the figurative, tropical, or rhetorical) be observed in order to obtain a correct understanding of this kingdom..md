@@ -58,13 +58,13 @@
 >  p.  51 Vol. 1 Prop. 4 Obs. 2 note 1
 
 > While an ingenious and learned school formed at Alexandria had contrived by a system of allegorical interpretation to infuse Platonism into the Old Testament, the school at Jerusalem had been growing increasingly rigid, and interdicted any such daring exegesis.  It clung with fanatic attachment to the letter of the Scriptures, but failing to comprehend the spirit, it sunk into all the puerilities of a narrow literalism.
-> p.  50 Vol. 1 Prop. 4 Obs. 2 note 1
+> p.  51 Vol. 1 Prop. 4 Obs. 2 note 1
 
 > The history of interpretation is briefly told. ...
-> p.  50 Vol. 1 Prop. 4 Obs. 2 note 1
+> p.  51 Vol. 1 Prop. 4 Obs. 2 note 1
 
 > Three distinctive types of interpretation: the grammatical, the ideal, and these two, more or less, combined
-> p.  50 Vol. 1 Prop. 4 Obs. 2 note 1
+> p.  51 Vol. 1 Prop. 4 Obs. 2 note 1
 
 > The student will not fail to observe that Protestant Confessions of Faith insist upon this grammatical sense . . .
 > p.  52 Vol. 1 Prop. 4 Obs. 2 note 2
