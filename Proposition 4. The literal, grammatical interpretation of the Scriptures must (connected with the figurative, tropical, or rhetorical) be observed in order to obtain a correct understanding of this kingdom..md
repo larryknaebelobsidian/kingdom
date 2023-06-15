@@ -82,3 +82,9 @@ But a natural man does not accept the _depths_ of the Spirit of God, for they ar
 2 Cor. 3:6
 who also made us sufficient _as_ ministers of a new covenant, not of the letter but of the Spirit; for the letter kills, but the Spirit gives life.
 
+> You make your Scriptures a nose of wax, and play with it, is if it were a ball
+> - Calvin
+> p.  54 Vol. 1 Prop. 4 Obs. 3 note 1
+
+> Mysticism, more or less developed, is found in many authors of the present day, although they refuse the extreme of the "Abecedarians," who (Appleton's *Cyclop.*) "held that without the aid of study the Holy Spirit would convey directly to the understanding a knowledge of the Scriptures, and that, therefore, it was better not to know how to read."
+>  p.  55 Vol. 1 Prop. 4 Obs. 3 note 3
