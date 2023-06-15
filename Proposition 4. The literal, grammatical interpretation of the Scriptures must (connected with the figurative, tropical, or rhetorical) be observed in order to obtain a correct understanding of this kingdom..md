@@ -113,3 +113,6 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > it appears to me to be this, that we take the words of Scripture as we find them; that we endeavor to ascertain their true, grammatical sense, whether in the Old or the New Testament, in the first instance, and then receive the truths whish are thereby conveyed, whether articles of faith or rules of practice, according to the plain and simple and obvious meaning of the language itself.
 > - Greswel (*Parables*, vol. 3, p. 173)
 >p.  57 Vol. 1 Prop. 4 Obs. 5 note 
+
+> As in the perusal of other books, so in reading the Bible, there is no better general rule than that *the obvious meaning* is the true.
+> p.  57 Vol. 1 Prop. 4 Obs. 5 note 
