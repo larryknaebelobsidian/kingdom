@@ -94,3 +94,12 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 
 > The fact is that, to induce the highest certitude, we must receive the authoritative letter as containing the truth, give it its logical force (through reason), and allow its intuitive influence (through a responding moral nature), dependant upon the Spirit that gave the truth, and upon our adaptability for its reception.  God's Word is true, whether men receive or reject it.
 > p.  55 Vol. 1 Prop. 4 Obs. 3 note 3
+
+> a revelation unintelligible is no revelation at all 
+> - Dr. Sprecher, *Groundwork of Theol.*, p. 1, ch. 5
+> p.  55 Vol. 1 Prop. 4 Obs. 4 note 
+
+> God designed His Word not simply "for the learned, but for all men," which design is only met by the grammatical sense.
+> - Chillingworth (*Works*, vol. 1, p.231)
+> p.  55 Vol. 1 Prop. 4 Obs. 4 note
+
