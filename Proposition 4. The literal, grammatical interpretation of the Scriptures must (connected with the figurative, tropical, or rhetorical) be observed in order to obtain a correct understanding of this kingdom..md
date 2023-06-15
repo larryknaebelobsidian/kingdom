@@ -38,3 +38,32 @@
 
 > It is the most reasonable to anticipate, that a principle of interpretation once universally held and for ages applied, would not undergo a reversal without a plain direction from God authorizing it to be made.
 > p.  50 Vol. 1 Prop. 4 Obs. 2
+
+> We do not overlook (Obs. 1, note 1) that before the Advent of Jesus the Jews had already, to some extent, departed from this literal interpretation, having adopted an allegorical, mystical system, which was in favor with the Rabbinical portion.  This, however, does not vitiate our argument, which urges the period preceding this introduction, and accepts of the fact that, e.g., in reference to the doctrine of the kingdom, there was no departure from the literal interpretation even among the Rabbinical party.
+>  p.  50 Vol. 1 Prop. 4 Obs. 2 note 1
+
+>  The allegorical interpretation of the Sacred Scriptures cannot be historical proved to have prevailed among the Jews from the time of the exile, or to have been common with the Jews of Palestine at the time of Christ and His apostles.  Although the Sanhedrim and the hearers of Jesus often appealed to the Old Testament, according to the testimony of the New Testament writers, they give no indication of the allegorical interpretation.  
+>  - Dr. Knapp (Ch. Theol., p. 326)
+>  p.  50 Vol. 1 Prop. 4 Obs. 2 note 1
+
+> Philo was distinguished among those in that place who practised this method and he defends it as something new and before unheard of, and for that reason by the other Jews
+> - De Confus, Lingu. page 347
+> p.  50 Vol. 1 Prop. 4 Obs. 2 note 1 
+
+> Jesus was not, therefore, in a situation where he was compelled to comply with *a prevailing custom* of allegorical interpretation; for this method did not prevail at that time among the Jews, certainly not in Palestine, where Jesus taught.
+> - De Confus, Lingu. page 347
+> p.  50 Vol. 1 Prop. 4 Obs. 2 note 1
+
+> . . . we must receive literal predictions, promises, etc., unless otherwise indicated ...
+>  p.  51 Vol. 1 Prop. 4 Obs. 2 note 1
+
+> While an ingenious and learned school formed at Alexandria had contrived by a system of allegorical interpretation to infuse Platonism into the Old Testament, the school at Jerusalem had been growing increasingly rigid, and interdicted any such daring exegesis.  It clung with fanatic attachment to the letter of the Scriptures, but failing to comprehend the spirit, it sunk into all the puerilities of a narrow literalism.
+> p.  50 Vol. 1 Prop. 4 Obs. 2 note 1
+
+> The history of interpretation is briefly told. ...
+> p.  50 Vol. 1 Prop. 4 Obs. 2 note 1
+
+> Three distinctive types of interpretation: the grammatical, the ideal, and these two, more or less, combined
+> p.  50 Vol. 1 Prop. 4 Obs. 2 note 1
+
+> 
