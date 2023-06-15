@@ -88,3 +88,9 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 
 > Mysticism, more or less developed, is found in many authors of the present day, although they refuse the extreme of the "Abecedarians," who (Appleton's *Cyclop.*) "held that without the aid of study the Holy Spirit would convey directly to the understanding a knowledge of the Scriptures, and that, therefore, it was better not to know how to read."
 >  p.  55 Vol. 1 Prop. 4 Obs. 3 note 3
+
+> Luther, on John 14:25-28, gives an infallible rule for trying the professed (by men) utterances of the Holy Spirit, thus: "If one come, therefore, and present anything to me as taught or revealed by the Holy Spirit, I keep to the Word and hold this doctrine up to it, as to the true touchstone.  If now I see that it agrees with that which Christ says, I receive it as right and good.  But if it be a departure from it, or would produce something different from it, then I say, Thou art not the Holy Ghost, but the detestable devil.  For the true Spirit comes in no other name than in the name of Christ, and teaches nothing other than what the Lord Christ has said."
+> p.  55 Vol. 1 Prop. 4 Obs. 3 note 3
+
+> The fact is that, to induce the highest certitude, we must receive the authoritative letter as containing the truth, give it its logical force (through reason), and allow its intuitive influence (through a responding moral nature), dependant upon the Spirit that gave the truth, and upon our adaptability for its reception.  God's Word is true, whether men receive or reject it.
+> p.  55 Vol. 1 Prop. 4 Obs. 3 note 3
