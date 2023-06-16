@@ -160,3 +160,13 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > In our Introductions to the Bible it is a generally admitted principle that no important doctrine should be solely based on figurative language ; that to give it certainty it ought to be founded on the literal meaning of the words.  This is a necessity, notwithstanding the theorizing, so much impressed, that in every promulgation of doctrine, men will instinctively feel that if they can secure the literal sense in their favor, *the strongest possible proof* is thus obtained. Why reject this when we come to the doctrine of the kingdom?  Surely, if there is a doctrine in the Bible that ought to be sustained by *the clearest evidence*, it is the leading one of the kingdom.  This is abundantly provided, if we will only consider and receive it.  Its simplicity should not deter us; this feature ought rather to recommend it to our special notice.  More than this : if we reject it we will be held responsible for the same, just as Jesus held the Jews accountable for the literal understanding of the Scriptures. 
 > p.  65 Vol. 1 Prop. 4 Obs. 10
 
+> No! we are only answerable to God's demand, how we have treated *the very letter* committed to our trust, and this obligation presses alike upon the learned and unlearned.
+> p.  66 Vol. 1 Prop. 4 Obs. 10
+
+> Ellicott (*Aids to Faith*, Essay 9) well says: "The true and honest method of interpreting the Word of God -- *the literal, historical, and grammatical* -- has been recognized in every age, and the results are seen in the agreement of numberless passages of importance that may be found in expositors of all periods,"
+> p.  66 Vol. 1 Prop. 4 Obs. 10 note
+
+### Obs. 11
+
+> An observance of the rules common to language, practical sense, a due regard to the analogy of Scripture and Faith, an observance of the historical application in reference to opinions and views held, an unprejudiced mind and a heart willing, irrespective of pre-conceived ideas, to bring forth the real meaning and intent of the writer -- these, in connection with a personal experience of the truth, are requisites to constitute a good interpreter.
+> p.  67 Vol. 1 Prop. 4 Obs. 11 note
