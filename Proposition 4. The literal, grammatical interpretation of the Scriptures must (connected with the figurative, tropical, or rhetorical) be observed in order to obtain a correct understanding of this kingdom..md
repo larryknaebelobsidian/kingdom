@@ -1,5 +1,7 @@
 #toc
 
+### Obs. 1
+
 > I hold for a most infallible rule in expositions of the Sacred Scriptures, that where a literal construction will stand, the furthest from the letter is commonly the worst. There is nothing more dangerous than this licentious and deluding art, which changes the meaning of words, as alchymy doth, or would do, the substance of metals, making of anything what it pleases, and bringing in the end all truth to nothing.
 > -Hooker
 > p. 47 Vol. 1 Prop. 4 Obs. 1
@@ -29,6 +31,8 @@
 
 > Unbelievers and semi-believers generally advocate that the construction of the Bible is like that of other books, but refuse (Bauer, etc.) to credit the fact that it is diverse from all other books in the authority and truths that it contains.  Our entire argument following shows that we hold it to be above and beyond all other books in the unity of supernatural and Divine things embraced. 
 > p.  49 Vol. 1 Prop. 4 Obs. 1 note 3
+
+### Obs. 2
 
 > Let the reader consider that the grammatical interpretation was for ages *the only one* used; and can a reason be given why it should suddenly be abandoned for another?
 > p.  49 Vol. 1 Prop. 4 Obs. 2
@@ -95,6 +99,8 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > The fact is that, to induce the highest certitude, we must receive the authoritative letter as containing the truth, give it its logical force (through reason), and allow its intuitive influence (through a responding moral nature), dependent upon the Spirit that gave the truth, and upon our adaptability for its reception.  God's Word is true, whether men receive or reject it.
 > p.  55 Vol. 1 Prop. 4 Obs. 3 note 3
 
+### Obs. 4
+
 > a revelation unintelligible is no revelation at all 
 > - Dr. Sprecher, *Groundwork of Theol.*, p. 1, ch. 5
 > p.  56 Vol. 1 Prop. 4 Obs. 4 note 
@@ -102,6 +108,8 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > God designed His Word not simply "for the learned, but for all men," which design is only met by the grammatical sense.
 > - Chillingworth (*Works*, vol. 1, p.231)
 > p.  56 Vol. 1 Prop. 4 Obs. 4 note
+
+### Obs. 5
 
 > The interpretation of Scripture is to be conducted by the same rules applicable to the interpretation of a classical or profane author.
 > - Ernesti (*Inst. Interp. of the New Testament*)
@@ -125,3 +133,30 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 
 > In addition: the extravagant claims of Swedenborg that he was set up as the true interpreter of the Word, is exclusively based on the notion that to him was, for the first time, given the secret key by the Creator himself, to unlock the Bible and portray its meaning; and this key, on examination, turns, only in a more scientific way, the old bolts in Origen's lock, now enlarged and reburnished.
 > p.  58 Vol. 1 Prop. 4 Obs. 6 
+
+### Obs. 7
+
+> A departure from the literal sense has not only caused those immensely varied and antagonistic interpretations of the kingdom, but it has, in self-defence, forced able and pious man to a confession which ***undermines and destroys the authority of the Bible.***
+> p.  60 Vol. 1 Prop. 4 Obs. 7 
+
+> Grammar, rhetoric, and history are violated for the sake of an idea, an "inner germ," and the most scholarly, learned men are pushing on, exultantly, the work.
+>  p.  62 Vol. 1 Prop. 4 Obs. 7 
+
+### Obs. 8
+
+> While urging a literal interpretation, we are, as already intimated, equally ***opposed to that ultra-literalism which makes no allowance for the figures of speech incident to all language.***
+> p.  63 Vol. 1 Prop. 4 Obs. 8 
+
+> The simple truth is, that not a single Millenarian author, from the days of the apostles down, holds to such an opinion ; all of them, without exception, fully recognize symbols, types, and figures of speech, notice their peculiarities, and discriminate them from the strictly literal. It is *their plain, unanimous* statement that language must be interpreted by the laws which produce and regulate it: if symbolic, it is to be interpreted by the laws governing symbols; if typical, then by the laws underlying types; if figurative, then by the rules controlling figures; and if rigidly literal, then by the laws of unfigurative speech. 
+> p.  63 Vol. 1 Prop. 4 Obs. 8
+
+### Obs. 9
+
+> It has become quite fashionable with recent writers, in their efforts to find arguments against us, to practically lower the prophetical portion of the Word by placing the non-prophetical of the New Testament in the scale as far superior to the former, etc. (so e.g. Waldegrave, comp. Lord's *Journal*, Ap. 1857)
+> p.  64 Vol. 1 Prop. 4 Obs. 9
+
+### Obs. 10
+
+> In our Introductions to the Bible it is a generally admitted principle that no important doctrine should be solely based on figurative language ; that to give it certainty it ought to be founded on the literal meaning of the words.  This is a necessity, notwithstanding the theorizing, so much impressed, that in every promulgation of doctrine, men will instinctively feel that if they can secure the literal sense in their favor, *the strongest possible proof* is thus obtained. Why reject this when we come to the doctrine of the kingdom?  Surely, if there is a doctrine in the Bible that ought to be sustained by *the clearest evidence*, it is the leading one of the kingdom.  This is abundantly provided, if we will only consider and receive it.  Its simplicity should not deter us; this feature ought rather to recommend it to our special notice.  More than this : if we reject it we will be held responsible for the same, just as Jesus held the Jews accountable for the literal understanding of the Scriptures. 
+> p.  65 Vol. 1 Prop. 4 Obs. 10
+
