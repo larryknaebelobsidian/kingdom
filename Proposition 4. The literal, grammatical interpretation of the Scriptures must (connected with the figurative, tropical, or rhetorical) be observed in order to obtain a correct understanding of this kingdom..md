@@ -116,3 +116,12 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 
 > As in the perusal of other books, so in reading the Bible, there is no better general rule than that *the obvious meaning* is the true.
 > p.  57 Vol. 1 Prop. 4 Obs. 5 note 
+
+### Obs. 6
+
+> the Scriptures are of little use to those who understand them as they are written
+> - Origen (Porter's *Lec. Hom.*, p. 51)
+> p.  58 Vol. 1 Prop. 4 Obs. 6 
+
+> In addition: the extravagant claims of Swedenborg that he was set up as the true interpreter of the Word, is exclusively based on the notion that to him was, for the first time, given the secret key by the Creator himself, to unlock the Bible and portray its meaning; and this key, on examination, turns, only in a more scientific way, the old bolts in Origen's lock, now enlarged and reburnished.
+> p.  58 Vol. 1 Prop. 4 Obs. 6 
