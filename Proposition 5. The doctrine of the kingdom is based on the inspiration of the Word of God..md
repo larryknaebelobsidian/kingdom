@@ -5,6 +5,7 @@
 > The things pertaining to the kingdom contain facts, preparatory stages, historical connections, relations to the future, ideas above human capacity, that could not possibly have been known if God had not revealed them.  The kingdom is simple that which the Almighty designs to have accomplished as *the grand result* of the Divine economy.
 > p. 70 Vol. 1 Prop. 5 Obs. 2
 
+### Obs. 3
 Some of the statements Peters makes in Observation 3 regarding inspiration surprised me and and brushed contrary to my understanding of inspiration.
 
 > the extreme so strenuously contended for by some, that ***even the words themselves were inspired, is evidently burdening inspiration with a load that is unnecessary.***
