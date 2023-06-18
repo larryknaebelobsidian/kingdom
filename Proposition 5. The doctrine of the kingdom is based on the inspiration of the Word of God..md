@@ -1,5 +1,16 @@
 #toc
 
+***NOTE: Verses from LSB***
+
+2 Timothy 3:16, 17
+All Scripture is God-breathed and profitable for teaching, for reproof, for correction, for training in righteousness, 17 so that the man of God may be equipped, having been thoroughly equipped for every good work.
+
+2 Peter 1:20, 21
+Know this first of all, that no prophecy of Scripture comes by one’s own interpretation. 21 For no prophecy was ever made by the will of man, but men being moved by the Holy Spirit spoke from God.
+
+>. . .1 Cor. 2:13; Mark 12:26,36, and 13:11; Acts 1:16, and 2:4
+  p. 74 Vol. 1 Prop. 5 Obs. 3 note 1
+
 ### Obs. 2
 
 > The things pertaining to the kingdom contain facts, preparatory stages, historical connections, relations to the future, ideas above human capacity, that could not possibly have been known if God had not revealed them.  The kingdom is simple that which the Almighty designs to have accomplished as *the grand result* of the Divine economy.
