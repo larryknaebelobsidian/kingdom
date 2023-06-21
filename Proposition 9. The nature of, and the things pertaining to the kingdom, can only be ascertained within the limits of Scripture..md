@@ -7,12 +7,16 @@
 >- Hagenbach (*His. of Doctrines*, Vol. 1, sec. 212)
 >p. 110 Vol. 1 Prop. 9
 
+### Obs. 3
+
 > Increase of doctrinal knowledge does not consist in altering *the form* of doctrine, but in obtaining a clearer, more enlarged apprehension of *the unaltered* doctrine.
 > p. 113 Vol. 1 Prop. 9 Obs. 3
 
 >. . . a progress of apprehension by man . . . no advance in Divine teaching after the apostolic age was ever admitted by the Church, and that all elucidations, renewed definitions, etc., indicative of a clearer apprehension of the truth, are invariably based upon, and derived from, *the original truth* in the Old and New Testaments.
 >- Rev. Bernard (*Bampton Lectures,* "The Progress of Doctrine in the New Testament", Lec. 1)
 >p. 113 Vol. 1 Prop. 9 Obs. 3
+
+### Obs. 5
 
 > Prayerful study of the Scriptures will evidence itself, *not in profession, but in fruits.
 > p. 117 Vol. 1 Prop. 9 Obs. 5
