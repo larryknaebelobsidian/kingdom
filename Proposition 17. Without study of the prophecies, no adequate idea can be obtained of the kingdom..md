@@ -14,3 +14,5 @@ p. 170 Vol. 1 Prop. 17 Obs. 6 note
 > Bh. Van Mildert says: "The the sense of no prophecy is to be determined by an abstract consideration of the passage itself; but by taking it in conjunction with other portions of Scripture relating to the subject."
 > p. 171 Vol. 1 Prop. 17 Obs. 7 note
 
+
+
