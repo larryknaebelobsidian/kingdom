@@ -30,6 +30,7 @@
 -ESV
 
 - we have something more sure, the prophetic word
+Was the prophetic word made more sure by the Mount of Transfiguration experience?
 
 
 
