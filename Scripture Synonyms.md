@@ -17,3 +17,5 @@ NOTE: Counts from LSB https://read.lsbible.org/
 "[[His law]]" - 5
 "[[the gospel]]" (NT)- 83
 "[[God said]]" - 48
+"[[law of the lord]]" - 3
+"[[law of God]]" - 8
