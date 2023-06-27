@@ -17,9 +17,9 @@ Know this first of all, that no prophecy of Scripture comes by one’s own inter
 > p. 70 Vol. 1 Prop. 5 Obs. 2
 
 ### Obs. 3
-Some of the statements Peters makes in Observation 3 regarding inspiration surprised me and and brushed contrary to my understanding of inspiration.
+Some of the statements Peters makes in Observation 3 regarding [[inspiration]] surprised me and and brushed contrary to my understanding of [[inspiration]].
 
-> the extreme so strenuously contended for by some, that ***even the words themselves were inspired, is evidently burdening inspiration with a load that is unnecessary.***
+> the extreme so strenuously contended for by some, that ***even the words themselves were inspired, is evidently burdening [[inspiration]] with a load that is unnecessary.***
 > p. 72 Vol. 1 Prop. 5 Obs. 3 - emphasis mine
 
 > ***we must not necessarily assume that every word or sentence is inspired***
@@ -33,7 +33,7 @@ Some of the statements Peters makes in Observation 3 regarding inspiration surpr
 
 ### Obs. 4
 
-> we insist upon it that the apostles were fully and accurately acquainted with the doctrine of the kingdom, *i.e.*, as to its nature, and hence were qualified to teach it. Aside from their being specially called to preach the kingdom, this inspiration influence bestowed upon them (*e.g.*, Luke 12:12, John 16:13, 14, 15, Luke 24:49, 1 Cor. 2:12,13, Eph. 3:4, 1 Pet. 1:12, etc.) would *most certainly* preserve them from error on this great, leading subject of the Bible.
+> we insist upon it that the apostles were fully and accurately acquainted with the doctrine of the kingdom, *i.e.*, as to its nature, and hence were qualified to teach it. Aside from their being specially called to preach the kingdom, this [[inspiration]] influence bestowed upon them (*e.g.*, Luke 12:12, John 16:13, 14, 15, Luke 24:49, 1 Cor. 2:12,13, Eph. 3:4, 1 Pet. 1:12, etc.) would *most certainly* preserve them from error on this great, leading subject of the Bible.
 > p. 77 Vol. 1 Prop. 5 Obs. 4
 
 > The express declarations of the apostles themselves that they were guided by the Spirit, the positive promises given to them to guide them into the truth, forbid our receiving such estimates of the apostles' knowledge.
