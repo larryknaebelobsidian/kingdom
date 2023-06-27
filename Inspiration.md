@@ -27,5 +27,7 @@
 16 For we did not follow cleverly devised myths when we made known to you the power and coming of our Lord Jesus Christ, but we were eyewitnesses of his majesty. 17 For when he received honor and glory from God the Father, and the voice was borne to him by the Majestic Glory, "This is my beloved Son, with whom I am well pleased," 18 we ourselves heard this very voice borne from heaven, for we were with him on the holy mountain. 19 And we have something more sure, the prophetic word, to which you will do well to pay attention as to a lamp shining in a dark place, until the day dawns and the morning star rises in your hearts, 20 knowing this first of all, that no prophecy of Scripture comes from someone's own interpretation. 21 For no prophecy was ever produced by the will of man, but men spoke from God as they were carried along by the Holy Spirit.
 -ESV
 
+- we have something more sure, the prophetic word
+
 
 
