@@ -20,6 +20,8 @@
 
 - We saw Christ transfigured and, at that time, heard God's statement about Him
 - We have as more sure the prophetic word
+	- ***Is the prophecy of Scripture now made more sure due to the Mount of Transfiguration experience Peter had or is this saying that the scripture is more sure than even this majestic experience with Christ?***
+	- I think the former
 - None by one's own interpretation
 - None ever made by the will of man
 - Holy men, moved by the Holy Spirt, spoke from God
