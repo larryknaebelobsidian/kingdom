@@ -61,3 +61,12 @@ Deut. 7:7-11
  
 > The punishment, the scattering and desolation, of the Jewish nation is itself proof of their election as, e.g. Amos (ch. 3:2), declares : "You only have I known of all the families of the earth : *therefore* I will punish you for all your iniquities."  This casting off is only *temporary*, as evidence e.g. Zech. 10:6, etc.
 > p. 215 Vol. 1 Prop. 24 Obs. 9
+
+
+Zechariah 10:6
+I will make the house of Judah mighty,
+And I will save the house of Joseph,
+And I will cause them to return,
+Because I have had compassion on them;
+And they will be as though I had not rejected them,
+For I am Yahweh their God, and I will answer them.
