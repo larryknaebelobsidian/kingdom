@@ -29,3 +29,29 @@ Deut. 7:7-11
 > The Kingdom itself thus offered to them is a *divine-political* (church and state unified) dominion, over which *God Himself, as an earthly Ruler*, presides or rules as the Supreme.
 > p. 207 Vol. 1 Prop. 24 Obs. 1
 
+### Obs. 3
+> The election is *twofold* -- in its reach after the nationality, and in its application to the individual member of the nation.  It, in the latter case, only pertains to the believing, obedient portion of the nation.  This Paul, in Rom. 9 and 11, distinctly teaches.
+> p. 209 Vol. 1 Prop. 24 Obs. 3
+
+
+### Obs. 4
+> The misapprehension arises from not discriminating that the true seed are faithful Jews, or become such by faith, being *the actual* descendants of Abraham, or *accounted such -- part of the race* to whom the covenants are given. It does not follow, because God designs to exalt and bless the nation, that a disobedient Jew will obtain the blessings of election; for while the race, as a race, is chosen, it is not said that every individual of the race is also ultimately chosen.  The fact is, that very few, comparatively, may avail themselves of the opportunity afforded; but that does not vitiate the election of the portion of the race that is faithful, and it does not alter God's final purpose in reference to the nation itself.
+> p. 211 Vol. 1 Prop. 24 Obs. 4
+
+### Obs. 5
+> If any one says (as, alas, many do), perverting the language of Paul applicable to another feature, that the having the blood of Abraham in their veins amounted to nothing (which is true, when accompanied by unbelief, as Jesus taught), he simple fails to recognize the plain fact *that Jews* were called, and *not* Gentiles; a covenant was made was made *with Jews, and not* with Gentiles; the promises were given *to Jews*, and *not* to Gentiles; and that Gentiles receive and inherit *with* the natural descendants of Abraham *only as they are incorporated.*
+> p. 212 Vol. 1 Prop. 24 Obs. 5
+
+### Obs. 6
+>it is inconsistent to make (as e.g. Fairbairn, Whately and others) this elect people *a type* of others -- the type of a future people -- this misapplying the word "Israel."
+>p. 212 Vol. 1 Prop. 24 Obs. 6
+
+### Obs. 8
+> The Scriptures simply declare, that the "wall" is broken down between natural Jewish and Gentile *believers*, so that all of every nationality, *when exercising faith* in Jesus, become *one* in Christ.
+> p. 213 Vol. 1 Prop. 24 Obs. 8
+
+> Thus e.g. to *the natural* descendants of Abraham is *exclusively* given a covenant with certain promises; only those who are *identified* with the nation -- this distinctive race -- *have any right* to the covenanted blessings. The nation is chosen not merely as a depositary of the truth, but as the vehicle or medium through which the Saviour is to come, and finally completed Redemption in *a manifested Kingdom* under the reign of that Redeemer; for, somehow, all the prophets link the glory of the Messianic Kingdom *with* the Jewish race.  The individual Jew, on the principle of faith, can only justly claim the promises given by covenant to his people.
+> p. 214 Vol. 1 Prop. 24 Obs. 8
+
+> The Mosaic economy -- likened also to a wall or fortification -- introduced to preserve intact the elect nation . . .
+> p. 214 Vol. 1 Prop. 24 Obs. 8
