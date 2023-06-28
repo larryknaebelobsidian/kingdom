@@ -55,3 +55,9 @@ Deut. 7:7-11
 
 > The Mosaic economy -- likened also to a wall or fortification -- introduced to preserve intact the elect nation . . .
 > p. 214 Vol. 1 Prop. 24 Obs. 8
+
+> (The nation as portrayed as a root-stump, holy seed) is regarded sacred, and will ultimately become holy.
+> p. 215 Vol. 1 Prop. 24 Obs. 9
+ 
+> The punishment, the scattering and desolation, of the Jewish nation is itself proof of their election as, e.g. Amos (ch. 3:2), declares : "You only have I known of all the families of the earth : *therefore* I will punish you for all your iniquities."  This casting off is only *temporary*, as evidence e.g. Zech. 10:6, etc.
+> p. 215 Vol. 1 Prop. 24 Obs. 9
