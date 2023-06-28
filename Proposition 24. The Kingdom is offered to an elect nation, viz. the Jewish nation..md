@@ -39,11 +39,11 @@ Deut. 7:7-11
 > p. 211 Vol. 1 Prop. 24 Obs. 4
 
 ### Obs. 5
-> If any one says (as, alas, many do), perverting the language of Paul applicable to another feature, that the having the blood of Abraham in their veins amounted to nothing (which is true, when accompanied by unbelief, as Jesus taught), he simple fails to recognize the plain fact *that Jews* were called, and *not* Gentiles; a covenant was made was made *with Jews, and not* with Gentiles; the promises were given *to Jews*, and *not* to Gentiles; and that Gentiles receive and inherit *with* the natural descendants of Abraham *only as they are incorporated.*
+> If any one says (as, alas, many do), perverting the language of Paul applicable to another feature, that the having the blood of Abraham in their veins amounted to nothing (which is true, when accompanied by unbelief, as Jesus taught), he simply fails to recognize the plain fact *that Jews* were called, and *not* Gentiles; a covenant was made *with Jews, and not* with Gentiles; the promises were given *to Jews*, and *not* to Gentiles; and that Gentiles receive and inherit *with* the natural descendants of Abraham *only as they are incorporated.*
 > p. 212 Vol. 1 Prop. 24 Obs. 5
 
 ### Obs. 6
->it is inconsistent to make (as e.g. Fairbairn, Whately and others) this elect people *a type* of others -- the type of a future people -- this misapplying the word "Israel."
+>it is inconsistent to make (as e.g. Fairbairn, Whately and others) this elect people *a type* of others -- the type of a future people -- thus misapplying the word "Israel."
 >p. 212 Vol. 1 Prop. 24 Obs. 6
 
 ### Obs. 8
