@@ -16,5 +16,5 @@
 
 ## The original theocracy started in the days of Moses and ended with the Babylonian captivity
 
-1400BC - 600BC (800 years)
+1400BC - 600BC (approx 800 years)
 
