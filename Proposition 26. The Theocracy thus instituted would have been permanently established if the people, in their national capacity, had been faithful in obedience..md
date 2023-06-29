@@ -16,7 +16,7 @@
 > The reader will *carefully* observe (as use will be made of it hereafter) that this Theocracy is very different from God's universal, general sovereignty exercised by virtue of His being the Creator.
 > p. 224 Vol. 1 Prop. 26 Obs. 3
 
-> The Jews themselves, in e.g. "The Liturgy of the Jews" (Art. on, *littell's Liv. Age*, Oct. 7th, 1876), acknowledge their sinfulness : "We acknowledge that we have sinned; that we have acted wickedly. O Lord, according to all Thy righteousness, we beseech Thee, let Thy anger and Thy wrath be turned away from Jerusalem, Thy City and Thy Holy Mountain ; for it is on account of our sins and the iniquities of our ancestors that Jerusalem and Thy people are become objects of reproach to all around us," etc.
+> The Jews themselves, in e.g. "The Liturgy of the Jews" (Art. on, *Littell's Liv. Age*, Oct. 7th, 1876), acknowledge their sinfulness : "We acknowledge that we have sinned; that we have acted wickedly. O Lord, according to all Thy righteousness, we beseech Thee, let Thy anger and Thy wrath be turned away from Jerusalem, Thy City and Thy Holy Mountain ; for it is on account of our sins and the iniquities of our ancestors that Jerusalem and Thy people are become objects of reproach to all around us," etc.
 > p. 225 Vol. 1 Prop. 26 Obs. 4
 
 
