@@ -14,4 +14,7 @@
 > -Gleig (*His. Bible*, vol. 1, p. 218)
 > p. 216 Vol. 1 Prop. 25 Obs. 1
 
+## The original theocracy started in the days of Moses and ended with the Babylonian captivity
+
+1400BC - 600BC (800 years)
 
