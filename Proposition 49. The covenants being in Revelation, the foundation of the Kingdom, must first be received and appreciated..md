@@ -1,5 +1,7 @@
 #toc
 #keyproposition 
+[[Abrahamic Covenant]]
+[[Davidic Covenant]]
 
 ## I. THE ABRAHAMIC COVENANT
 24 observations
