@@ -4,7 +4,7 @@
 [[Davidic Covenant]]
 
 ## I. THE ABRAHAMIC COVENANT
-There are 24 observations in this section.
+There are 24 observations by Peters in this section.
 
 >The covenant (see good remarks on the meaning of the word “covenant” by Barnes, Notes on Heb. 8:8, and 9:16) made with Abraham is found in Gen. 12:1-3, 7; 13:14-17; 15:4-21; 17:4-16; 22:15-18. 
 >
@@ -26,10 +26,10 @@ There are 24 observations in this section.
 
 
 ## II. THE SINAITIC COVENANT, MADE WITH ISRAEL AT MOUNT SINAI
-There are 2 observations in this section
+There are 2 observations by Peters in this section
 
 ## III. THE DAVIDIC COVENANT
-There are 8 observations in this section
+There are 8 observations by Peters in this section
 
 >Having already shown and proven (Props. 28, 31, 32) how the Theocratic element was incorporated with the Davidic line, which God (as the chief Ruler and so acknowledged) chose, attention is now called to the distinguishing covenant with David by which this union is made forever inseparable; and by which this union is to be specially manifested in the sight of, and for the blessings of, the world through a descendant of David’s. The covenant is found in 2 Sam, 7:10-16 (1 Chron. 17:11-14), “*The Lord telleth thee that He will make thee a house. And when thy days be fulfilled, and thou shalt sleep with thy fathers, I will set up thy seed after thee which shall proceed out of thy bowels, and I will establish His Kingdom. He shall build a house for my name, and I will establish the throne of His Kingdom forever. I will be His Father and He shall be my Son. If he commit iniquity I will chasten Him with the rod of men and with the strives of the children of men.’ But my mercy shall not depart away from Him, as I took it from Saul whom I put away before thee. And thine house and thy Kingdom shall be established forever before thee; thy throne shall be established forever.*"
 >p. 313 Vol. 1 Prop. 49 Obs. 1
@@ -42,6 +42,11 @@ There are 8 observations in this section
 
 >How did David himself understand this covenant? This is best stated in his own language. Read e.g. Ps. 72, which describes a Son *infinitely superior* to Solomon; reflect over Ps. 132, and after noticing that “*the Lord hath sworn in truth unto David, He will not turn from it; of the fruit of thy body will I set upon thy throne*” (which Peter, Acts 2:30, 31, *expressly* refers to Jesus); consider the numerous Messianic allusions in this and other Psalms (89th, 110th, 72d, 48th, 45th, 21st, 2d, etc.), so regarded and *explicitly* quoted in the New Test, by inspired men; ponder the fact that David calls Him “*my Lord*,” “*higher than the kings of the earth*,” and gives Him a position, power, dominion, immortality, and perpetuity, that *no mortal King* can possibly attain to, and most certainly we are not wrong in believing that David himself, according to the tenor of the covenant “*thy Kingdom shall be established forever before thee*” expected to be in this Kingdom of his Son and Lord both to witness and experience its blessedness (so Storrs, *Diss. on Kingdom*, and many others).
 >p. 314 Vol. 1 Prop. 49 Obs. 3
+
+>The Prophets following, had a similar understanding of this divine-human disposition or ordering, by which David’s Son would *personally, through David’s Kingdom*, bestow the blessings of perfected Redemption. Thus e.g. Isa. 9:7, Jer. 23:5, 6, and 30:9, and 33:15-26, etc. (comp. Props. 21, 31, 33, 68, 122, etc.).
+>p. 314 Vol. 1 Prop. 49 Obs. 4
+
+
 
 
 
