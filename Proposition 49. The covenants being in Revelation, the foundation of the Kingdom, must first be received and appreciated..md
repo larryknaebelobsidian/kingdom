@@ -34,5 +34,18 @@ There are 8 observations in this section
 >Having already shown and proven (Props. 28, 31, 32) how the Theocratic element was incorporated with the Davidic line, which God (as the chief Ruler and so acknowledged) chose, attention is now called to the distinguishing covenant with David by which this union is made forever inseparable; and by which this union is to be specially manifested in the sight of, and for the blessings of, the world through a descendant of David’s. The covenant is found in 2 Sam, 7:10-16 (1 Chron. 17:11-14), “*The Lord telleth thee that He will make thee a house. And when thy days be fulfilled, and thou shalt sleep with thy fathers, I will set up thy seed after thee which shall proceed out of thy bowels, and I will establish His Kingdom. He shall build a house for my name, and I will establish the throne of His Kingdom forever. I will be His Father and He shall be my Son. If he commit iniquity I will chasten Him with the rod of men and with the strives of the children of men.’ But my mercy shall not depart away from Him, as I took it from Saul whom I put away before thee. And thine house and thy Kingdom shall be established forever before thee; thy throne shall be established forever.*"
 >p. 313 Vol. 1 Prop. 49 Obs. 1
 
+> When we come to this Davidic covenant, this perpetuation of the Theocratic relationship with the house of David, how much we regret the lost books of Samuel, Gad, and Nathan on the life of David.
+> p. 313 Vol. 1 Prop. 49 Obs. 1 Note 2
+
+>Learned and able men, forsaking the Primitive view and overlooking *the perpetuity* of this covenant, gravely tell us that Solomon and other descendants were here denoted; but we vastly prefer to let God explain His own language and the meaning intended. Thus, e.g. Acts 2:30, “*David being a prophet, and knowing that God had sworn with an oath to him, that of the fruit of his loins, according to the flesh, He would raise up Christ to sit on his throne;*” and Paul, directly quoting this covenant (Heb. 1:5), applies it to Christ Jesus, asking, “*Unto which of the angels said He at any time.” . . . “I will be to Him a Father and He shall be to me a Son*.” The announcing angel (Luke 1:30-33) gives the same testimony that the covenant truly refers to Christ.
+>p. 313 Vol. 1 Prop. 49 Obs. 2
+
+>How did David himself understand this covenant? This is best stated in his own language. Read e.g. Ps. 72, which describes a Son *infinitely superior* to Solomon; reflect over Ps. 132, and after noticing that “*the Lord hath sworn in truth unto David, He will not turn from it; of the fruit of thy body will I set upon thy throne*” (which Peter, Acts 2:30, 31, *expressly* refers to Jesus); consider the numerous Messianic allusions in this and other Psalms (89th, 110th, 72d, 48th, 45th, 21st, 2d, etc.), so regarded and *explicitly* quoted in the New Test, by inspired men; ponder the fact that David calls Him “*my Lord*,” “*higher than the kings of the earth*,” and gives Him a position, power, dominion, immortality, and perpetuity, that *no mortal King* can possibly attain to, and most certainly we are not wrong in believing that David himself, according to the tenor of the covenant “*thy Kingdom shall be established forever before thee*” expected to be in this Kingdom of his Son and Lord both to witness and experience its blessedness (so Storrs, *Diss. on Kingdom*, and many others).
+>p. 314 Vol. 1 Prop. 49 Obs. 3
+
+
+
+
+
 
 
