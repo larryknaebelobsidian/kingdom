@@ -46,9 +46,28 @@ There are 8 observations by Peters in this section
 >The Prophets following, had a similar understanding of this divine-human disposition or ordering, by which David’s Son would *personally, through David’s Kingdom*, bestow the blessings of perfected Redemption. Thus e.g. Isa. 9:7, Jer. 23:5, 6, and 30:9, and 33:15-26, etc. (comp. Props. 21, 31, 33, 68, 122, etc.).
 >p. 314 Vol. 1 Prop. 49 Obs. 4
 
+Isaiah 9:7
+There will be no end to the increase of _His_ government or of peace,
+On the throne of David and over his kingdom,
+To establish it and to uphold it with justice and righteousness
+From then on and forevermore.
+The zeal of Yahweh of hosts will accomplish this.
 
+Jeremiah 23:5,6
+5 “Behold, _the_ days are coming,” declares Yahweh,
+“When I will raise up for David a righteous Branch;
+And He will reign as king and prosper
+And do justice and righteousness in the land.
+6 In His days Judah will be saved,
+And Israel will dwell securely;
+And this is His name by which He will be called,
+‘Yahweh our righteousness.’
 
+Jeremiah 30:9
+But they shall be a slave to Yahweh their God and David their king, whom I will raise up for them.
 
+Jeremiah 33:15-26
+15 In those days and at that time I will cause a righteous Branch of David to branch forth; and He shall do justice and righteousness on the earth. 16 In those days Judah will be saved, and Jerusalem will dwell in security; and this is _the name_ by which she will be called: Yahweh is our righteousness.’ 17 For thus says Yahweh, ‘David shall not have a man cut off from sitting on the throne of the house of Israel; 18 and the Levitical priests shall not have a man cut off from before Me who is to offer burnt offerings, to offer up grain offerings in smoke, and to perform sacrifices continually.’” 19 Then the word of Yahweh came to Jeremiah, saying, 20 “Thus says Yahweh, ‘If you can break My covenant for the day and My covenant for the night, so that day and night will not be at their appointed time, 21 then My covenant may also be broken with David My servant so that he will not have a son to reign on his throne, and with the Levitical priests, My ministers. 22 As the host of heaven cannot be counted and the sand of the sea cannot be measured, so I will multiply the seed of David My servant and the Levites who minister to Me.’” 23 And the word of Yahweh came to Jeremiah, saying, 24 “Have you not seen what this people have spoken, saying, ‘The two families which Yahweh chose, He has rejected them’? Thus they have spurned My people from being a nation any longer in their sight. 25 Thus says Yahweh, ‘If My covenant _for_ day and night _stand_ not, _and_ the statutes for heaven and earth I have not established, 26 then I would reject the seed of Jacob and David My servant, not taking from his seed rulers over the seed of Abraham, Isaac, and Jacob. But I will return their fortunes and will have compassion on them.’”
 
 
 
