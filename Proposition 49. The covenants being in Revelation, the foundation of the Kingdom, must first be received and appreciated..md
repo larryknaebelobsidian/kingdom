@@ -22,7 +22,7 @@ There are 24 observations by Peters in this section.
 >11. God will be a God to him and to his seed. 
 >12. His seed shall possess the gate of his enemies. 
 >13. In his seed shall all the nations of the earth be blessed.
->p. 293-294 Vol. 1 Prop. 49 Obs. 1 (reformatted)
+>p. 293-294 Vol. 1 Prop. 49 Obs. 1 (reformatted with newlines)
 
 
 ## II. THE SINAITIC COVENANT, MADE WITH ISRAEL AT MOUNT SINAI
