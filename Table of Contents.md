@@ -37,7 +37,7 @@
 [[Proposition 37. The Kingdom, thus predicted and promised, was not in existence when the Forerunner of Jesus appeared.   ]]
 [[Proposition 38. John the Baptist preached that this Kingdom, predicted by the Prophets, was “nigh at hand”   ]]
 [[Proposition 39. John the Baptist was not ignorant of the Kingdom that he preached.   ]]
-[[Proposition 40. The hearers of John believed that he preached to them the Kingdom predicted by the Prophets, and in the sense field by themselves.   ]]
+[[Proposition 40. The hearers of John believed that he preached to them the Kingdom predicted by the Prophets, and in the sense held by themselves.]]
 [[Proposition 41. The Kingdom was not established under John’s ministry.   ]]
 [[Proposition 42. Jesus Christ, in His early ministry, preached that the Kingdom of God was nigh at hand.   ]]
 [[Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.  ]]
