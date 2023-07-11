@@ -3,7 +3,7 @@
 ### Obs. 6
 
 >The unity of agreement also accounts for .so little descriptive of the Kingdom being given in detail in the New Test. It was fully known and described in the prophets; now to have entered into a detailed statement and particularized *the restored Davidic Kingdom*, would *unnecessarily* have excited the open hostility of the jealous and persecuting Roman Empire.
->p. 260 Vol. 1 Prop. 40 Obs. 7
+>p. 260 Vol. 1 Prop. 40 Obs. 6
 
 ### Obs. 7
 
