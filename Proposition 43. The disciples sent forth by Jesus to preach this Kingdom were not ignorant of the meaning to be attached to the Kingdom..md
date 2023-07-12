@@ -7,3 +7,7 @@
 
 >What Kingdom they all preached is so evident (e.g. from Acts 1:6, etc.), that our opponents save us the trouble of stating it by frankly admitting it (e.g. Prop. 42, Obs. 2). Jesus instructed them, Jesus sent them, Jesus never contradicted their views of the Kingdom, Jesus approved of their preaching and rejoiced over it. This is amply sufficient, seeing that the Kingdom accurately corresponded with the one contained in the grammatical sense of the covenant and prophecies.
 > p. 274 Vol. 1 Prop. 43 Obs. 1
+
+## Acts 1:6
+So when they had come together, they were asking Him, saying, “Lord, is it at this time You are restoring the kingdom to Israel?” - LSB
+
