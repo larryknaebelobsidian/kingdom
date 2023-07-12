@@ -24,7 +24,7 @@ There are 24 observations by Peters in this section.
 >13. In his seed shall all the nations of the earth be blessed.
 >p. 293-294 Vol. 1 Prop. 49 Obs. 1 (reformatted with newlines)
 
->. . . the foundation upon which the Mosaic superstructure rests -- necessitates a belief in the resurrection and a future life.
+>. . . the foundation upon which the Mosaic superstructure rests -- *necessitates a belief in the resurrection and a future life*.
 >p. 301 Vol. 1 Prop 49 Obs. 10
 
 >The reader has seen where the line of argument is leading us, viz.: *to our inheriting the land with Abraham and the Christ, being co-heirs, co-inheritors of the same promises*. Indeed, let a concordance be taken, and let the passages be sought out which promise to the saints an inheriting of the land and the earth, and the student will be surprised at their number, unity and richness of expression, forming a *necessary sequence* to this very covenant relationship (comp. Props. 142, 146-152).
