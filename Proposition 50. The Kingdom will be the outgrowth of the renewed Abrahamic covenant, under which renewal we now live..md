@@ -1,6 +1,8 @@
 [[Abrahamic Covenant]]
 #toc 
 
+There are 24 observations in this proposition.
+
 >The covenant of this dispensation, called the New Testament, or the New Covenant, is none other than the Abrahamic *renewed or confirmed* by Jesus the Christ. We are not left to conjecture or inference on so important a point; it is one *plainly taught* in Holy Writ.
 >p. 320 Vol. 1 Prop 50 Obs. 1
 
