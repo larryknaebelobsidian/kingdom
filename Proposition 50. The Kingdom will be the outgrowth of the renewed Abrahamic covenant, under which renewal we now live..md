@@ -31,6 +31,25 @@ There are 24 observations in this proposition.
 >The very coming of the Seed covenanted to Abraham, insures the fulfilment of the covenant as written. It is in view of this that He Himself is designated “the covenant ,” for He is the Fulfiller of it, and without Him it could not possibly be realized. Justin Martyr (Dial, with Trypho, ch. 51) and others of the Fathers, who viewed the covenant in the light that we do, called Christ “the New Testament,” meaning that in Him the covenant was confirmed and fully assured of ultimate fulfilment. The Advent of Abraham’s Seed, then, is evidence already that the purposes of God expressed in that covenant are sure. Literally He came, vindicating the truthfulness of the covenant given many centuries before, and teaching us, if we .will but receive it, that every promise will be literally verified.
 >p. 331 Vol. 1 Prop 50 Obs. 13
 
+>It seems almost unnecessary to add, and yet its importance will justify it, that this Abrahamic covenant *was always received by faith*, simple faith.
+>p. 334 Vol. 1 Prop 50 Obs. 22
+
+>The doctrine of the Kingdom *presupposes* the covenants Hence the New Test. Scriptures begin with taking the Abrahamic and Davidic covenants *for granted, as something well known and correctly apprehended*. These fundamentals of knowledge were so deeply rooted in the national faith, were so constantly the subjects suggestive of hopeful anticipations of future glory, that *no necessity* existed for their recapitulation. Allusions to them, confirmatory teaching, a consistent harmony with their promises, is all that is required, and this is abundantly found in every writer.
+>p. 334-335 Vol. 1 Prop 50 Obs. 23
+
+>Let a peculiarity, attached to the fulfilment of this covenant, be deeply pondered, viz.: that in the history of a partial fulfilment in the past, it has *never yet* been so realized as to meet the natural wisdom of man, or to answer to the general anticipations of the period when thus fulfilled. Observe this procedure in the very beginning, when Abraham, contrary to all human expectations, raised up Seed in the covenanted line against the course of nature. And down to the miraculous birth of Abraham’s pre-eminent Seed, all things were so ordered that they did not meet the expectations of the mass of the nation. The Advent itself, a strictly literal fulfilment, did not meet the hopes entertained by the Jews. The calling of the Gentiles, to raise up a seed unto Abraham, was a thing unanticipated. Judging from the writings of the Church, its expectations have been repeatedly disappointed, so much so that now men deliberately and unhesitatingly deny some of the most precious promises of the covenants, both relating to the Christ and His co-heirs, as e.g. the restoration of the Davidic throne and Kingdom and the inheriting of the land. Analogy teaches us what prophecy distinctly announces, that at the period when this covenant is to be most amply fulfilled by the Christ who confirmed it, the multitude including the kings and nations of the earth, will be arrayed against it, will have no faith in its realization. This, alone, should make us *thoughtful and careful*.
+>p. 335 Vol. 1 Prop 50 Obs. 24
+
+
+
+
+
+
+
+
+
+
+
 
 
 
