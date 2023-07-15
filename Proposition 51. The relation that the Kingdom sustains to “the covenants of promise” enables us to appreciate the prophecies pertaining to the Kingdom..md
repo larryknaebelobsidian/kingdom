@@ -6,7 +6,6 @@
 >The covenants *outline* the Plan of the Divine Purpose; prophecy partially *fills up and deepens* the lines thus drawn.
 >p. 340 Vol. 1 Prop 51 Obs. 8
 
-
 >History is only a witness to the fact that the history of the Church and world, as it progresses, is foreknown to God, and that He orders all things in such a manner that what He purposes to perform shall be ultimately accomplished. History, instead of being a measurer of that which so largely pertains to the future, only gives us the assurance, from the testimony of the past and present, that all God’s predictions will be verified in actual accomplishment.
 >p. 340-341 Vol. 1 Prop 51 Obs. 9
 
