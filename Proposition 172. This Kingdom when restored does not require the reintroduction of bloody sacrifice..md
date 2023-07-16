@@ -14,7 +14,7 @@
 ### The key is Ezekiel 43:7-11
 #### Conditional on national obedience
 
->the reason *why* no such Theocratic restoration (compare Jer. 17:25 with context—same conditionally expressed) was affected, was owing simply to *the lack* of a national repentance commensurate with a bringing it into operation. The repentance and acknowledgments of individuals and of a portion of the nation, is not sufficient to bring back this richly forfeited blessing. If it be asked, *why* does God give this lengthy prediction foreknowing that it will never, in the shape given, be realized owing to continued national sinfulness and unworthiness, the answer is plain: judging from other portions of the Word, it is done in necessary accommodation to the free agency of man
+>. . . the reason *why* no such Theocratic restoration (compare Jer. 17:25 with context—same conditionally expressed) was affected, was owing simply to *the lack* of a national repentance commensurate with a bringing it into operation. The repentance and acknowledgments of individuals and of a portion of the nation, is not sufficient to bring back this richly forfeited blessing. If it be asked, *why* does God give this lengthy prediction foreknowing that it will never, in the shape given, be realized owing to continued national sinfulness and unworthiness, the answer is plain: judging from other portions of the Word, it is done in necessary accommodation to the free agency of man
 >p. 85-86 Vol. 3 Prop 172 Obs. 3 (extracted again from above for emphasis)
 
 
