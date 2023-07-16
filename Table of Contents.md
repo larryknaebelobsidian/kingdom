@@ -169,7 +169,7 @@
 [[Proposition 169. This Theocratic Kingdom embraces the marriage of Christ to the New Jerusalem.  ]] 
 [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.  ]] 
 [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.  ]] 
-[[Proposition 172. This is Kingdom when restored does not require the re-introduction of bloody sacrifice.   ]]
+[[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]]
 [[Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.   ]]
 [[Proposition 174.—This Kingdom of the Messiah is preceded by signs.  ]] 
 [[Proposition 175. The doctrine of the Kingdom is greatly obscured and perverted by the prevailing one of the conversion of the world prior to the Advent of Jesus.  ]] 
