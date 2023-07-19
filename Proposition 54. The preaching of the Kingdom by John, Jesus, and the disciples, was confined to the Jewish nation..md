@@ -20,5 +20,16 @@ It is you who are the sons of the prophets and of the covenant which God made wi
 Romans 9:4
 who are Israelites, to whom belongs the adoption as sons, and the glory and the covenants and the giving of the Law and the _temple_ service and the promises, - LSB
 
+>The reader will bear in mind that the message of the disciples— a peculiar and distinctive one—to say “the Kingdom of heaven is at hand” *was not addressed by them to any Gentile*. The same is true of John, and also of Jesus, who carefully avoided it in His address to Gentiles (Obs. 4, note 1). The reason is, as we have seen, that *the Kingdom belonged to the Jews*, and until the call of the Gentiles was entered into on account of Jewish unbelief, the message *pertained to the Jews* and those adopted as Jews.
+>p. 361 Vol. 1 Prop 54 Obs. 9
+
+>The Kingdom was ultimately to be extended from the Jews so that it would embrace the Gentiles also, as indicated plainly by the prophecies (Prop. 30). This opinion was held by the Jews, as the titles given to the Messiah showed (e.g. Mac. 2:7, 14, “the King of the World ”). But this ordering did not interfere with the Davidic covenanted basis, or with the predicted (on this account) supremacy of the nation (Prop. 114).
+>p. 361 Vol. 1 Prop 54 Obs. 10
+
+
+
+
+
+
 
 
