@@ -12,3 +12,5 @@
 >God never violates moral freedom in His purposes relating to the nation. Jesus, with full purpose of fulfilling, and yet foreknowing the sad result, employs the only language adapted to their free agency. Such expressions as "Ye will not come unto me that ye might have life," "would not have this man to reign over us," "ye would not," "He came to His own, and His own received Him not," and kindred ones unmistakably indicate the power of choice.
 >p. 363 Vol. 1 Prop 55 Obs. 4 note
 
+
+
