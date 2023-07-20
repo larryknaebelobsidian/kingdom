@@ -1,4 +1,4 @@
-This phrase does not occur in Peters.
+This phrase does not occur in Peters. (based on search in Kindle version that excludes notes)
 
 [Joshua 5:6](https://read.lsbible.org/?q=Joshua+5&h=06-005-006)
 
