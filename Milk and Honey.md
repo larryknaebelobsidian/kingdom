@@ -1,3 +1,5 @@
+This phrase does not occur in Peters.
+
 [Joshua 5:6](https://read.lsbible.org/?q=Joshua+5&h=06-005-006)
 
 For the sons of Israel had walked forty years in the wilderness, until all the nation, that is, the men of war who came out of Egypt, were completely destroyed because they did not listen to the voice of Yahweh, to whom Yahweh had sworn that He would not let them see the land which Yahweh had sworn to their fathers to give us, a land flowing with **milk and honey**.
