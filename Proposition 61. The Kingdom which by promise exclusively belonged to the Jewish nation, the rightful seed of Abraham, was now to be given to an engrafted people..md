@@ -1,1 +1,10 @@
 #toc
+
+>It has been shown that this kingdom belongs by promise and covenant to *the seed* of Abraham (Props. 29, 49); now, as the promises of God are sure (Props. 47, 52), this people, this very nation, *must be engrafted or incorporated* with this *elected seed* of Abraham. This is indispensable, for otherwise God’s *oath-bound* word would *fail* in its fulfilment. Bather than have so precious a word to fail, God is able, as we have seen, to raise up children unto Abraham even, if necessary, from the stones (Matt. 3:9); but instead of resorting to miraculous intervention to produce such a result, God raises up a seed unto Abraham *out of* the Gentiles by engrafting them through faith in the Christ, and *accounting them* as the children of Abraham by virtue of their Abrahamic justifying faith.
+>p. 396 Vol. 1 Prop 61
+
+>The plan of adoption is simple: Abraham was justified by faith, the election was bestowed upon him in virtue of that faith, and hence those who believe in the promised seed being also justified by faith, are brought into living union with Christ (“the King of the Jews”), and through Him become the adopted children of Abraham who was of like faith. Hence the apostle in Gal. 3 tells us (v. 7) “Know ye therefore, that they which are of faith, the same are the children of Abraham.” But why become the children of Abraham? Because, as he shows, verses 14-18, the promises and inheritance are given through him, and we must be related to Abraham in order to receive and inherit the same. Therefore he goes on and insists that this very essential relationship is established in and through Jesus Christ, and (v. 28, 29) adds: “for ye are all one in Christ Jesus. And if ye be Christ’s, then are ye Abraham’s seed, and heirs according to promise.” Thus then (ch. 2:5) receiving “the adoption of sons,” because united and identified with Christ, who is the chief inheritor under the Abrahamic covenant, we become co-heirs with Him. This marvellously simple arrangement, introducing mercy and grace to us Gentiles, preserves the covenanted promises intact and confirms them.
+>p. 396 Vol. 1 Prop 61 Obs 1
+
+
+
