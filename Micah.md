@@ -152,7 +152,9 @@ In the last days
 
 9.
 		enemies
+			your hand lifted up in triumph over
 		foes
+			all destroyed
 
 10.
 	In that day
@@ -167,7 +169,7 @@ In the last days
 13.
 			your idols
 			sacred stones
-		you will not longer bow down to the work of your hands
+		you will no longer bow down to the work of your hands
 14.
 		I will uproot from among you  your Asherah poles
 			when I demolish your cities
