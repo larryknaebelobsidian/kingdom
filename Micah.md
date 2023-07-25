@@ -176,3 +176,38 @@ In the last days
 15.
 		I will take vengeance (in anger and wrath)
 			on the nations that have not obeyed me
+
+
+## Key Ideas
+
+The ***last days*** (4:1)
+The ***mountain of the LORD***
+He will beat their swords into plowshares, spears into pruning hooks (4:3)
+I will ***gather*** the lame, ***assemble*** the exiles (4:6)
+The LORD's plan: He has gathered them like sheaves to the threshing floor (4:12)
+
+Out of you (Bethlehem) will come for me one who will be ruler over Israel, whose origins are from old (5:2)
+The rest of his (Israel's) brothers ***return*** (5:3)
+He will stand and shepherd his flock (5:4)
+His greatness will reach to the ends of the earth (5:4)
+He will be our peace (5:5)
+He will rule the land of Assyria with the sword (5:6)
+The ***remnant*** of Jacob will be in the midst of many peoples like dew (5:7)
+The ***remnant*** of Jacob will be among the nations (5:8)
+Your hand will be lifted up in triumph over your enemies (5:9)
+I will take vengeance on the nations that have not obeyed me (5:15)
+
+What does the LORD require of you? To act justly and to love mercy and to walk humbly with your God (6:8)
+
+Heed the rod and the One who appointed it (6:9)
+
+The day God visits you has come (7:4)
+
+A son dishonors his father, a daughter rises up against her mother ... a man's enemies are the members of his own household (7:6) Quoted in Matthew 10:35-36
+
+7:20 - refers to Abrahamic covenant (and other oaths)
+
+
+
+
+
