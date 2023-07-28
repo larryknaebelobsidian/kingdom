@@ -14,7 +14,7 @@
 
 
 
-Rom. 13:11
+Rom. 13:11-12
 And _do_ this, knowing the time, that it is already the hour for you to awaken from sleep; for now salvation is nearer to us than when we believed. 12 The night is almost gone, and the day is at hand. Therefore let us lay aside the deeds of darkness and put on the armor of light.
 
 Phil. 4:5
