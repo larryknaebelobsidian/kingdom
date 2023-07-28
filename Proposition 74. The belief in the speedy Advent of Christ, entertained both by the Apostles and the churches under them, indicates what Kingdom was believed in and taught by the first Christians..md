@@ -18,10 +18,10 @@ Rom. 13:11
 And _do_ this, knowing the time, that it is already the hour for you to awaken from sleep; for now salvation is nearer to us than when we believed. 12 The night is almost gone, and the day is at hand. Therefore let us lay aside the deeds of darkness and put on the armor of light.
 
 Phil. 4:5
-Let your considerate _spirit_ be known to all men. The Lord is near.
+Let your considerate _spirit_ be known to all men. The Lord is near[^1].
 
 Heb. 10:25
-not forsaking our own assembling together, as is the habit of some, but encouraging _one another_, and all the more as you see the day drawing near.
+not forsaking our own assembling together, as is the habit of some, but encouraging _one another_, and all the more as you see the day drawing near. [^2]
 
 Heb. 10:36-37
 For you have need of endurance, so that when you have done the will of God, you may receive the promise. 37 For yet in a very little while, He who is coming will come, and will not delay.
@@ -30,15 +30,26 @@ Tit. 2:13
 looking for the blessed hope and the appearing of the glory of our great God and Savior, Jesus Christ,
 
 James 5:7-9
-Therefore be patient, brothers, until the coming of the Lord. Behold, the farmer waits for the precious fruit of the soil, being patient about it, until it receives the early and late rains. 8 You too be patient; strengthen your hearts, for the coming of the Lord is at hand. 9 Do not groan, brothers, against one another, so that you yourselves may not be judged. Behold, the Judge is standing right at the door.
+Therefore be patient, brothers, until the coming of the Lord. Behold, the farmer waits for the precious fruit of the soil, being patient about it, until it receives the early and late rains. 8 You too be patient; strengthen your hearts, for the coming of the Lord is at hand[^3]. 9 Do not groan, brothers, against one another, so that you yourselves may not be judged. Behold, the Judge is standing right at the door.
 
 1 Peter 4:7
 The end of all things is at hand; therefore, be of sound thinking and sober _spirit_ for the purpose of prayer.
 
 Rev. 22:12, 20
-12 Behold, I am coming quickly, and My reward _is_ with Me, to render to every man according to his work. 
+12 Behold, I am coming quickly[^rev2212], and My reward _is_ with Me, to render to every man according to his work. 
 
-20 He who bears witness to these things says, “Yes, I am coming quickly.” Amen. Come, Lord Jesus.
+20 He who bears witness to these things says, “Yes, I am coming quickly [^4].” Amen. Come[^17], Lord Jesus.
+
+[^1]: This is my footnote.
+[^17]: fn17
+[^2]: at hand ἤγγικεν [1448] (https://biblehub.com/greek/1448.htm "Strongs")
+
+[^3]: at hand ἤγγικεν [1448e] (https://biblehub.com/greek/1448.htm "Strongs")
+
+[^4]: at hand ἤγγικεν [1448f] (https://biblehub.com/greek/1448.htm "Strongs")
+[^rev2212]: fn5
+
+
 
 
 
