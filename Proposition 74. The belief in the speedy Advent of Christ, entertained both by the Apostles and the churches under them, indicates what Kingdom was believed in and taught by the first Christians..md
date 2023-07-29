@@ -106,18 +106,11 @@ Rev. 22:20
 
 
 
+at hand ἤγγικεν [1448] (https://biblehub.com/greek/1448.htm "Strongs")
 
+at hand ἤγγικεν [1448e] (https://biblehub.com/greek/1448.htm "Strongs")
 
-[^1]: This is my footnote.
-[^17]: fn17
-[^2]: at hand ἤγγικεν [1448] (https://biblehub.com/greek/1448.htm "Strongs")
-
-[^3]: at hand ἤγγικεν [1448e] (https://biblehub.com/greek/1448.htm "Strongs")
-
-[^4]: at hand ἤγγικεν [1448f] (https://biblehub.com/greek/1448.htm "Strongs")
-[^rev2212]: fn5
-[^3]: Test
-[^4]: Another test
+at hand ἤγγικεν [1448f] (https://biblehub.com/greek/1448.htm "Strongs")
 
 
 
