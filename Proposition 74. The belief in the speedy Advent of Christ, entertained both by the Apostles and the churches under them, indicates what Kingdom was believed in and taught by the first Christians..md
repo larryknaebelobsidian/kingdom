@@ -70,10 +70,10 @@ knowing this first of all, that in the last days mockers will come with _their_ 
 Children, it is the last hour; and just as you heard that antichrist is coming, even now many antichrists have appeared. From this we know that it is the last hour.
 
 Rev. 1:1
-The Revelation of Jesus Christ, which God gave Him to show to His slaves the things which must soon happen; and He indicated _this_ by sending _it_ through His angel to His slave John,
+The Revelation of Jesus Christ, which God gave Him to show to His slaves the things which must soon<sup>[7]</sup> happen; and He indicated _this_ by sending _it_ through His angel to His slave John,
 
 Rev. 1:3
-Blessed is he who reads and those who hear the words of the prophecy and keep the things which are written in it, for the time is **near**.
+Blessed is he who reads and those who hear the words of the prophecy and keep the things which are written in it, for the time is **near**<sup>[1]</sup>.
 
 Rev. 2:11
 He who has an ear, let him hear what the Spirit says to the churches. He who overcomes will never be hurt by the second death.’
@@ -93,8 +93,6 @@ Rev. 22:20
 >Oosterzee (Theol. N. Test., p. 126) says: “*It cannot be denied* that the Lord throughout His teaching, as well as in His last eschatological discourses, represents His coming as very near at hand. This was the natural consequence of the prophetic form of conception, in which the difference of time and space falls into the background, the exhortation to watchfulness and active labor receiving greater force from reference to the near, unexpected, and decisive future.” There is propriety in the reason thus assigned, but it does *not cover* the entire ground, failing to tell us *why* this is the "prophetic form of conception.”
 >p. 474-475 Vol. 1 Prop. 74 Obs. 4
 
-
-
 >The announcements made of a near Advent in such phrases, “*the Lord is at hand*” “*the coming of the Lord draweth nigh*,” etc., has excited the ridicule of infidels as evidence of grave error; has provoked, in some instances, from professed believers reluctant acknowledgments of “mistakes,” and, in other cases, lamely produced apologies derived from the personal status of the Apostles. The *real ground* for the usage of such language has been too much overlooked. A remarkable feature in this contest over the expressions and meaning of the Apostles is the following: unbelievers and believers both refer to the fact that the language is given in *the old Jewish prophetic form*. The ancient prophets (as e.g. Isa., Joel), spoke of the promised Salvation, the day of the Lord, the Coming of the Mighty One, as being near, close at hand, etc., when the fulfilment of prophecy shows that *centuries upon centuries* must intervene before it is fully realized. No one has *objected to these forms* of prophetic expression, on the ground that they represented remote events as near because it was reasonably supposed that such phraseology was *in strict accordance* with a professed prophetic revelation given in *the largeness of time which must characterize the utterances of the Spirit of God*. *Precisely so* with the Sec. Advent; being a doctrine given by *the selfsame Spirit*, it would *illy correspond* with His *previous utterances* to pronounce it remote, even if many (according to human measure of time) centuries intervened. For the latter, although distant to man, would not be so with God, to whom “*one day is as a thousand years, and a thousand years as one day*.” We must, therefore, judge the Apostles’ language, *not by a human, but by the Divine standard*. The Spirit—if of God,—does not measure time as we do; and it *is only fair and honest* to weigh expressions regarding time *given under the direction of that Spirit by the largeness of view* which characterizes God Himself. It the Spirit in the consciousness of Omniscience, Omnipresence, Eternity, the Infinite,—of previously given declarations corresponding to these,—had in the prophetic announcements of the Apostles employed, even to designate thousands of years, the language (to accord with human human ideas) “remote,” far distant,” “long time,” etc., unbelievers would, probably, be *the very first* to point out the *inconsistency* of such phraseology with the Divine attributes, and justly claim that such expressions are *indicative of human infirmity*. We hold, consequently, that the declarations of the Apostles respecting the nearness of the Advent, *are in strict accordance with the truth*, and that, in themselves properly apprehended, they contain *decided evidence* of the Spirit having given them. And, as they sustain an intimate relation to *the perfection* of the Spirit, they cannot be interpreted, without undue violence, as an accommodation to human imperfection.
 >p. 475-476 Vol. 1 Prop. 74 Obs. 5
 
@@ -111,9 +109,8 @@ Rev. 22:20
 <sup>[4]</sup> ἐγγύτερον - adverb - 1 occ [1452] (https://biblehub.com/greek/1452.htm "Strongs")
 <sup>[5]</sup> ἐγγίζουσαν - verb (ppa) - 1 occ [1448] (https://biblehub.com/greek/1448.htm "Strongs")
 <sup>[6]</sup> ταχύ - adverb - 12 occ [5035] (https://biblehub.com/greek/5035.htm "Strongs")
-at hand ἤγγικεν [1448e] (https://biblehub.com/greek/1448.htm "Strongs")
+<sup>[7]</sup> τάχει - noun - [5034] (https://biblehub.com/greek/5034.htm "Strongs")
 
-at hand ἤγγικεν [1448f] (https://biblehub.com/greek/1448.htm "Strongs")
 
 
 
