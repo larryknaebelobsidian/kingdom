@@ -22,7 +22,7 @@ Luke 10:9
 and heal those in it who are sick, and say to them, ‘The kingdom of God has come **near**<sup>[2]</sup> to you.’
 
 Luke 21:28
-But when these things begin to take place, straighten up and lift up your heads, because your redemption is drawing **near**.”
+But when these things begin to take place, straighten up and lift up your heads, because your redemption is drawing **near**<sup>[3]</sup>.”
 
 Luke 21:30
 as soon as they put forth leaves and you see it for yourselves, know that summer is now **near**.
@@ -107,7 +107,7 @@ Rev. 22:20
 
 <sup>[1]</sup> ἐγγύς - adverb - 30 occ [1451] (https://biblehub.com/greek/1451.htm Strongs)
 <sup>[2]</sup> ἤγγικεν - verb (pai) - 42 occ [1448] (https://biblehub.com/greek/1448.htm "Strongs")
-
+<sup>[3]</sup> ἐγγίζει - verb (pia) - 42 occ [1448] (https://biblehub.com/greek/1448.htm "Strongs")
 at hand ἤγγικεν [1448e] (https://biblehub.com/greek/1448.htm "Strongs")
 
 at hand ἤγγικεν [1448f] (https://biblehub.com/greek/1448.htm "Strongs")
