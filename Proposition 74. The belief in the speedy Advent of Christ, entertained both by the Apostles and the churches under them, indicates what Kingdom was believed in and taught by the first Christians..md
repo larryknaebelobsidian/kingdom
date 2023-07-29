@@ -13,13 +13,13 @@
 >p. 471 Vol. 1 Prop. 74 Obs. 2
 
 Matt. 24:32-33
-Blessed is he who reads and those who hear the words of the prophecy and keep the things which are written in it, for the time is **near**; so, you too, when you see all these things, recognize that He is **near**, right at the door.
+Blessed is he who reads and those who hear the words of the prophecy and keep the things which are written in it, for the time is **near**; so, you too, when you see all these things, recognize that He is **near**<sup>[1]</sup>, right at the door.
 
 Mark 13:29
-Even so, you too, when you see these things happening, recognize that He is **near**, right at the door.
+Even so, you too, when you see these things happening, recognize that He is **near**<sup>[1]</sup>, right at the door.
 
 Luke 10:9
-and heal those in it who are sick, and say to them, ‘The kingdom of God has come **near** to you.’
+and heal those in it who are sick, and say to them, ‘The kingdom of God has come **near**<sup>[2]</sup> to you.’
 
 Luke 21:28
 But when these things begin to take place, straighten up and lift up your heads, because your redemption is drawing **near**.”
@@ -105,8 +105,8 @@ Rev. 22:20
 >p. 477 Vol. 1 Prop. 74 Obs. 7
 
 
-
-at hand ἤγγικεν [1448] (https://biblehub.com/greek/1448.htm "Strongs")
+<sup>[1]</sup> ἐγγύς - adverb - 30 occ [1451] (https://biblehub.com/greek/1451.htm Strongs)
+<sup>[2]</sup> ἤγγικεν - verb (pai) - 42 occ [1448] (https://biblehub.com/greek/1448.htm "Strongs")
 
 at hand ἤγγικεν [1448e] (https://biblehub.com/greek/1448.htm "Strongs")
 
