@@ -40,13 +40,13 @@ But this I say, brothers, the time has been shortened, so that from now on those
 Now these things happened to them as an example, and they were written for our instruction, upon whom the ends of the ages have arrived.
 
 Phil. 4:5
-Let your considerate _spirit_ be known to all men. The Lord is near[^1].
+Let your considerate _spirit_ be known to all men. The Lord is near.
 
 1 Tim. 6:14
 that you keep the commandment without stain or reproach until the appearing of our Lord Jesus Christ,
 
 Heb. 10:25
-not forsaking our own assembling together, as is the habit of some, but encouraging _one another_, and all the more as you see the day drawing near. [^2]
+not forsaking our own assembling together, as is the habit of some, but encouraging _one another_, and all the more as you see the day drawing near. 
 
 Heb. 10:36-37
 For you have need of endurance, so that when you have done the will of God, you may receive the promise. 37 For yet in a very little while, He who is coming will come, and will not delay.
@@ -85,10 +85,10 @@ Rev. 22:10
 And he said to me, “Do not seal up the words of the prophecy of this book, for the time is **near**.
 
 Rev. 22:12
-12 Behold, I am coming quickly[^rev2212], and My reward _is_ with Me, to render to every man according to his work. 
+12 Behold, I am coming quickly, and My reward _is_ with Me, to render to every man according to his work. 
 
 Rev. 22:20
-20 He who bears witness to these things says, “Yes, I am coming quickly [^4].” Amen. Come[^17], Lord Jesus.
+20 He who bears witness to these things says, “Yes, I am coming quickly .” Amen. Come, Lord Jesus.
 
 >Oosterzee (Theol. N. Test., p. 126) says: “*It cannot be denied* that the Lord throughout His teaching, as well as in His last eschatological discourses, represents His coming as very near at hand. This was the natural consequence of the prophetic form of conception, in which the difference of time and space falls into the background, the exhortation to watchfulness and active labor receiving greater force from reference to the near, unexpected, and decisive future.” There is propriety in the reason thus assigned, but it does *not cover* the entire ground, failing to tell us *why* this is the "prophetic form of conception.”
 >p. 474-475 Vol. 1 Prop. 74 Obs. 4
