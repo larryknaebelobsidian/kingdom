@@ -112,7 +112,7 @@ Rev. 22:20
 <sup>[4]</sup> ἐγγύτερον - adverb - 1 occ [1452] (https://biblehub.com/greek/1452.htm "Strongs")
 <sup>[5]</sup> ἐγγίζουσαν - verb (ppa) - 1 occ [1448] (https://biblehub.com/greek/1448.htm "Strongs")
 <sup>[6]</sup> ταχύ - adverb - 12 occ [5035] (https://biblehub.com/greek/5035.htm "Strongs")
-<sup>[7]</sup> τάχει - noun - [5034] (https://biblehub.com/greek/5034.htm "Strongs")
+<sup>[7]</sup> τάχει - noun - 8 occ [5034] (https://biblehub.com/greek/5034.htm "Strongs")
 
 
 
