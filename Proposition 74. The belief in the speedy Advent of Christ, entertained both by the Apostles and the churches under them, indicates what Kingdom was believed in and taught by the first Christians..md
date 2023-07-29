@@ -25,13 +25,13 @@ Luke 21:28
 But when these things begin to take place, straighten up and lift up your heads, because your redemption is drawing **near**<sup>[3]</sup>.”
 
 Luke 21:30
-as soon as they put forth leaves and you see it for yourselves, know that summer is now **near**.
+as soon as they put forth leaves and you see it for yourselves, know that summer is now **near**<sup>[1]</sup>.
 
 Luke 21:31
-So you also, when you see these things happening, know that the kingdom of God is **near**.
+So you also, when you see these things happening, know that the kingdom of God is **near**<sup>[1]</sup>.
 
 Rom. 13:11-12
-And _do_ this, knowing the time, that it is already the hour for you to awaken from sleep; for now salvation is nearer to us than when we believed. 12 The night is almost gone, and the day is at hand. Therefore let us lay aside the deeds of darkness and put on the armor of light.
+And _do_ this, knowing the time, that it is already the hour for you to awaken from sleep; for now salvation is nearer<sup>[4]</sup> to us than when we believed. 12 The night is almost gone, and the day is at hand<sup>[2]</sup>. Therefore let us lay aside the deeds of darkness and put on the armor of light.
 
 1 Cor. 7:29-31
 But this I say, brothers, the time has been shortened, so that from now on those who have wives should be as though they had none; 30 and those who cry, as though they did not cry; and those who rejoice, as though they did not rejoice; and those who buy, as though they did not possess; 31 and those who use the world, as though they did not make full use of it. For the form of this world is passing away.
@@ -40,7 +40,7 @@ But this I say, brothers, the time has been shortened, so that from now on those
 Now these things happened to them as an example, and they were written for our instruction, upon whom the ends of the ages have arrived.
 
 Phil. 4:5
-Let your considerate _spirit_ be known to all men. The Lord is near.
+Let your considerate _spirit_ be known to all men. The Lord is near<sup>[1]</sup>.
 
 1 Tim. 6:14
 that you keep the commandment without stain or reproach until the appearing of our Lord Jesus Christ,
@@ -82,13 +82,13 @@ Rev. 22:7
 Let the one who does unrighteousness, still do unrighteousness; and the one who is filthy, still be filthy; and let the one who is righteous, still do righteousness; and the one who is holy, still keep himself holy.”
 
 Rev. 22:10
-And he said to me, “Do not seal up the words of the prophecy of this book, for the time is **near**.
+And he said to me, “Do not seal up the words of the prophecy of this book, for the time is **near**<sup>[1]</sup>.
 
 Rev. 22:12
-12 Behold, I am coming quickly, and My reward _is_ with Me, to render to every man according to his work. 
+12 Behold, I am coming quickly<sup>[6]</sup>, and My reward _is_ with Me, to render to every man according to his work. 
 
 Rev. 22:20
-20 He who bears witness to these things says, “Yes, I am coming quickly .” Amen. Come, Lord Jesus.
+20 He who bears witness to these things says, “Yes, I am coming quickly<sup>[6]</sup>.” Amen. Come, Lord Jesus.
 
 >Oosterzee (Theol. N. Test., p. 126) says: “*It cannot be denied* that the Lord throughout His teaching, as well as in His last eschatological discourses, represents His coming as very near at hand. This was the natural consequence of the prophetic form of conception, in which the difference of time and space falls into the background, the exhortation to watchfulness and active labor receiving greater force from reference to the near, unexpected, and decisive future.” There is propriety in the reason thus assigned, but it does *not cover* the entire ground, failing to tell us *why* this is the "prophetic form of conception.”
 >p. 474-475 Vol. 1 Prop. 74 Obs. 4
@@ -108,6 +108,9 @@ Rev. 22:20
 <sup>[1]</sup> ἐγγύς - adverb - 30 occ [1451] (https://biblehub.com/greek/1451.htm Strongs)
 <sup>[2]</sup> ἤγγικεν - verb (pai) - 42 occ [1448] (https://biblehub.com/greek/1448.htm "Strongs")
 <sup>[3]</sup> ἐγγίζει - verb (pia) - 42 occ [1448] (https://biblehub.com/greek/1448.htm "Strongs")
+<sup>[4]</sup> ἐγγύτερον - adverb - 1 occ [1452] (https://biblehub.com/greek/1452.htm "Strongs")
+<sup>[5]</sup> ἐγγίζουσαν - verb (ppa) - 1 occ [1448] (https://biblehub.com/greek/1448.htm "Strongs")
+<sup>[6]</sup> ταχύ - adverb - 12 occ [5035] (https://biblehub.com/greek/5035.htm "Strongs")
 at hand ἤγγικεν [1448e] (https://biblehub.com/greek/1448.htm "Strongs")
 
 at hand ἤγγικεν [1448f] (https://biblehub.com/greek/1448.htm "Strongs")
