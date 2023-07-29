@@ -12,7 +12,23 @@
 >The Scriptures abundantly testify to this belief in a *near Advent*, and all of the apostles testify to the same, as e.g. Paul, Rom. 13:11, 12; Phil. 4:5; Heb. 10:25, 36, 37; Tit. 2:13, etc.; James 5:7-9; Peter, 1 Pet. 4:7; John, Apoc. 22:12, 20, etc. The most eminent writers, believers and unbelievers, *candidly acknowledge* this feature, however they may differ in accounting for it.
 >p. 471 Vol. 1 Prop. 74 Obs. 2
 
+Matt. 24:32-33
+Blessed is he who reads and those who hear the words of the prophecy and keep the things which are written in it, for the time is **near**; so, you too, when you see all these things, recognize that He is **near**, right at the door.
 
+Mark 13:29
+Even so, you too, when you see these things happening, recognize that He is **near**, right at the door.
+
+Luke 10:9
+and heal those in it who are sick, and say to them, ‘The kingdom of God has come **near** to you.’
+
+Luke 21:28
+But when these things begin to take place, straighten up and lift up your heads, because your redemption is drawing **near**.”
+
+Luke 21:30
+as soon as they put forth leaves and you see it for yourselves, know that summer is now **near**.
+
+Luke 21:31
+So you also, when you see these things happening, know that the kingdom of God is **near**.
 
 Rom. 13:11-12
 And _do_ this, knowing the time, that it is already the hour for you to awaken from sleep; for now salvation is nearer to us than when we believed. 12 The night is almost gone, and the day is at hand. Therefore let us lay aside the deeds of darkness and put on the armor of light.
@@ -56,11 +72,17 @@ Children, it is the last hour; and just as you heard that antichrist is coming, 
 Rev. 1:1
 The Revelation of Jesus Christ, which God gave Him to show to His slaves the things which must soon happen; and He indicated _this_ by sending _it_ through His angel to His slave John,
 
+Rev. 1:3
+Blessed is he who reads and those who hear the words of the prophecy and keep the things which are written in it, for the time is **near**.
+
 Rev. 2:11
 He who has an ear, let him hear what the Spirit says to the churches. He who overcomes will never be hurt by the second death.’
 
 Rev. 22:7
 Let the one who does unrighteousness, still do unrighteousness; and the one who is filthy, still be filthy; and let the one who is righteous, still do righteousness; and the one who is holy, still keep himself holy.”
+
+Rev. 22:10
+And he said to me, “Do not seal up the words of the prophecy of this book, for the time is **near**.
 
 Rev. 22:12
 12 Behold, I am coming quickly[^rev2212], and My reward _is_ with Me, to render to every man according to his work. 
