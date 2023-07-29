@@ -41,7 +41,7 @@ Rev. 22:12, 20
 20 He who bears witness to these things says, “Yes, I am coming quickly [^4].” Amen. Come[^17], Lord Jesus.
 
 
->The announcements made of a near Advent in such phrases, “*the Lord is at hand*” “*the coming of the Lord draweth nigh*,” etc., has excited the ridicule of infidels as evidence of grave error; has provoked, in some instances, from professed believers reluctant acknowledgments of “mistakes,” and, in other cases, lamely produced apologies derived from the personal status of the Apostles. The *real ground* for the usage of such language has been too much overlooked. A remarkable feature in this contest over the expressions and meaning of the Apostles is the following: unbelievers and believers both refer to the fact that the language is given in *the old Jewish prophetic form*.
+>The announcements[^3] made of a near Advent[^4] in such phrases, “*the Lord is at hand*” “*the coming of the Lord draweth nigh*,” etc., has excited the ridicule of infidels as evidence of grave error; has provoked, in some instances, from professed believers reluctant acknowledgments of “mistakes,” and, in other cases, lamely produced apologies derived from the personal status of the Apostles. The *real ground* for the usage of such language has been too much overlooked. A remarkable feature in this contest over the expressions and meaning of the Apostles is the following: unbelievers and believers both refer to the fact that the language is given in *the old Jewish prophetic form*.
 >p. 475 Vol. 1 Prop. 74 Obs. 5
 
 
@@ -53,6 +53,8 @@ Rev. 22:12, 20
 
 [^4]: at hand ἤγγικεν [1448f] (https://biblehub.com/greek/1448.htm "Strongs")
 [^rev2212]: fn5
+[^3]: Test
+[^4]: Another test
 
 
 
