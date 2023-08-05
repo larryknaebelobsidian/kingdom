@@ -31,6 +31,8 @@ Your kingdom come.
 For we ourselves also forgive everyone who is indebted to us.
 And lead us not into temptation.’”
 
+
+
 >The petition “*Thy Kingdom come*” is a prayer that *one* distinctive Kingdom should come, not two or more; not that one should be within the other, not that one should be a prelude to the other. The disciples only recognized in the petition one Kingdom; the early Church adopted the same belief, and we see no reason for a change of faith, seeing that the covenanted and predicted Messianic Kingdom, as expressed in the plain grammatical sense, is the one evidently denoted.
 >p. 690 Vol. 1 Prop 105 Obs. 2
 
