@@ -4,7 +4,7 @@
 
 Using Obsidian Git plugin for auto backups and commits to github.
 
-Modified ***.git/config*** with 2 lines noted below:
+Modified ***.git/config*** with 2 lines shown below (longpaths and safecrlf):
 This allowed for long file names and to leave the crlf warnings alone so commits would work.
 
 ```
