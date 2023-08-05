@@ -24,3 +24,5 @@ This allowed for long file names and to leave the crlf warnings alone so commits
 	remote = origin
 	merge = refs/heads/main
 ```
+
+This repository is intended to be cloned to a local folder and then opened as a repository folder by the Obsidian application.
