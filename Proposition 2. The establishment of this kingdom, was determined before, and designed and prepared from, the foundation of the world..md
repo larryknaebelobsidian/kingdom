@@ -3,7 +3,9 @@
 > These two phrases are given in Matt. 25:34, Jno. 17:24, Eph. 1:4, Heb. 4:3, 1 Pet. 1:20, Rev. 13:8, in comparison with other passages.
 > p. 34 Vol 1 Prop. 2
 
-***NOTE: Bible verses from LSB***
+NOTE: Scripture quotes from LSB  
+Copyright © 2021 by The Lockman Foundation. All rights reserved.  
+Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
 
 Matt. 25:34
 “Then the King will say to those on His right, ‘Come, you who are blessed of My Father, inherit the kingdom, which has been prepared for you from the foundation of the world.

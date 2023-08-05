@@ -1,5 +1,9 @@
 #toc
 
+NOTE: Scripture quotes from LSB  
+Copyright © 2021 by The Lockman Foundation. All rights reserved.  
+Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
+
 >If it can be shown that the apostles and their converts believed in a speedy Advent, that they looked for it near at hand, as immediate and impending sooner or later, then it follows that the Alexandrian modern view of the Kingdom could not have been entertained by them. They then, of necessity, owing to the shortness of time intervening, must have linked the Kingdom they proclaimed with the Sec. Advent (e.g. 2 Tim. 4:1, etc.).
 > p. 470 Vol. 1 Prop. 74
 

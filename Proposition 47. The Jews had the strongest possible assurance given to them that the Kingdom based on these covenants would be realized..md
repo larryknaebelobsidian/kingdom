@@ -1,5 +1,9 @@
 #toc
 
+NOTE: Scripture quotes from LSB  
+Copyright © 2021 by The Lockman Foundation. All rights reserved.  
+Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
+
 >Attention has already been directed (Prop. 18) to the fact that the prophecies pertaining to this Kingdom shall not, in their ultimate fulfilment, fail, i.e., they are unconditional. The reason for this is that they are evolved from covenants confirmed by oath; and hence, in view of their absolute certainty (no matter how postponed), God has given expression to language which affirms beyond any doubt that this Kingdom, sustaining a covenanted relationship, would at some time in the future be established; and this, too, as covenanted in connection with the national salvation of the Jewish nation. Thus, e.g., read Jer. 31:36-37, and 33:19-26; Isa. 54:9, 10, etc.
 >p. 287 Vol. 1 Prop. 47
 

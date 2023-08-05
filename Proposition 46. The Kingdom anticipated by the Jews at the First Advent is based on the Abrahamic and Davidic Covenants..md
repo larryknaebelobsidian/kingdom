@@ -3,6 +3,10 @@
 [[Davidic Covenant]]
 #toc
 
+NOTE: Scripture quotes from LSB  
+Copyright © 2021 by The Lockman Foundation. All rights reserved.  
+Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
+
 >This might be shown by numerous references, but it will be sufficiently conspicuous by adverting to the declarations found in only one chapter of the New Testament. Thus, e.g., Luke 1:32, 33, 55, 72, 73, where we have undoubted allusions to previously obtained covenants, in “the mercy promised to the fathers,” in “the holy covenant” confirmed by’ oath “to our father Abraham,” and in “the throne of his father David.”
 >p. 285 Vol. 1 Prop. 46
 

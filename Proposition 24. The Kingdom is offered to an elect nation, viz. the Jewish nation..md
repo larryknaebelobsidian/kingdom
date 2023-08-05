@@ -1,7 +1,9 @@
 #toc
 #keyproposition
 
-Scriptures from LSB
+NOTE: Scripture quotes from LSB  
+Copyright © 2021 by The Lockman Foundation. All rights reserved.  
+Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
 
 Deuteronomy 7:6
 6 For you are a holy people to Yahweh your God; Yahweh your God has chosen you to be a people for His own treasured possession out of all the peoples who are on the face of the earth.

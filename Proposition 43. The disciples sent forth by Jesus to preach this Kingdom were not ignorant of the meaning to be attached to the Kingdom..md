@@ -1,5 +1,9 @@
 #toc
 
+NOTE: Scripture quotes from LSB  
+Copyright © 2021 by The Lockman Foundation. All rights reserved.  
+Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
+
 >To say that they were ignorant of that which they were specially to preach is an evident absurdity; and if true (which it is not) would severely reflect upon the Divine Teacher and Commissioner. Their mission necessarily implying *a correct knowledge* of the Kingdom, is confirmatory of Christ’s own preaching, for the preaching, of the Master and of those who are sent to preach *must correspond*.
 >p. 274 Vol. 1 Prop. 43
 

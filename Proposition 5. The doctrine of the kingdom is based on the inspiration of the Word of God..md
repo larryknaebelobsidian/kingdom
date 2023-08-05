@@ -1,6 +1,8 @@
 #toc
 
-***NOTE: Verses from LSB***
+NOTE: Scripture quotes from LSB  
+Copyright © 2021 by The Lockman Foundation. All rights reserved.  
+Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
 
 2 Timothy 3:16, 17
 All Scripture is God-breathed and profitable for teaching, for reproof, for correction, for training in righteousness, 17 so that the man of God may be equipped, having been thoroughly equipped for every good work.
