@@ -104,7 +104,7 @@
 [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.  ]]
 [[Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.   ]]
 [[Proposition 106. Our doctrine of the Kingdom sustained by the temptation of Christ. ]]  
-[[Proposition 107. The passages referring to heaven in connection with the saints do not conflict with our confirm our doctrine of the Kingdom.   ]]
+[[Proposition 107. The passages referring to heaven in connection with the saints do not conflict with, but confirm our doctrine of the Kingdom.]]
 [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.   ]]
 [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.   ]]
 [[Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it.   ]]
