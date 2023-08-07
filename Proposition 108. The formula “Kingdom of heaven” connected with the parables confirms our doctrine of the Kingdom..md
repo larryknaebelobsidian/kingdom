@@ -4,10 +4,16 @@
 
 #### Tares and Wheat 
 Matt. 13:24-30, 37-43
-
+- the Kingdom that the Jews expected is to be introduced as follows; or the Kingdom of heaven that you anticipate requires the following
+- the kingdom comes at the period of the harvest
+- kingdom = the final result, the end
+- at the end of the age
+- use of present tense is for emphasis on certainty
 #### Mustard Seed
 Matt. 13:31, 32
-
+- promised Kingdom is not brought into existence at once; demands time and preparation
+- small beginning, great end
+- kingdom = tree
 #### Leaven
 Matt. 13:33; Luke 13:20-21
 
@@ -19,19 +25,38 @@ Matt. 13:47-50
 
 #### King and his Servants (Unmerciful Servant)
 Matt. 18:23-35
-
+- entrance conditioned on brotherly forgiveness
+- servants render account to the King
+- preparatory qualification is requisite
 #### Laborers in the Vineyard
 Matt. 20:1-16
+- preparatory service is demanded
+- all will receive their just dues
+- kingdom = householder
 
 #### Royal Wedding (Wedding Garment)
 Matt. 22:1-14
+- parties are invited to the wedding
+- preliminary stage is introduced
+- postponement is indicated until a certain gathering is obtained
+- dispensation of grace is to secure the requisite guests
 
 #### Ten Virgins
 Matt. 25:1-13
+- period of separation
+- time of Kingdom = coming of Bridegroom = marriage
+- indefinite postponement
+- preparatory state of preparation
 
 #### Talents
 Matt. 25:14-30
-
+- preliminary, intervening period
+- allotment of specific duties
+- withdrawal into far country
+- after a long time the lord cometh and reckoneth
+- reward is the assignment of rulership in the Kingdom
 #### Ten Pounds
 Luke 19:11-27
+- pertains to the appearance of the Kingdom
+- assigns to the faithful a rulership in His received Kingdom
 
