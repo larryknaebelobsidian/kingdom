@@ -24,10 +24,28 @@
 - kingdom = mature tree (not seed, small bush)
 #### Leaven
 [Matt. 13:33](https://read.lsbible.org/?q=Matt.+13%3A33); [Luke 13:20-21](https://read.lsbible.org/?q=Luke+13%3A20-21)
+- leaven = word of God
+- 3 sata of flour = the complete collection of the saints
+
+>The most important of the parables is that of the Leaven
+>p. 22 Vol. 2 Prop. 108 Obs. 3 
+
+>the parable corresponds with the preceding ones. As in usage the leavening process is only *a preparatory one*, so it is here; the leaven is the Divine Word of the “Kingdom, it leavens a definite measure of meal, i.e. a predetermined number who are to be adopted as the Sons of God. *The gathering out process, and the detention* of the Kingdom until this is accomplished, is thus presented, preserving *the unity* of Scripture. The leavened meal is *initiatory* to the formation of bread, so this Divine Process is *introductory* to the Divine Purpose of establishing the Kingdom. The people and the disciples are taught, that *previous* to the setting up of the Kingdom *a definite number of the elect* must first be obtained, and the manner in which this is done, by gradual appropriation through Divine truth, is also intimated. 
+>p. 23 Vol. 2 Prop. 108 Obs. 3 para. 3 
+
+>the .Apostles who found this secret or mystery in the postponement and consequent call of the Gentiles, as is proven by Eph., 3:4-6; Col. 1:26, 27, etc., thus *fully according* with our interpretation.
+>p. 23 Vol. 2 Prop. 108 Obs. 3 para. 3
 
 #### Treasure and Pearl
 [Matt. 13:44-46](https://read.lsbible.org/?q=Matt.+13%3A44-46)
+- treasure = kingdom
+- pearl = kingdom
 
+>as men exhibit their interest in, and willingness to sacrifice all for, something that is very precious and costly, so we ought to do the same *in behalf* of the Kingdom of God
+>p. 23 Vol. 2 Prop. 108 Obs. 3 para. 4
+
+>It again indicates a *preparatory* stage in the individual and that he can obtain an abiding interest, inheritance, in the Kingdom itself.
+>p. 23 Vol. 2 Prop. 108 Obs. 3 para. 4
 #### Net
 [Matt. 13:47-50](https://read.lsbible.org/?q=Matt.+13%3A47-50)
 
