@@ -15,11 +15,15 @@ Jesus answered, “My kingdom is not of this world. If My kingdom were of this w
 ### Obs. 2
 #### Rom. 14:17
 for the kingdom of God is not eating and drinking, but righteousness and peace and joy in the Holy Spirit.
-
+#### Luke 16:16
+The Law and the Prophets were until John; since that time the good news of the kingdom of God is proclaimed, and everyone is forcing his way into it.
+#### Matt. 11:11-12
+Truly I say to you, among those born of women there has not arisen _anyone_ greater than John the Baptist! Yet the one who is least in the kingdom of heaven is greater than he. 12 And from the days of John the Baptist until now the kingdom of heaven suffers violence, and violent men take it by force.
+#### John 3:3-5
+Jesus answered and said to him, “Truly, truly, I say to you, unless one is born again he cannot see the kingdom of God.” 4 Nicodemus said to Him, “How can a man be born when he is old? Can he enter a second time into his mother’s womb and be born?” 5 Jesus answered, “Truly, truly, I say to you, unless one is born of water and the Spirit he cannot enter into the kingdom of God.
 ### Obs. 3
 #### Col. 1:13
 Who rescued us from the authority of darkness, and transferred us to the kingdom of the Son of His love,
-
 #### Rev. 1:9
 I, John, your brother and fellow partaker in the tribulation and kingdom and perseverance _which are_ in Jesus, was on the island called Patmos because of the word of God and the witness of Jesus.
 
