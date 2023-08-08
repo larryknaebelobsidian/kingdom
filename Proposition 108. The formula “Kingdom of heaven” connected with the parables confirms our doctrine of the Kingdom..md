@@ -24,6 +24,7 @@
 - kingdom = mature tree (not seed, small bush)
 #### Leaven
 [Matt. 13:33](https://read.lsbible.org/?q=Matt.+13%3A33); [Luke 13:20-21](https://read.lsbible.org/?q=Luke+13%3A20-21)
+Peters notes
 - leaven = word of God
 - 3 sata of flour = the complete collection of the saints
 
@@ -38,6 +39,7 @@
 
 #### Treasure and Pearl
 [Matt. 13:44-46](https://read.lsbible.org/?q=Matt.+13%3A44-46)
+Peters notes
 - treasure = kingdom
 - pearl = kingdom
 
@@ -52,12 +54,33 @@
 
 #### Net
 [Matt. 13:47-50](https://read.lsbible.org/?q=Matt.+13%3A47-50)
+- dragnet
+- sea
+- fish
+- beach
+- those who drew the net in
+- gathering
+- throwing away
+
+- at the end of the age
+- those who drew the net in = angels
+	- separated the wicked from the righteous
+	- throw wicked into fiery furnace
+- furnace
+	- weeping and gnashing of teeth
 
 >The parable of the Net, Matt. 13:47-50, resembles that of the Tares and Wheat, and therefore requires no explanation. The design of this dispensation is represented, the postponement indicated in a preparatory gathering which shall continue until the end of the age. The mixed condition until the final separation is a prominent feature. The Kingdom, owing to its rejection by the nation, requires this previous casting of the net and its results.
 >p. 24 Vol. 2 Prop. 108 Obs. 3 para. 5
 
 #### King and his Servants (Unmerciful Servant)
 [Matt. 18:23-35](https://read.lsbible.org/?q=Matt.+18%3A23-35)
+- king
+- slaves
+- unforgiven slave
+- unforgiving slave
+- reporting slaves
+- torturers
+Peters notes
 - entrance **conditioned** on brotherly forgiveness
 - servants must **render account** to the King
 - **preparatory qualification** is requisite
@@ -70,7 +93,7 @@
 - hours - third, sixth, ninth, eleventh
 - foreman - calls laborers and pays
 
-
+Peters notes
 - **preparatory service** is demanded
 - all will receive their **just dues**
 - certain things necessary before entrance given
@@ -80,6 +103,22 @@
 
 #### Royal Wedding (Wedding Garment)
 [Matt. 22:1-14](https://read.lsbible.org/?q=Matt.+22%3A1-14)
+- king
+- wedding feast
+- king's son
+- kings slaves
+- invitation
+	- to those who had been called
+		- paid no attention
+		- mistreatment of slaves
+			- kings judgement on them
+	- to main highway people, both good and bad
+- guest not dressed in wedding clothes
+	- outer darkness
+		- weeping and gnashing of teeth
+- many called, few chosen
+
+Peters notes
 - parties are invited to the wedding
 - preliminary stage is introduced
 - postponement is indicated until a certain gathering is obtained
