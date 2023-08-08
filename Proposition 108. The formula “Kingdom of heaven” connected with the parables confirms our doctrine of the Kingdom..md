@@ -46,19 +46,37 @@
 
 >It again indicates a *preparatory* stage in the individual and that he can obtain an abiding interest, inheritance, in the Kingdom itself.
 >p. 23 Vol. 2 Prop. 108 Obs. 3 para. 4
+
+>Faith seizes upon the treasure God offers, and is willing to surrender all to obtain the abiding hope which it inspires, and its ultimate enjoyment.
+>p. 24 Vol. 2 Prop. 108 Obs. 3 para. 4
+
 #### Net
 [Matt. 13:47-50](https://read.lsbible.org/?q=Matt.+13%3A47-50)
 
+>The parable of the Net, Matt. 13:47-50, resembles that of the Tares and Wheat, and therefore requires no explanation. The design of this dispensation is represented, the postponement indicated in a preparatory gathering which shall continue until the end of the age. The mixed condition until the final separation is a prominent feature. The Kingdom, owing to its rejection by the nation, requires this previous casting of the net and its results.
+>p. 24 Vol. 2 Prop. 108 Obs. 3 para. 5
+
 #### King and his Servants (Unmerciful Servant)
 [Matt. 18:23-35](https://read.lsbible.org/?q=Matt.+18%3A23-35)
-- entrance conditioned on brotherly forgiveness
-- servants render account to the King
-- preparatory qualification is requisite
+- entrance **conditioned** on brotherly forgiveness
+- servants must **render account** to the King
+- **preparatory qualification** is requisite
+
 #### Laborers in the Vineyard
 [Matt. 20:1-16](https://read.lsbible.org/?q=Matt.+20%3A1-16)
-- preparatory service is demanded
-- all will receive their just dues
-- kingdom = householder
+- landowner/owner of the vineyard
+- laborers
+- vineyard
+- hours - third, sixth, ninth, eleventh
+- foreman - calls laborers and pays
+
+
+- **preparatory service** is demanded
+- all will receive their **just dues**
+- certain things necessary before entrance given
+- landowner follows **certain course of action**
+- landowner will **eventually influence** the judge
+- kingdom = householder/landowner (per Peters)
 
 #### Royal Wedding (Wedding Garment)
 [Matt. 22:1-14](https://read.lsbible.org/?q=Matt.+22%3A1-14)
