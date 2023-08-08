@@ -19,6 +19,13 @@
 - reapers = angels
 #### Mustard Seed
 [Matt. 13:31, 32](https://read.lsbible.org/?q=Matt.+13%3A31-32)
+- mustard seed
+- man 
+- field
+- fully grown becomes a tree
+	- birds of air can nest in it
+	
+Peters notes
 - promised Kingdom is not brought into existence at once; demands time and preparation
 - small beginning, great end
 - kingdom = mature tree (not seed, small bush)
@@ -52,6 +59,8 @@ Peters notes
 >Faith seizes upon the treasure God offers, and is willing to surrender all to obtain the abiding hope which it inspires, and its ultimate enjoyment.
 >p. 24 Vol. 2 Prop. 108 Obs. 3 para. 4
 
+>We prefer the common view, making it equivalent to take up the cross, denying ourselves, forsaking all for Christ.
+>p. 28 Vol. 2 Prop. 108 Obs. 3 para. 4 note
 #### Net
 [Matt. 13:47-50](https://read.lsbible.org/?q=Matt.+13%3A47-50)
 - dragnet
@@ -62,6 +71,7 @@ Peters notes
 - gathering
 - throwing away
 
+Peters notes
 - at the end of the age
 - those who drew the net in = angels
 	- separated the wicked from the righteous
@@ -80,6 +90,7 @@ Peters notes
 - unforgiving slave
 - reporting slaves
 - torturers
+
 Peters notes
 - entrance **conditioned** on brotherly forgiveness
 - servants must **render account** to the King
@@ -126,6 +137,22 @@ Peters notes
 
 #### Ten Virgins
 [Matt. 25:1-13](https://read.lsbible.org/?q=Matt.+25%3A1-13)
+- ten virgins
+	- 5 foolish
+		- took oil with them
+	- 5 prudent
+		- took oil with them
+- bridegroom
+- drowsy/sleep
+- midnight
+- shout
+- the meeting of the bridegroom
+- 5 foolish virgins went to buy oil
+- door shut
+- bridegroom responds, "I do not know you"
+- stay away
+
+Peters note
 - period of separation
 - time of Kingdom = coming of Bridegroom = marriage
 - indefinite postponement
@@ -133,6 +160,18 @@ Peters notes
 
 #### Talents
 [Matt. 25:14-30](https://read.lsbible.org/?q=Matt.+25%3A14-30)
+- slaveowner
+- 3 slaves
+- talents given according to ability
+- journey
+- actions of the slaves
+- slaveowner returns 
+	- after a long time
+- rewards and judgement
+- outer darkness
+	- weeping and gnashing of teeth
+
+Peters notes
 - preliminary, intervening period
 - allotment of specific duties
 - withdrawal into far country
@@ -140,6 +179,18 @@ Peters notes
 - reward is the assignment of rulership in the Kingdom
 #### Ten Pounds
 [Luke 19:11-27](https://read.lsbible.org/?q=Luke+19%3A11-27)
+- nobleman
+	- went to a distant country to receive a kingdom for himself and then return
+- 10 slaves, each given 10 minas to engage in business until nobleman returns
+- citizens
+	- hated the nobleman
+- the return (after receiving the kingdom)
+	- reward
+	- loss
+- bystanders
+- command to slay the nobleman's enemies
+
+Peters notes
 - pertains to the appearance of the Kingdom
 - assigns to the faithful a rulership in His received Kingdom
 
