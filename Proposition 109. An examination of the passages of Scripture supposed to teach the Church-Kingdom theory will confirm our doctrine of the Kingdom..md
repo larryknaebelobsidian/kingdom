@@ -22,6 +22,16 @@ Truly I say to you, among those born of women there has not arisen _anyone_ grea
 #### John 3:3-5
 Jesus answered and said to him, “Truly, truly, I say to you, unless one is born again he cannot see the kingdom of God.” 4 Nicodemus said to Him, “How can a man be born when he is old? Can he enter a second time into his mother’s womb and be born?” 5 Jesus answered, “Truly, truly, I say to you, unless one is born of water and the Spirit he cannot enter into the kingdom of God.
 ### Obs. 3
+
+>It is supposed that the most direct Scripture in support of the Church-Kingdom theory is found in Col. 1:13, “Who hath delivered us from the power of darkness and hath translated us into the Kingdom of His dear Son.” This undoubtedly is the strongest proof text that can be presented in favor of the prevailing view.
+>p. 35 Vol. 2 Prop 109 Obs. 3
+
+>easily reconcilable with the principle that future blessings are spoken of as present, as exemplified in Heb. 12:22, 23, etc. (comp. Prop. 65, Obs. 9).
+>p. 35 Vol. 2 Prop 109 Obs. 3
+
+
+
+
 #### Col. 1:13
 Who rescued us from the authority of darkness, and transferred us to the kingdom of the Son of His love,
 #### Rev. 1:9
