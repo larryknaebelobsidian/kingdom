@@ -12,5 +12,35 @@ Jesus answered, “My kingdom is not of this world. If My kingdom were of this w
 >p. 32-33 Vol. 2 Prop 109 Obs. 1
 
 
+### Obs. 2
+#### Rom. 14:17
+for the kingdom of God is not eating and drinking, but righteousness and peace and joy in the Holy Spirit.
+
+### Obs. 3
+#### Col. 1:13
+Who rescued us from the authority of darkness, and transferred us to the kingdom of the Son of His love,
+
+#### Rev. 1:9
+I, John, your brother and fellow partaker in the tribulation and kingdom and perseverance _which are_ in Jesus, was on the island called Patmos because of the word of God and the witness of Jesus.
+
+### Obs. 4
+#### 1 Cor. 4:20
+For the kingdom of God does not consist in words but in power.
+#### Luke 22:29-30
+and I grant you a kingdom, just as My Father granted _one_ to Me, 30 that you may eat and drink at My table in My kingdom, and you will sit on thrones judging the twelve tribes of Israel.
+#### Matt. 26:29
+But I say to you, I will not drink of this fruit of the vine from now on until that day when I drink it new with you in My Father’s kingdom.
+#### Mark 14:25
+Truly I say to you, I will never again drink of the fruit of the vine until that day when I drink it new in the kingdom of God.
+#### Matt. 6:9-13
+“Pray, then, in this way:
+‘Our Father who is in heaven,
+Hallowed be Your name.
+10 Your kingdom come.
+Your will be done,
+On earth as it is in heaven.
+11 Give us this day our daily bread.
+12 And forgive us our debts, as we also have forgiven our debtors.
+13 And do not lead us into temptation, but deliver us from the evil one. [For Yours is the kingdom and the power and the glory forever. Amen.’]
 
 
