@@ -21,7 +21,7 @@
 [Matt. 13:31, 32](https://read.lsbible.org/?q=Matt.+13%3A31-32)
 - promised Kingdom is not brought into existence at once; demands time and preparation
 - small beginning, great end
-- kingdom = tree
+- kingdom = mature tree (not seed, small bush)
 #### Leaven
 [Matt. 13:33](https://read.lsbible.org/?q=Matt.+13%3A33); [Luke 13:20-21](https://read.lsbible.org/?q=Luke+13%3A20-21)
 
