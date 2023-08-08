@@ -29,14 +29,15 @@ Jesus answered and said to him, “Truly, truly, I say to you, unless one is bor
 >easily reconcilable with the principle that future blessings are spoken of as present, as exemplified in Heb. 12:22, 23, etc. (comp. Prop. 65, Obs. 9).
 >p. 35 Vol. 2 Prop 109 Obs. 3
 
-
-
+>together.” Commentators (as e.g. Bloomfield, loci) frankly admit this explanation and think that reference is made to the hope of the Kingdom expressed in verse 6.
+>p. 36 Vol. 2 Prop 109 Obs. 3
 
 #### Col. 1:13
 Who rescued us from the authority of darkness, and transferred us to the kingdom of the Son of His love,
 #### Rev. 1:9
 I, John, your brother and fellow partaker in the tribulation and kingdom and perseverance _which are_ in Jesus, was on the island called Patmos because of the word of God and the witness of Jesus.
-
+#### Acts 14:22
+strengthening the souls of the disciples, encouraging them to continue in the faith, and _saying_, “Through many afflictions we must enter the kingdom of God.”
 ### Obs. 4
 #### 1 Cor. 4:20
 For the kingdom of God does not consist in words but in power.
