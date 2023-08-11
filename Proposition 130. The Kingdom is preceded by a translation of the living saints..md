@@ -1,5 +1,11 @@
 #toc
 
+PERSONAL NOTE: This topic requires much prayer and study. 
+
+Mar. 2023, I find several details of this proposition foreign to me.  Marking them in the book with ?. - p. 314
+
+My current view, before reading Peters, is that Peters' "translation" equals the Bible word "rapture" and only applies to living saints.  I currently believe there to be one gathering event (2 Thess. 2:1) of believers at the Second Coming of Christ; the dead believers are raised first and then the living believers are raptured, and together they meet the Lord in the clouds. This happens when "the Lord Himself will descend from heaven with a shout, with the voice of the archangel and with the trumpet of God" (1 Thess. 4:16) 
+
 ### Obs. 1 
 > Resurrection of the saints will be private as Christ's resurrection was (only to believers) in order that the preparatory events for the coming judgment of the world may be introduced in such a manner (privately) as to establish "the snare" and "the net" intended for the unbelieving and wicked (p. 315 Vol 2)
 
@@ -42,7 +48,7 @@ eagles/vultures - saints
 body - followers of the antichrist
 
 ### Obs. 4
-***Once class of believers kept from the great tribulation and another class goes into it.***
+***One class of believers kept from the great tribulation and another class goes into it.***
 
 Rev 7 - 144,000 - note: Peters says this 144,000 is a different group than the 144,000 of chapter 14
 
