@@ -1,11 +1,11 @@
 #toc
 
 ### Obs. 1 
-> Resurrection of the saints will be private as Christ's resurrection was (only to believers) in order that the preparatory events for th ecoming judgment of the world may be introduced in such a manner (privately) as to establish "the snare" and "the net" intended for the unbelieving and wicked (p. 315 Vol 2)
+> Resurrection of the saints will be private as Christ's resurrection was (only to believers) in order that the preparatory events for the coming judgment of the world may be introduced in such a manner (privately) as to establish "the snare" and "the net" intended for the unbelieving and wicked (p. 315 Vol 2)
 
 > "Saints in Rev. 20:4-6 was specifically that of those who passed through the great tribulation under the culminated Antichrist, and was preceded by that of others, as implied in Rev. 14:1-4, etc" (p. 315 Vol 2)
 
-> " The word "first" applied to the resurrection has reference not to its being first in time (which would be incorrect, seeing that Christ's res. and that of saints, Matt. 27:52,53, preceded), but of its being a resurrection whish also brings those who participated in it within the privileges of "the first-born", viz., a double portion, Deut. 21:17;  priesthood, Num. 3:13; and government or dominion, Gen. 27:29. The subject of the resurrection, for a long time, was not clear to the writer until he observed the real scriptural application of the word "first, " as just given." (p. 315 Vol 2)
+> " The word "first" applied to the resurrection has reference not to its being first in time (which would be incorrect, seeing that Christ's res. and that of saints, Matt. 27:52,53, preceded), but of its being a resurrection which also brings those who participated in it within the privileges of "the first-born", viz., a double portion, Deut. 21:17;  priesthood, Num. 3:13; and government or dominion, Gen. 27:29. The subject of the resurrection, for a long time, was not clear to the writer until he observed the real scriptural application of the word "first, " as just given." (p. 315 Vol 2)
 
 > "prophetical writers are also agreed that what is called the Sec. Advent (the Advent itself as distinguished from the reign and Kingdom that follows) is not to be regarded as simple one act, but embracing a series of acts connected with the one Coming (for when Jesus comes again He remains upon earth).  That is, the Sec. Advent is to be considered more in the light of the First Advent (which latter embraced not less than thirty-three years, and numerous acts predicted as related to His coming), as something which, owing to a variety of things prophesied concerning it, cannot possibly be limited to a few years." (p. 315 Vol 2)
 
@@ -14,6 +14,9 @@
 > "This, then, impresses caution in not compressing what is intimated concerning the translation or removal of saints necessarily to one transaction or day" (p. 315 Vol 2)
 
 > "writers now generally attribute to this introductory manifestation a period of seven years, or forty years, and of (thirty and forty conjoined) seventy years. (Considering the events to follow the Advent before the overthrow of Antichrist, such as the development of the confederation, the return of a portion of the Jews to Palestine, the doom of the harlot, etc., the longer periods are preferable)" (p. 315 Vol 2)
+
+### 7, 40, 70 years
+
 
 > "It is universally admitted by Millenarians that "the day of the Lord Jesus" is preceded not only by "a morning", but that it virtually begins in "the night"; Christ representing His Coming to be when it is yet "night", He being "the morning star", which ushers in "the morning" of the glorious day." (p. 316 Vol 2)
 
