@@ -1,3 +1,9 @@
+Peters, George N. H. 1952. _The Theocratic Kingdom_. Grand Rapids, MI: Kregel Publications.
+
+ISBN 0-8254-3540-4
+
+Also used Kindle version (which does not contain any notes) ASIN: **B00O6DZKP2**
+
 [[Proposition 1. The kingdom of God is a subject of vital importance. ]]  
 [[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.]]   
 [[Proposition 3. The meanings usually given to this kingdom indicate that the most vague, indefinite notions exist concerning it. ]]  
