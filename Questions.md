@@ -8,6 +8,8 @@ Is Peters' "translation" the same as the rapture?
 
 Is there more than one rapture ("translation" of living saints - this is the word used by Peters)? If so, how many?
 
+Who gets translated and when? (this seems to be related to rewards for the faithful)
+
 
 
 
