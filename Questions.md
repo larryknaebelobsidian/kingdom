@@ -1,6 +1,11 @@
+## Nations
 Who comprise the "nations" in the 1000 years?
 
 Who comprise the "nations" in the eternal state?
+
+## Translation / Resurrection
+
+What is the relationship between resurrection and translation?
 
 Are there more than two resurrections? If so, how many?
 
