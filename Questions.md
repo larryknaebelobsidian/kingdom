@@ -15,6 +15,8 @@ Is there more than one rapture per Peters ("translation" of living saints - this
 
 Who gets translated and when? (this seems to be related to rewards ([[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers,.|Prop. 135]]) for the faithful) 
 
+Prop. 149 - Peters says the conflageration comes BEFORE the millenium.  How does this agree with Revelation 21 (AFTER) Revelation 20?
+
 
 
 
