@@ -20,6 +20,13 @@ Obs. 4 should be studied in its entirety
 >By comparing Rev. chs. 21 and 22 with the Millennial prophecies, as e.g. Isa. chs. 60 and 54, keeping in view the connection of the latter with the Advent and the marriage, we are at no loss to see why, under the teaching of inspired men, the Early Church so universally held that all these prophecies portrayed *a new Jerusalem state here on the earth in the Millennial age*.
 >p. 527 Vol. 2 Prop. 151 Obs. 3
 
+>Admitting as we cheerfully do, that the work of God is progressive as it relates to the race and the earth during these thousand years, yet the new heaven and new earth begin with that era, and with it also the New Jerusalem state.
+>p. 529-530 Vol. 2 Prop. 151 Obs. 3 note 4
+
+>Let the reader compare e.g. John 14:1-3, fulfilled when Jesus comes again, with 1 Pet. 1:4,5,7,13 realized at the same time, and he must be impressed that the mansions and the inheritance then obtained are eternal, ever-enduring, and not to be superseded by their removal and the substitution of others. But we conclusively show that those mansions and that inheritance are gained at a Pre-Millennial Advent, and hence we insist upon their perpetuity. (Comp. also Prop. 170 on the Father's House.)
+>p. 530 Vol. 2 Prop. 151 Obs. 3 note 5
+
+
 
 
 
