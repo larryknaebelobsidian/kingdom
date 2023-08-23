@@ -15,4 +15,6 @@
 >Briefly, it would be interesting to trace in what manner this early doctrine, once so prevalent—that the Jewish nation and Gentiles in the flesh *would survive* the Advent, and the fearful judgments then poured out upon the nations, and would form the subjects of that world-wide dominion under Christ and His resurrected brethren—was gradually undermined and finally almost rooted out.
 >p. 539 Vol. 2 Prop. 152 Obs. 4
 
+>no one has ever yet found a passage within the Bible that directly teaches that the multiplication of the race ceases after the Advent of Christ;
 
+Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 
