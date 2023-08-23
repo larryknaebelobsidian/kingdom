@@ -9,3 +9,10 @@
 >such a posture accords best with the ideas of the primitive church on the subject.
 >p. 538 Vol. 2 Prop. 152 Obs. 2
 
+>Irenaeus and Lactantius, . . . at the time of the first resurrection there will be found some good men living upon the earth, and that of them, in the space of a thousand years, shall be born a numerous race, a godly seed, over whom likewise the raised saints are to reign, and by whom they are to be served.
+>p. 539 Vol. 2 Prop. 152 Obs. 3
+
+>Briefly, it would be interesting to trace in what manner this early doctrine, once so prevalent—that the Jewish nation and Gentiles in the flesh *would survive* the Advent, and the fearful judgments then poured out upon the nations, and would form the subjects of that world-wide dominion under Christ and His resurrected brethren—was gradually undermined and finally almost rooted out.
+>p. 539 Vol. 2 Prop. 152 Obs. 4
+
+
