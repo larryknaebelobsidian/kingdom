@@ -27,7 +27,7 @@ Prop. 149 - Peters says the conflageration comes BEFORE the millenium.  How does
 ```dataview
 TABLE
 FROM #toc
-SORT pagecount DESC
+SORT pagecount DESC, observationcount DESC
 ```
 
 
