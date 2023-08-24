@@ -1,5 +1,4 @@
 ---
-tags: toc
 pagecount: 20
 observationcount: 6
 ---
@@ -25,7 +24,7 @@ Prop. 149 - Peters says the conflageration comes BEFORE the millenium.  How does
 
 
 ```dataview
-TABLE
+TABLE pagecount, observationcount
 FROM #toc
 SORT pagecount DESC, observationcount DESC
 ```
