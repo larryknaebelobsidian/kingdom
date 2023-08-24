@@ -1,3 +1,7 @@
+---
+pagecount: 12
+observationcount: 6
+---
 #toc
 
 > One of the distinguishing results of the Reformation was "the resurrection of the Bible," making it, as in the Apostolic era, the object of constant citation and appeal.

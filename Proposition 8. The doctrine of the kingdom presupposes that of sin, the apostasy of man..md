@@ -1,3 +1,7 @@
+---
+pagecount: 8
+observationcount: 6
+---
 #toc
 
 > The prophets with one voice proclaim, that this kingdom is to be established in order that in it man may find complete, perfect deliverance from sin and evil.  The kingdom is to be set up, so that man and nature may be happily rescued from the curse entailed by sin under which both labor and groan.
