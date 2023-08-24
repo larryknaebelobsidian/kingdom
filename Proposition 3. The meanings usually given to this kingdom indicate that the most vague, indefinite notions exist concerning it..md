@@ -1,3 +1,7 @@
+---
+pagecount: 8
+observationcount: 14
+---
 #toc
 
 > For many centuries, under the interpretation given by men who have, probably unconsciously, largely imbibed the spirit of the Alexandrian school, the kingdom has been made to mean a variety of things at the option of the writer.

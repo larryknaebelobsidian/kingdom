@@ -1,5 +1,7 @@
 ---
 tags: toc
+pagecount: 20
+observationcount: 6
 ---
 ## Nations
 Who comprise the "nations" in the 1000 years?
@@ -23,8 +25,9 @@ Prop. 149 - Peters says the conflageration comes BEFORE the millenium.  How does
 
 
 ```dataview
-LIST
+TABLE
 FROM #toc
+SORT pagecount DESC
 ```
 
 

@@ -1,3 +1,7 @@
+---
+pagecount: 5
+observationcount: 14
+---
 #toc
 
 > These two phrases are given in Matt. 25:34, Jno. 17:24, Eph. 1:4, Heb. 4:3, 1 Pet. 1:20, Rev. 13:8, in comparison with other passages.
