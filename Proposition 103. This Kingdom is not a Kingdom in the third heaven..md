@@ -1,3 +1,7 @@
+---
+pagecount: 3
+observationcount: 4
+---
 #toc
 
 >The Kingdom is not, as held by some, e.g. Dr. Lange and others, the church in heaven before the Second Advent in a triumphant state called “the Kingdom of glory.” This theory is derived from mistaking the Divine Sovereignty for *the specially promised Kingdom to the Son of man*, and probably from a desire to cover up what defects may exist in several lower grades or phases of Kingdoms simultaneously in operation. But this is *exceedingly unscriptural*; and the theory can be traced directly to the Origenistic interpretation.

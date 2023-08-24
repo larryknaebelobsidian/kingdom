@@ -1,3 +1,7 @@
+---
+pagecount: 3
+observationcount: 5
+---
 #toc
 
 >In the first centuries Millenarianism was prevalent and generally held, Props. 72-76. It was entertained *in the form* that we now advocate, and, in the very nature of the case, *could not* receive the opinion stated in the Proposition. The Fathers all looked and longed for a speedy appearance of the Kingdom under the personal reign of Jesus. The opposers of Chiliasm in the third century first gave a different interpretation to the church, by which it was transformed into the Kingdom of Christ.

@@ -1,3 +1,7 @@
+---
+pagecount: 11
+observationcount: 8
+---
 #toc
 
 >Three cautions are in place here: 

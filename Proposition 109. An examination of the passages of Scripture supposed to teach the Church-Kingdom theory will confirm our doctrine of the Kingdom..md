@@ -1,3 +1,7 @@
+---
+pagecount: 7
+observationcount: 4
+---
 #toc
 
 Scripture from the LSB
