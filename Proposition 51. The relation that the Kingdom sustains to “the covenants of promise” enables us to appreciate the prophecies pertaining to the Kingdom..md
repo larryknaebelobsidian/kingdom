@@ -1,3 +1,7 @@
+---
+pagecount: 5
+observationcount: 9
+---
 #toc
 
 >One reason why so many Messianic predictions in the Old Test., especially in the Psalms, are explained away as relating to David, Solomon, Hezekiah, etc., arises from the fact that the prophecies do not agree with the writers’ preconceived notions of the covenants and of a spiritual Kingdom. The *covenanted foundation* of the predictions is overlooked or perverted, and, of course, the superstructure is correspondingly untenable. Thus valuable Scripture is given up to unbelief. Even pious and able writers, who recognize such passages as Messianic, under the influence of the idea formed of the covenants and Kingdom, will call the very words given (as they admit) by God “very one-sided” (as e.g. Kurtz, *His. Old Cov.* vol. 3, p. 438, on Balaam’s prophecy), because they seem to them too earthly or too Jewish, forgetting that the Theocracy proclaimed pertains both to this earth and to the Jewish nation.

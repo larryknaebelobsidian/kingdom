@@ -1,3 +1,7 @@
+---
+pagecount: 17
+observationcount: 24
+---
 [[Abrahamic Covenant]]
 #toc 
 

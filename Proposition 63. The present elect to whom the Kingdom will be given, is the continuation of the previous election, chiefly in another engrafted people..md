@@ -1,3 +1,7 @@
+---
+pagecount: 4
+observationcount: 7
+---
 #toc
 
 >This follows from what has preceded, and is thus thrown into a Proposition to impress it upon the mind. The previous, and the present, election *is founded on the promises and oath* to Abraham.

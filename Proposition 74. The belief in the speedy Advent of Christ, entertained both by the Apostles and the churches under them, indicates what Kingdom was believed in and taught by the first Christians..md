@@ -1,3 +1,7 @@
+---
+pagecount: 10
+observationcount: 10
+---
 #toc
 
 NOTE: Scripture quotes from LSB  

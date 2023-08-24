@@ -1,3 +1,7 @@
+---
+pagecount: 7
+observationcount: 15
+---
 #toc
 
 >The Kingdom thus given to these elect ones does *not remove the election* of the Jewish nation as a nation. This, aside from the covenants and the Theocratic ordering allied with the nation, is seen from the fact, that this seed gathered out is virtually regarded as part and parcel of the nation (is a continuation of the election, Prop. 63), and when the nation is nationally restored will be so recognized *in the inheriting with* Abraham, Isaac, and Jacob. Again, let any one compare Deut. ch. 32, Rom. ch. 11, together with various predictions relating to this elect Jewish nation, and he will find the following succinctly stated: 

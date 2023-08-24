@@ -1,4 +1,7 @@
-
+---
+pagecount: 2
+observationcount: 4
+---
 [[Abrahamic Covenant]]
 [[Davidic Covenant]]
 #toc

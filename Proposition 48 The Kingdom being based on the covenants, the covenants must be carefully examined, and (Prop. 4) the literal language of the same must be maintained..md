@@ -1,3 +1,7 @@
+---
+pagecount: 3
+observationcount: 4
+---
 #toc
 
 >The appointment, arrangement, disposition, or institution of a covenant relation, in whatever (as voluntary, a contract, etc.) light it may be regarded, presupposes two parties; the one who promises or imparts, and the other who will receive or attains. In all earthly transactions, when a promise, agreement, or contract is entered into by which one party gives a promise of value to another, it is *universally* the custom to explain such a relationship and its promises *by the well-known laws of language* contained in our grammars or in common usage. It would be regarded absurd and trifling to view them in any other light. (Comp. Prop. 4.)

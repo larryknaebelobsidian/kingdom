@@ -1,3 +1,7 @@
+---
+pagecount: 4
+observationcount: 9
+---
 #toc
 
 >That the Kingdom *was nigh* to the nation is distinctly stated, Matt. 4:17, Mark 1:14, 15, Luke 11:20, Matt. 12:28. The covenanted Theocratic Kingdom was overthrown; at the appearance of the promised Davidic son, who should inherit the Kingdom, it was *absolutely requisite*, in view of the *covenanted relationship* of the nation to this Kingdom, to offer it to the Jews for their acceptance. This *was done* by John, Jesus, and the disciples.

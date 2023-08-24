@@ -1,3 +1,7 @@
+---
+pagecount: 4
+observationcount: 8
+---
 #toc
 
 >This is distinctly stated, “a nation,” Matt. 21:43. It necessarily follows from our Scriptural propositions, and corroborates them. It is a logical sequence from the premises laid down. For, so long as one nation is chosen from among all others (Prop. 24), and the Kingdom is covenanted by oath to that nation (Prop. 49), it is impossible for other nations, in their national capacity, to be thus elected. It would be a violating of the most solemnly given covenants and assurances.

@@ -1,3 +1,7 @@
+---
+pagecount: 27
+observationcount: 34
+---
 #toc
 #keyproposition 
 [[Abrahamic Covenant]]
