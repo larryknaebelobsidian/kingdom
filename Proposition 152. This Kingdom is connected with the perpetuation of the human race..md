@@ -1,3 +1,7 @@
+---
+pagecount: 19
+observationcount: 8
+---
 #toc
 
 >Able writers (as D. N. Lord, Rev. Newton, etc.), contend for an eternal, everlasting perpetuation of the race, perpetual and strictly never-ending, and rely exclusively upon the words rendered “eternal,” “perpetual,” “forever,” etc. The argument thus presented looks plausible and weighty; sufficiently so, that while not fully accepting of it, we at the same time do not deny it.

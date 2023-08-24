@@ -1,3 +1,7 @@
+---
+pagecount: 12
+observationcount: 7
+---
 #toc
 
 >Acts 3:19-21 (LSB)

@@ -1,3 +1,7 @@
+---
+pagecount: 13
+observationcount: 8
+---
 #toc
 
 >Augustine aided largely in overthrowing and darkening the early Church view of the Kingdom,

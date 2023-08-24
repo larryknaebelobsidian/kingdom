@@ -1,3 +1,7 @@
+---
+pagecount: 9
+observationcount: 8
+---
 #toc
 
 >We are free to admit, that if our system *necessarily* involves such a restoration of sacrifice it would indeed form a grave objection against our view in the light of Galatians and Hebrews. The argumentation of its advocates that such sacrifices are merely “commemorative,” “retrospective,” etc., do not help the matter very much, so that while the objection is not sufficiently strong in itself to set-aside all the other truths pertaining to this subject, yet it is ample enough to cause hesitation and doubt in the minds of many.

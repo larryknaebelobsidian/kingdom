@@ -1,3 +1,7 @@
+---
+pagecount: 10
+observationcount: 9
+---
 #toc
 
 >. . . the Scripture statements clearly and unmistakably teach a *detention* of the saints from the promised inheritance and reward.
