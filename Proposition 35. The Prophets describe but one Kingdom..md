@@ -1,3 +1,7 @@
+---
+pagecount: 3
+observationcount: 6
+---
 #toc
 
 > . . . there is no writer, within our knowledge, who has ventured to suggest that *two* Kingdoms are denoted.

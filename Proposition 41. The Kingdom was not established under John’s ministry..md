@@ -1,3 +1,7 @@
+---
+pagecount: 4
+observationcount: 7
+---
 #toc
 
 >It could not be, because *no restored Theocracy*, such as the prophets predicted, the covenant demanded, and he preached, followed. This is seen by *the failure* of John’s mission, which was designed to prepare, if possible, consistently with moral freedom, the nation for the Kingdom. 

@@ -1,3 +1,7 @@
+---
+pagecount: 2
+observationcount: 7
+---
 #toc
 
 >This needs no special proof, for the fact is satisfactorily evidenced that, although the prophets announced it and Jesus declared it, the apostles even aid not understand *how* it could consistently (in view of our preceding Propositions) be done, until the principle and order under which it could be accomplished were revealed to Peter (Acts 10 and 11), and acknowledged in a council (Acts 15). Hence it is called a mystery revealed (Eph. 3).
