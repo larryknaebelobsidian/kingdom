@@ -1,3 +1,7 @@
+---
+pagecount: 26
+observationcount: 15
+---
 #toc
 
 PERSONAL NOTE: This topic requires much prayer and study. 

@@ -1,3 +1,7 @@
+---
+pagecount: 10
+observationcount: 7
+---
 #toc
 Scripture from LSB
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
