@@ -1,3 +1,9 @@
+---
+tags: toc
+terms:
+  - beta
+---
+
 Events are not listed in any order except showing their position **before** or **after** the ***theocratic-kingdom is established***
 
 >Restoration of Jewish nation prop. 111

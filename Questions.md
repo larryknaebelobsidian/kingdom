@@ -1,8 +1,13 @@
 ---
-
+tags: toc
+terms:
+  - alpha
+  - romeo
+  - xylo
 ---
 [[Proposition 205. The doctrine of the Kingdom materially aids its in preaching “the Christ”— the distinctive “Messiah.”|Prop 205]]
 [[Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.|Prop 206]]
+
 
 ## Nations
 Who comprise the "nations" in the 1000 years?
@@ -31,5 +36,12 @@ FROM #toc
 SORT pagecount DESC, observationcount DESC
 ```
 
+WHERE terms = (["alpha"])
 
 
+```dataview
+TABLE terms
+FROM #toc 
+
+SORT terms DESC
+```
