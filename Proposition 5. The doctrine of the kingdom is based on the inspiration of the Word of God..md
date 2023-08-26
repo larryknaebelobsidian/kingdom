@@ -3,6 +3,8 @@ pagecount: 12
 observationcount: 5
 ---
 #toc
+## Props Mentioned
+[[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.|2]] 
 
 NOTE: Scripture quotes from LSB  
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
