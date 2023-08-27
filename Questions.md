@@ -1,10 +1,4 @@
 ---
-tags: extra
-subjects:
-  - alpha1
-  - romeo
-  - xylo
-  - beta
 ---
 [[Proposition 205. The doctrine of the Kingdom materially aids its in preaching “the Christ”— the distinctive “Messiah.”|Prop 205]]
 [[Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.|Prop 206]]
@@ -31,18 +25,5 @@ Prop. 149 - Peters says the conflagration comes BEFORE the millennium.  How does
 
 
 
-`````dataview
-TABLE pagecount, observationcount
-FROM #toc
-SORT pagecount DESC, observationcount DESC
-`````
 
-## Index of Subjects
 
-`````dataview
-TABLE WITHOUT ID Subject, file.link AS Location
-FROM #toc
-WHERE subjects != null
-FLATTEN subjects AS Subject
-SORT Subject ASC, file.link ASC
-`````
