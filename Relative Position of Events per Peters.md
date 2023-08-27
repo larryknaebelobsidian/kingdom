@@ -1,7 +1,9 @@
 ---
-tags: toc
+tags: example
 terms:
   - beta
+  - xylo
+  - special
 ---
 
 Events are not listed in any order except showing their position **before** or **after** the ***theocratic-kingdom is established***

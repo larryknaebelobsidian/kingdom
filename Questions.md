@@ -1,9 +1,10 @@
 ---
-tags: toc
+tags: example
 terms:
-  - alpha
+  - alpha1
   - romeo
   - xylo
+  - beta
 ---
 [[Proposition 205. The doctrine of the Kingdom materially aids its in preaching “the Christ”— the distinctive “Messiah.”|Prop 205]]
 [[Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.|Prop 206]]
@@ -30,18 +31,22 @@ Prop. 149 - Peters says the conflagration comes BEFORE the millennium.  How does
 
 
 
-```dataview
+`````dataview
 TABLE pagecount, observationcount
 FROM #toc
 SORT pagecount DESC, observationcount DESC
-```
+`````
 
 WHERE terms = (["alpha"])
 
-
 ```dataview
-TABLE terms
-FROM #toc 
-
-SORT terms DESC
+TABLE min(rows.terms) AS term, length(rows.terms) AS count
+FROM #example 
 ```
+
+`````dataview
+TABLE terms
+FROM #example
+SORT terms DESC
+FLATTEN terms
+`````
