@@ -188,7 +188,7 @@ Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 201
 [[Proposition 174.—This Kingdom of the Messiah is preceded by signs.  ]] 
 [[Proposition 175. The doctrine of the Kingdom is greatly obscured and perverted by the prevailing one of the conversion of the world prior to the Advent of Jesus.  ]] 
 [[Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order.   ]]
-[[Proposition 177. This doctrine of the Kingdom to ill not be received, in faith, by the Church as a body.  ]]
+[[Proposition 177. This doctrine of the Kingdom  will not be received, in faith, by the Church as a body.]]
 [[Proposition 178. This doctrine of the Kingdom, and its essentially related subjects, are so hostile to their faith, that numerous organized religious bodies totally reject them.   ]]
 [[Proposition 179. The doctrine of the Kingdom, or essentials of the same, are directly allied by various bodies with doctrines that are objectionable, and hence is made unpalatable to many.   ]]
 [[Proposition 180. This doctrine of the Kingdom will not be received, in faith, by the World.  ]] 
