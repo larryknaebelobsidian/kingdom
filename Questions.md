@@ -1,6 +1,6 @@
 ---
 tags: extra
-terms:
+subjects:
   - alpha1
   - romeo
   - xylo
@@ -37,12 +37,12 @@ FROM #toc
 SORT pagecount DESC, observationcount DESC
 `````
 
-## Index of Terms
+## Index of Subjects
 
 `````dataview
-TABLE WITHOUT ID Term, file.link AS Location
-FROM #toc or #extra
-WHERE terms != null
-FLATTEN terms AS Term
-SORT Term ASC, file.link ASC
+TABLE WITHOUT ID Subject, file.link AS Location
+FROM #toc
+WHERE subjects != null
+FLATTEN subjects AS Subject
+SORT Subject ASC, file.link ASC
 `````

@@ -1,7 +1,8 @@
 ---
 tags: extra
-terms:
+subjects:
   - conflagration
+  - translation
 
 ---
 
