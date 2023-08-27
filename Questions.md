@@ -1,5 +1,5 @@
 ---
-tags: example
+tags: extra
 terms:
   - alpha1
   - romeo
@@ -37,16 +37,12 @@ FROM #toc
 SORT pagecount DESC, observationcount DESC
 `````
 
-WHERE terms = (["alpha"])
-
-```dataview
-TABLE min(rows.terms) AS term, length(rows.terms) AS count
-FROM #example 
-```
+## Index of Terms
 
 `````dataview
-TABLE terms
-FROM #example
-SORT terms DESC
-FLATTEN terms
+TABLE WITHOUT ID Term, file.link AS Location
+FROM #toc or #extra
+WHERE terms != null
+FLATTEN terms AS Term
+SORT Term ASC, file.link ASC
 `````

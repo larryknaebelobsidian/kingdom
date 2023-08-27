@@ -1,9 +1,8 @@
 ---
-tags: example
+tags: extra
 terms:
-  - beta
-  - xylo
-  - special
+  - conflagration
+
 ---
 
 Events are not listed in any order except showing their position **before** or **after** the ***theocratic-kingdom is established***
