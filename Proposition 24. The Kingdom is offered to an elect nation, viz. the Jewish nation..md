@@ -1,6 +1,8 @@
 ---
 pagecount: 9
 observationcount: 9
+subjects:
+  - elect nation
 ---
 #toc
 #keyproposition

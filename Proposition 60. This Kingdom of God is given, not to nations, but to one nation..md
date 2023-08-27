@@ -1,6 +1,8 @@
 ---
 pagecount: 4
 observationcount: 8
+subjects:
+  - elect nation
 ---
 #toc
 

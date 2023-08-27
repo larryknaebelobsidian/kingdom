@@ -1,6 +1,8 @@
 ---
 pagecount: 17
 observationcount: 24
+subjects:
+  - covenant
 ---
 [[Abrahamic Covenant]]
 #toc 
