@@ -70,5 +70,17 @@ We will sing and praise Your might.
 >The reader will find this feature extended in detail, with Scripture proof, under Props. 154 and 156.  It is delightful to contemplate, that we who are the redeemed "first-fruits," shall be able practically to manifest our supreme love to God by bringing others to experience its blessings in acknowledgment of the supremacy and majesty of the King.
 >p. 215 Vol. 3 Prop. 176 Obs. 7 note
 
+>One of the indirect, but most powerful, evidences of the divine inspiration of the Scripture is found in the fact that nowhere do we find those eulogistic descriptions of "the triumph of the Gospel in subduing the world" which now so largely adorn the eloquence of Whitbyan missionary discourses.  Nothing of the kind is exhibited even when reference is made to the rapid extension of the preached Word over the then known world, for the Spirit evidently foresaw, what history testifies to, the ultimate overthrow and fallen condition of the churches, then so widely extended. If the hopes and efforts of believers are to be quickened by such appeals -- as men now say -- *why were they not given* at a time when Christians endured the severest trials from a persecuting Roman Empire?
+>p. 215 Vol. 3 Prop. 176 Obs. 8 note
+
+>This doctrine of ours prominently holds forth, as a cardinal point, the design of the present dispensation, and insists upon it that wherever the design is specifically mentioned, it is “to gather out a people for His name,” “to save them that believe,” or to bring appropriated salvation to “the few” in contrast to “the many” who reject it—a process which has been going on uninterruptedly for eighteen centuries.
+>p. 216 Vol. 3 Prop. 176 Obs. 9 
+
+>In direct contrast with this biblical teaching, eminent and eloquent men teach that its design is the reverse, viz., to gather all people, to save the many, to convert all nations.
+>p. 216 Vol. 3 Prop. 176 Obs. 9 note
+
+
+
+
 
 
