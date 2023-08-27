@@ -185,7 +185,7 @@ Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 201
 [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.  ]] 
 [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]]
 [[Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.   ]]
-[[Proposition 174.—This Kingdom of the Messiah is preceded by signs.  ]] 
+[[Proposition 174. This Kingdom of the Messiah is preceded by signs.]] 
 [[Proposition 175. The doctrine of the Kingdom is greatly obscured and perverted by the prevailing one of the conversion of the world prior to the Advent of Jesus.  ]] 
 [[Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order.   ]]
 [[Proposition 177. This doctrine of the Kingdom  will not be received, in faith, by the Church as a body.]]
