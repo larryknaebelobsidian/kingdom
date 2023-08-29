@@ -37,6 +37,16 @@ subjects:
 >“The Fathers were unanimous in their opinion that the Antichrist was to be a person; nor has the Greek Church, which in most respects has maintained the sentiments of the Fathers on this point, ever made a question of it.”
 >p. 679 Vol. 2 Prop. 161 Obs. 4
 
+>Comparatively few entertain the idea of a Satanic incarnation, or a resurrected Judas (reviving in another form and person the old resurrected Nero—comp. Stuart, *Apoc*., vol. 2, p. 441—theory, Sulp. Severus saying: “At the close of the age, he is to be sent again that he may exercise the mystery of iniquity”); the large majority inclining to his being *a mere man*, wonderfully endowed, and in whom wickedness shall reach its consummation (some incorporating in a measure Theodoret’s or Chrysostom’s idea that he shall be under the special energy of the devil and exhibit therefore Satanic might).
+>p. 680 Vol. 2 Prop. 161 Obs. 4
+
+Some think that the Antichrist will come from the tribe of Dan. - Obs. 4 notes
+
+Peters discusses reasons why Satan cannot be the Antichrist, or a direct offspring of Satan - Obs. 4 notes
+
+>Whether he is to be expected personally, as one individual embodiment  of evil, we would not dogmatically pronounce; still we would not forget that both ancient and historical interpretation points this way.
+>p. 682 Vol. 2 Prop. 161 Obs. 4 note 2
+
 
 >Another feature in the discussion of the past, and *fruitful of mistake* (even in otherwise very able writers), is *the indiscriminate application* of all predictions relating to antichristian powers to this one Antichrist.
 >p. 683 Vol. 2 Prop. 161 Obs. 5
