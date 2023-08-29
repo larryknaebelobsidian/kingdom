@@ -1,4 +1,7 @@
-### Subject List
+The hard copy book has an Index of Subjects in Vol. 3 pp. 661-694.
+
+The below subjects may not align with Peters and are ***only those I wish to highlight***.
+### List of Subjects I Wish to Highlight
 ```dataview
 TABLE WITHOUT ID Subject
 FROM #toc
@@ -8,8 +11,6 @@ SORT Subject ASC
 GROUP BY Subject
 ```
 
-The hard copy book has an Index of Subjects in Vol. 3 pp. 661-694.
-The below subjects are ***only those I wish to highlight***.
 
 `````dataview
 TABLE WITHOUT ID Subject, file.link AS Location
