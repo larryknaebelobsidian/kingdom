@@ -59,4 +59,5 @@ Peters discusses reasons why Satan cannot be the Antichrist, or a direct offspri
 >p. 684 Vol. 2 Prop. 161 Obs. 5
 
 >The prediction of Dan. most certainly impresses the reader with the idea that this horn exists down to the coming of the Ancient of Days, to the personal Advent itself, *thus corresponding*—whatever inchoate fulfilment may be attributed to it—*with the Antichrist destroyed at Christ’s Sec. Advent and not with the whore previously previously destroyed by the Beast and ten horns*.
+>p. 684 Vol. 2 Prop. 161 Obs. 5
 
