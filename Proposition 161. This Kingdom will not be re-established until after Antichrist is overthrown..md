@@ -47,6 +47,11 @@ Some think that the Antichrist will come from the tribe of Dan. - Obs. 4 notes
 
 Peters discusses reasons why Satan cannot be the Antichrist, or a direct offspring of Satan - Obs. 4 notes
 
+Man of Sin
+son of perdition
+the wicked one
+the prince that shall come
+
 >Whether he is to be expected personally, as one individual embodiment  of evil, we would not dogmatically pronounce; still we would not forget that both ancient and historical interpretation points this way.
 >p. 682 Vol. 2 Prop. 161 Obs. 4 note 2
 
@@ -73,4 +78,8 @@ Peters discusses reasons why Satan cannot be the Antichrist, or a direct offspri
 
 >“the falling away is *by no means identical* with the Antichrist (as the Fathers understood it), or even merely (as De Wette thinks) the working exclusively of Antichrist; rather, the general rush of violent departure from the faith *precedes* that final disclosure of the Antichristian despot.” The most careful writers thus discriminate *between* the apostasy itself and the Antichrist which is developed from or arises out of it; the former being regarded as introductory, the latter as its ripened fruit.
 >p. 689 Vol. 2 Prop. 161 Obs. 6
+
+>The apostasy is *not confined* simply to one person, one party or sect, but may embrace many persons and various systems under the one general term.
+>p. 690 Vol. 2 Prop. 161 Obs. 6
+
 
