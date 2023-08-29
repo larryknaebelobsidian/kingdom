@@ -61,3 +61,16 @@ Peters discusses reasons why Satan cannot be the Antichrist, or a direct offspri
 >The prediction of Dan. most certainly impresses the reader with the idea that this horn exists down to the coming of the Ancient of Days, to the personal Advent itself, *thus corresponding*—whatever inchoate fulfilment may be attributed to it—*with the Antichrist destroyed at Christ’s Sec. Advent and not with the whore previously previously destroyed by the Beast and ten horns*.
 >p. 684 Vol. 2 Prop. 161 Obs. 5
 
+>That class of interpreters who make the first beast of Rev. 13, the Antichrist, in its last head, are to be commended as correct, when this made aside or separate from the Papacy.
+>p. 687 Vol. 2 Prop. 161 Obs. 5 note 2
+
+>the Antichrist is the last, culminated head of the First Beast of Rev. 13 and 17, the same that is destroyed *by* the personal Second Advent of Jesus, and *after* he has desolated and burned the harlot, simple consistency demands us to consider -- aside from other reasons -- that the Antichrist of Dan. 7 and of 2 Thess. 2, which meets with the identical fate, is likewise the same, and cannot be applied to the great Apostasy or Papacy.
+>p. 687 Vol. 2 Prop. 161 Obs. 5 note 2
+
+
+>Antiochus Epiphanes, who is a type -- thus to be understood -- of the coming Antichrist
+>p. 688 Vol. 2 Prop. 161 Obs. 5 note 4
+
+>“the falling away is by no means identical with the Antichrist (as the Fathers understood understood it), or even merely (as De Wette thinks) the working exclusively of Antichrist; rather, the general rush of violent departure from the faith precedes that final disclosure of the Antichristian despot.”
+>p. 689 Vol. 2 Prop. 161 Obs. 6
+
