@@ -71,6 +71,6 @@ Peters discusses reasons why Satan cannot be the Antichrist, or a direct offspri
 >Antiochus Epiphanes, who is a type -- thus to be understood -- of the coming Antichrist
 >p. 688 Vol. 2 Prop. 161 Obs. 5 note 4
 
->“the falling away is by no means identical with the Antichrist (as the Fathers understood understood it), or even merely (as De Wette thinks) the working exclusively of Antichrist; rather, the general rush of violent departure from the faith precedes that final disclosure of the Antichristian despot.”
+>“the falling away is *by no means identical* with the Antichrist (as the Fathers understood it), or even merely (as De Wette thinks) the working exclusively of Antichrist; rather, the general rush of violent departure from the faith *precedes* that final disclosure of the Antichristian despot.” The most careful writers thus discriminate *between* the apostasy itself and the Antichrist which is developed from or arises out of it; the former being regarded as introductory, the latter as its ripened fruit.
 >p. 689 Vol. 2 Prop. 161 Obs. 6
 
