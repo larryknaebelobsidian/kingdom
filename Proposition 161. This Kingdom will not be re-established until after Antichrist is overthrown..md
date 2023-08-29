@@ -42,6 +42,9 @@ subjects:
 
 Some think that the Antichrist will come from the tribe of Dan. - Obs. 4 notes
 
+>Turner (*His. of the Anglo-Saxons*, vol. 2, p. 477, etc.), gives a summary of Acuins's (Aquinas'?) views respecting the Antichrist: "He is to be born of a most flagitious robber and harlot, with the aid of the devil, at Babylon.  He will pervade Palestine; convert kings, princes, and people; and send his missionaries all over the world. He will work many miracles; bring fire from heaven; make trees vegetate in a moment; calm and agitate the sea at his will; transform various objects; change the course of rivers; command the winds; and apparently raise the dead.  He will bitterly persecute Christianity.  He will discover hidden treasures and lavish them among his followers; a dreadful period of tribulation will follow."
+>p. 681 Vol. 2 Prop. 161 Obs. 4 note 1
+
 Peters discusses reasons why Satan cannot be the Antichrist, or a direct offspring of Satan - Obs. 4 notes
 
 >Whether he is to be expected personally, as one individual embodiment  of evil, we would not dogmatically pronounce; still we would not forget that both ancient and historical interpretation points this way.
