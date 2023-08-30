@@ -6,7 +6,7 @@ subjects:
 ---
 #toc
 ## Props Mentioned
-[[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.|123]] [[Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.|160]] 
+[[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.|123]] [[Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.|160]] [[Proposition 130. The Kingdom is preceded by a translation of the living saints.|130]] [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.|166]] [[Proposition 174. This Kingdom of the Messiah is preceded by signs.|174]] 
 
 >It was a generally received opinion of the Jews (comp. Reuss, *His. of Ch. Theol. Ap. Age*, p. 115, etc.) that the Messianic Kingdom could not be introduced without *the previous* manifestation of the Antichrist. This view was derived from Daniel and the other prophets, who described such an Antichristian power—the great enemy portrayed in its outward culminated form—as preceding *the coming of the Son of man* to set up His Kingdom. This belief was incorporated in the early Church, and was universally held as belonging to the period *immediately antecedent* to the open, visible Advent of the Lord Jesus at His Second Coming.
 >p. 669 Vol. 2 Prop. 161 Obs. 2
