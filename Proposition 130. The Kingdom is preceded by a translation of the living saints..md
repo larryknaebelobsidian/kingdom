@@ -3,6 +3,7 @@ pagecount: 26
 observationcount: 15
 subjects:
   - translation
+  - resurrection
   - gathering
   - harvest
   - 144,000
@@ -43,7 +44,7 @@ My current view, before reading Peters, is that Peters' "translation" equals the
 #### First
 
 > " The word "first" applied to the resurrection has reference not to its being first in time (which would be incorrect, seeing that Christ's res. and that of saints, Matt. 27:52,53, preceded), but of its being a resurrection which *also* brings those who participated in it *within* the privileges of "the first-born", viz., a double portion, Deut. 21:17;  priesthood, Num. 3:13; and government or dominion, Gen. 27:29. ***The subject of the resurrection, for a long time, was not clear to the writer until he observed the real scriptural application of the word "first, " as just given.***" 
-> p. 315 Vol 2 Prop 130 Obs. 1
+> p. 315 Vol 2 Prop 130 Obs. 1 emphasis added to highlight Peters personal experience
 
 #### One Coming ... Series of Acts
 
