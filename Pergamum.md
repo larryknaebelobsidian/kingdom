@@ -9,11 +9,16 @@ I know
 	- where Satan's throne it
 - you hold fast My name
 	- did not deny My faith
-		- in the days of Antipas (My witness, My faithful one, who was killed among you)
+		- in the days of Antipas 
+			- My witness 
+			- My faithful one 
+			- who was killed among you
 
 ### The Judgement
 - You have some who hold the teaching of Balaam
-	- who kept teaching Balak to put a stumbling block before the sons of Israel to eat things sacrificed to idols and to commit acts of immorality
+	- who kept teaching Balak to put a stumbling block before the sons of Israel 
+		- to eat things sacrificed to idols and 
+		- to commit acts of immorality
 - You have some who hold the teaching of the Nicolaitans
 
 ### Corrective Action
@@ -24,7 +29,7 @@ I know
 - I will make war against them with the sword of My mouth
 
 
-He who has a ear, let him hear what the Spirit says to the churches
+***He who has a ear, let him hear what the Spirit says to the churches***
 ### Reward
 To him who overcomes
 - I will give some of the hidden manna

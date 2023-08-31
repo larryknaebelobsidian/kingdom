@@ -36,4 +36,4 @@ He who overcomes and keeps my deeds until the end
 	- Judge will give authority over the nations to rule them with a rod of iron
 	- Judge will give him the morning star
 
-He who has a ear, let him hear what the Spirit says to the churches
+***He who has a ear, let him hear what the Spirit says to the churches***

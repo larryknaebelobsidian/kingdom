@@ -1,13 +1,15 @@
 #sevenchurches 
 
 ### The Judge
-I - the one who holds the seven stars in His right hand, who walks among the seven golden lampstands
+I - the one who 
+- holds the seven stars in His right hand
+- walks among the seven golden lampstands
 
 ### Considerations
 I know
 - your deeds
 - your toil
-- your perseverence
+- your perseverance
 	- for My name's sake
 	- have not grown weary
 Yet you do have
@@ -26,7 +28,7 @@ Or else
 - I am coming to you
 - will remove your lampstand out of its place
 
-To him who has an ear, let him hear what the Spirt says to the churches
+***To him who has an ear, let him hear what the Spirt says to the churches***
 ### Reward
 To him who overcomes
 - I will grant to eat of the tree of life (which is in the Paradise of God)
