@@ -1,6 +1,6 @@
 ---
 ---
-[[Proposition 205. The doctrine of the Kingdom materially aids its in preaching “the Christ”— the distinctive “Messiah.”|Prop 205]]
+[[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”|Prop 205]]
 [[Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.|Prop 206]]
 
 

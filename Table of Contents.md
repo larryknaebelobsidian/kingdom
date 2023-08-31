@@ -216,7 +216,7 @@ Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 201
 [[Proposition 202. If the Kingdom of the Son of Man, as covenanted, is not established, then the earth will lack in its history the exhibition of a perfect government.   ]]
 [[Proposition 203. The exaltation of the Christ is not lessened or lowered by thus referring the promises of the Kingdom to an outward manifestation in the future.   ]]
 [[Proposition 204. Such a view of the Kingdom gives definiteness and a continued exaltation to the human nature of Christ, and indicates the majestic relationship that it sustains throughout the ages to the race of man.  ]]
-[[Proposition 205. The doctrine of the Kingdom materially aids its in preaching “the Christ”— the distinctive “Messiah.”  ]] 
+[[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] 
 [[Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.]]
 
 
