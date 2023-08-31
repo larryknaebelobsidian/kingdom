@@ -23,6 +23,8 @@ I know
 - I am coming to you quickly
 - I will make war against them with the sword of My mouth
 
+
+He who has a ear, let him hear what the Spirit says to the churches
 ### Reward
 To him who overcomes
 - I will give some of the hidden manna

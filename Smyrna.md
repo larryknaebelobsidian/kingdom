@@ -24,3 +24,5 @@ Be faithful until death
 	- if you are faithful until death
 - He who overcomes
 	- will not be hurt by the second death
+
+He who has a ear, let him hear what the Spirit says to the churches
