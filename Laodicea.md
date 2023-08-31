@@ -12,7 +12,7 @@ Judge knows
 
 ### The Judgement
 Because you are luke-warm (neither hot not cold), the judge will 
-- spit you out of My mouth
+- spit you out of His mouth
 You say you are 
 - rich 
 - wealthy 
