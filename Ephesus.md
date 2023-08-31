@@ -21,12 +21,10 @@ I have this against you
 ### Corrective Action
 Remember
 - From where you have fallen
-Repent
-Do the deeds you did at first
+Repent and do the deeds you did at first
 ### Penalty
-Or else
-- I am coming to you
-- will remove your lampstand out of its place
+Or else, if you do not repent
+- I am coming to you and will remove your lampstand out of its place
 
 ***To him who has an ear, let him hear what the Spirt says to the churches***
 ### Reward
