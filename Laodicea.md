@@ -23,7 +23,7 @@ I advise you to buy from Me
 Be zealous and repent - since I reprove and discipline those I love
 
 ### Reward
-I anyone hears His voice and opens door - Judge will come in to him and will dine with him and he with me
+If anyone hears His voice and opens door - Judge will come in to him and will dine with him and he with me
 To him who overcomes he will sit down with the Judge on His throne (as the judge did with His Father) 
 
 He who has a ear, let him hear what the Spirit says to the churches
