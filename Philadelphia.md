@@ -21,7 +21,7 @@ To those who are of the synagogue of Satan, I will make them come down and bow a
 
 
 ### Call to Action
-Hold fast to what you have (since I am coming quickly)
+Hold fast to what you have (I am coming quickly)
 - so no one will take your crown
 ### Reward
 I will keep you from the hour of testing (about to come upon the whole world, to test those who dwell on the earth)
