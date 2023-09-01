@@ -163,6 +163,7 @@ the prince that shall come
 >The worship of Antichrist evidences that man, however atheistic some of his utterances are, cannot divest himself of some conception of religion, the necessity of worship, and the superiority of some being. For, constituted by the mercy and love of the Creator a religious being, he cannot, as Luthardt justly “observes in his Apolog. Lectures, “get rid of the idea because a belief in something higher than his individual self naturally arises from his moral constitution.
 >p. 725 Vol. 2 Prop. 161 Obs. 18
 
+### Man must have a God
 >Man must have a God. If he rejects the true God, he must make a God for himself, and this is of necessity a false one. 
 >p. 725 Vol. 2 Prop. 161 Obs. 18
 
