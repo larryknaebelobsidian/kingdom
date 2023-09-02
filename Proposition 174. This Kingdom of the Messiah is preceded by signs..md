@@ -58,5 +58,10 @@ Observation 3 discusses 38 signs.
 
 ## Signs between First (hidden) and Second (public) stage of the Second Advent
 
+Observation 4
 
+1. Translation of the living saints and resurrection (secret) [[Proposition 130. The Kingdom is preceded by a translation of the living saints.|Prop 130]] 
+2. Denial of Christ's Advent ("where is the promise of His coming")
+3. Specific preaching over the whole earth. Fear God and give Him glory, and worship Him (Rev. 14) - for the unsaved and the saved that are left
+4. 
 ## Main, Leading Signs that precede the Coming Kingdom and those that pertain to the first stage
