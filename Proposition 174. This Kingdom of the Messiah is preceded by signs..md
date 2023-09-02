@@ -56,4 +56,7 @@ Observation 3 discusses 38 signs.
 >p. 132 Vol. 3 Prop. 174 Obs. 3
 
 
-## Signs 
+## Signs between First (hidden) and Second (public) stage of the Second Advent
+
+
+## Main, Leading Signs that precede the Coming Kingdom and those that pertain to the first stage
