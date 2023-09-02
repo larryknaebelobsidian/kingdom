@@ -16,7 +16,7 @@ Observation 3 discusses 38 signs.
 1. Relative peace and prosperity, man engaged in normal world endeavors
 2. Widespread unbelief in the warning and words of God
 3. Rising up of 'scoffers'
-4. Hightened interest in eschatology
+4. Heightened interest in eschatology
 5. Church unbelief and lack of interest in watching for His coming
 6. Church will be under trial
 7. Gospel being preached as 'a witness to all nations'
@@ -63,5 +63,22 @@ Observation 4
 1. Translation of the living saints and resurrection (secret) [[Proposition 130. The Kingdom is preceded by a translation of the living saints.|Prop 130]] 
 2. Denial of Christ's Advent ("where is the promise of His coming")
 3. Specific preaching over the whole earth. Fear God and give Him glory, and worship Him (Rev. 14) - for the unsaved and the saved that are left
-4. 
+4. Increase of corruption. Moral signs more sharply defined and intensified
+5. Rise of the last great Antichrist and confederations of nations under him
+6. Fall of Babylon
+7. Fearful persecution of all true believers and their heroic martyrdom
+8. A return to idol worship; forsaking God for nature
+9. Performance of miracles; exercise of miraculous powers
+10. Restoration of a portion of Jews to Palestine, whom Antichrist will attack and overwhelm
+11. Wars of the Antichristian power, its success, its march to the Holy Land
+12. Unsettled condition of nations; perplexity, distress
+13. Elijah the prophet will be sent to the Jews (Mal. 4:5,6)
+14. Signs of nature; cosmological and moral spheres
+15. Sign of the Son of Man
+16. Other signs
+	- Formation of a confederacy
+	- Great contest by antichrist against Christ and His army
+	- Plagues and woes
+	- Developments and contests
+	- Three unclean spirits
 ## Main, Leading Signs that precede the Coming Kingdom and those that pertain to the first stage
