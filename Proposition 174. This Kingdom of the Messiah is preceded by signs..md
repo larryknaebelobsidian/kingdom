@@ -81,4 +81,10 @@ Observation 4
 	- Plagues and woes
 	- Developments and contests
 	- Three unclean spirits
-## Main, Leading Signs that precede the Coming Kingdom and those that pertain to the first stage
+## Main, Leading Signs that precede the Coming Kingdom 
+
+Observation 5
+
+- those that pertain to the first stage
+- those that pertain to its preliminary ordering at Mt. Sinai
+- those that relate to the open manifestation of the King at Jerusalem and the re-establishment of the David throne and Kingdom, embracing also the conversion and restoration of the Jewish nation. 
