@@ -11,7 +11,8 @@ subjects:
 
 ## Signs preceeding First Stage (secret resurrection and secret translation) of the Advent
 
-Observation 3 discusses 38 signs.  It appears that most of these signs are from Peters personal conclusions based upon his immense knowledge of past and present day literature and personal observations.  ***Only a few of these 38 signs are shown to have come directly from the Scriptures.***
+Observation 3 discusses 38 signs. 
+
 1. Relative peace and prosperity, man engaged in normal world endeavors
 2. Widespread unbelief in the warning and words of God
 3. Rising up of 'scoffers'
