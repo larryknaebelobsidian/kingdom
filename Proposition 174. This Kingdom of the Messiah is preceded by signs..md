@@ -51,4 +51,8 @@ Observation 3 discusses 38 signs.  It appears that most of these signs are from 
 37. Stress on secular education as a means of improvement and progress
 38. 10 other specific signs given by Peters
 
+>Such are the signs which ‘*precede* the first stage of Christ’s Advent. Not one of them (just as there was none before the First Advent) shall be of *a strictly Supernatural* nature; all of them are connected with the natural, or are regularly produced in an onward course of development.
+>p. 132 Vol. 3 Prop. 174 Obs. 3
+
+
 ## Signs 
