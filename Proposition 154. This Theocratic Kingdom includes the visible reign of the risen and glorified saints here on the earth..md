@@ -25,12 +25,12 @@ subjects:
 - to be “Kings” and “Judges” and “Princes,” 
 - “to inherit and possess a Kingdom,”
 
-### When
+### When - at Second Advent after the first resurrection
 >it occurs at the Second Advent, and after the first resurrection.
 >p. 572 Vol. 2 Prop. 154 Obs. 2
 
 
-### Where
+### Where - on the earth
 >The place where this reign is to be manifested is expressly stated: “We shall reign on (or as Stuart, over) the earth.” In the very nature of the case, if they inherit with David’s Son, the restored Theocratic-Davidic Kingdom, it must be a reign here on and over the earth.
 >p. 574 Vol. 2 Prop. 154 Obs. 3
 
