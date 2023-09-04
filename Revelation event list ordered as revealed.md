@@ -1,4 +1,15 @@
 ## 1
+#### Revelation of Jesus Christ
+#### God gave Him 
+#### To show to His bond-servants
+#### the things which must soon take place
+#### communicated by angel to John
+#### Blessed is he who reads, hear, heed
+#### the time is near
+#### God made us to be a kingdom, priests
+#### He is coming with the clouds (Daniel 7:13)
+#### Son of man described
+#### Seven stars (angels), seven lampstands (churches)
 ## 2
 #### Letter to Ephesus
 #### Letter to Smyrna
