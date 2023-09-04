@@ -17,6 +17,10 @@ Free agency - 9
     7. Prop. 154
     8. Prop. 161 Obs. 3
     9. Prop. 172 Obs. 3
+
+2 Stages of Second Advent (per Peters) (I personally am not convinced that the Scriptures teach this and I am not sure I fully understand Peters' position as I state here)
+1. Hidden stage - private like Christ's resurrection. Only those counted worthy of the kingdom (prepared via lifetime faithfulness) will be raised/translated. They will be taken to Mt. Sinai to prepare for Christ's revealed coming.
+2. Revealed stage - every eye will see him
     
     
     
