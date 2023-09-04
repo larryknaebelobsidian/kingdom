@@ -12,7 +12,27 @@
 ## 12
 ## 13
 ## 14
+#### Saw Lamb standing on Mt Zion with 144,000
+#### 144,000 had His name and the name of His Father written on their foreheads
+#### Voice from heaven like sound of many waters, loud thunder, harpists playing their harps
+#### 144,000 sang a new song that only they know
+#### 144,000 are purchased from the earth
+#### 144,000 not defiled with women (chaste), follow the lamb, purchased from among men as first fruits to God and to the Lamb, no lie found in their mouth, blameless
+#### Saw angel flying in midheaven with eternal gospel
+#### Another angel saying "Fallen is Babylon the great"
+#### Another angel announcing doom for worshippers of the beast
+#### Write, blessed are the dead who die in the Lord from now on
+#### Angel told to swing his sickle because the harvest of the earth is ripe; the earth was reaped
+#### Angel who has power over fire tell another angel to swing his sickle and gather the clusters from the vine of the earth and throw them into the great wine press of the wrath of God
+#### Blood from wine press came out as high as a horse's bridle for two hundred miles.
 ## 15
+#### Another sign in heaven
+#### Seven angels with seven plagues
+#### Those victorious over the beast standing on a sea of glass
+#### They sang the song of Moses
+#### Seven angels came out of the temple
+#### Temple filled with smoke
+#### No one able to enter the temple until the seven plagues were finished
 ## 16
 #### Voice from temple: Go and pour the seven bowls of the wrath of God
 #### First bowl: loathsome and malignant sore on people who have the mark of the beast and worshiped his image
