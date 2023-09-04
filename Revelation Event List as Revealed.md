@@ -18,7 +18,7 @@
 #### 144,000 sang a new song that only they know
 #### 144,000 are purchased from the earth
 #### 144,000 not defiled with women (chaste), follow the lamb, purchased from among men as first fruits to God and to the Lamb, no lie found in their mouth, blameless
-#### Saw angel flying in midheaven with eternal gospel
+#### Saw angel flying in midheaven with eternal gospel, "fear God and give Him glory"
 #### Another angel saying "Fallen is Babylon the great"
 #### Another angel announcing doom for worshippers of the beast
 #### Write, blessed are the dead who die in the Lord from now on
