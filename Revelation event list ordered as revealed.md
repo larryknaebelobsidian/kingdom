@@ -36,7 +36,7 @@
 ##### Hold fast what you have so no one will take your crown
 ##### Him who overcomes I will make a pillar in the temple of my God and write on him God's name and God's city's name
 #### Letter to Laodicea
-##### Your deeds are neither cold or hot; lukewarm
+##### Your deeds are neither cold or hot but lukewarm
 ##### You think you are rich, wealthy, have need of nothing but you are wretched, miserable, poor, blind, naked
 ##### Buy from Jesus gold, white garments, eye salve
 ##### Be zealous and repent (accept My discipline)
@@ -75,7 +75,7 @@
 #### Second Trumpet: Great burning mountain thrown into the sea: one third of sea became blood, third of creatures died and ships destroyed
 #### Third Trumpet: Great star (wormwood) fell from heaven onto one third of rivers and springs and many men died because of the bitter water
 #### Fourth Trumpet: one third of sun, moon and stars struck to cause one-third of light to shine during day and night
-#### Eagle announces in midheaven: Woes to those dwelling on earth due to the last three trumpets
+#### Eagle announces in midheaven: 3 Woes to those dwelling on earth due to the last three trumpets
 ## 9
 #### Fifth trumpet: locusts from smoke out of the bottomless pit torment those who do not have the seal of God on their foreheads for five months. - first woe
 #### Sixth trumpet: two hundred million horsemen kill one third of mankind
@@ -148,7 +148,7 @@
 #### The great harlot
 #### The beast
 #### The ten horns
-#### The waters where harlot sits are peoples, multitudes, nations and tongues
+#### The waters where the harlot sits are peoples, multitudes, nations and tongues
 #### The ten horns will hate the harlot and burn her with fire
 #### The woman is the great city which reigns over the kings of the earth
 ## 18
