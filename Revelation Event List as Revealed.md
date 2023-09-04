@@ -1,8 +1,28 @@
 ## 1
+
 ## 2
+#### Letter to Ephesus
+#### Letter to Smyrna
+#### Letter to Pergamum
+#### Letter to Thyatira
 ## 3
+#### Letter to Sardis
+#### Letter to Philadelphia
+#### Letter to Laodicea
 ## 4
+#### Scene in heaven
+#### Throne and Him who sat on it
+#### Twenty-four elders on thrones and wearing crowns
+#### Seven lamps before the throne: these are the seven spirits of God
+#### Four living creatures: like lion, calf, man, flying eagle: six wings
+#### worship
 ## 5
+#### Book with seven seals
+#### Only the lion from the tribe of Judah, the root of David, is worthy to open the book
+#### John saw a lamb, as if slain, seven horns, seven eyes
+#### The four living creatures and twenty four elders sing a new song
+#### Many angels exalt the lamb
+#### Every created thing exalts God and the lamb
 ## 6
 #### Seven Seals
 #### First seal: white horse, crown, conquering and to conquer
