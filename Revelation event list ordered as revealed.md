@@ -17,15 +17,17 @@
 ##### Else, I will remove your lampstand out of its place
 ##### Him who overcomes I will grant to eat of the tree of life which is in the paradise of God
 #### Letter to Smyrna
-##### Do not fear tribulation about to suffer (for 10 days by Satan some of you will be cast into prison and tested), be faithful until death
+##### Do not fear tribulation about to suffer (for 10 days by Satan some of you will be cast into prison and tested), be faithful until death and I will give you the crown of life
 ##### Him who overcomes will not be hurt by the second death
 #### Letter to Pergamum
 ##### You have some bad teachings - Balaam and Nicolaitans
 ##### Repent
+##### Else I am coming quickly and will make war against them with the sword of the word of my mouth
 ##### Him who overcomes I will give some of the hidden manna, white stone, new name written on it
 #### Letter to Thyatira
 ##### You tolerate Jezebel - immorality, idolatry
 ##### Repent of her deeds
+##### Else I will throw her on a bed of sickness and those who commit adultery with her into great tribulation, I will kill her children with pestilence, all churches will know that I am he who searches the minds and hearts
 ##### Him who overcomes and keeps my deeds until the end, to him I will give authority over the nations, and he shall rule them with a rod of iron, and I will give him the morning star.
 ## 3
 #### Letter to Sardis
