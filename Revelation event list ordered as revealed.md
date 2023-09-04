@@ -71,7 +71,7 @@
 ## 8
 #### Seventh Seal
 #### Seven Trumpets
-#### First Trumpet: Hail, First, Blood: one third of earth, trees  and all grass burned up.
+#### First Trumpet: Hail, Fire, Blood: one third of earth, trees  and all grass burned up.
 #### Second Trumpet: Great burning mountain thrown into the sea: one third of sea became blood, third of creatures died and ships destroyed
 #### Third Trumpet: Great star (wormwood) fell from heaven onto one third of rivers and springs and many men died because of the bitter water
 #### Fourth Trumpet: one third of sun, moon and stars struck to cause one-third of light to shine during day and night
