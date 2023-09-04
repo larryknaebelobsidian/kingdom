@@ -12,13 +12,35 @@
 #### Seven stars (angels), seven lampstands (churches)
 ## 2
 #### Letter to Ephesus
+##### Left your first love
+##### Remember, repent, do you first deeds
+##### Else, I will remove your lampstand out of its place
+##### Him who overcomes I will grant to eat of the tree of life which is in the paradise of God
 #### Letter to Smyrna
+##### Do not fear tribulation about to suffer (for 10 days by Satan), be faithful until death
+##### Him who overcomes will not be hurt by the second death
 #### Letter to Pergamum
+##### You have some bad teachings - Balaam and Nicolaitans
+##### Repent
+##### Him who overcomes I will give some of the hidden manna, white stone, new name written on it
 #### Letter to Thyatira
+##### You tolerate Jezebel - immorality, idolatry
+##### Repent of her deeds
+##### Him who overcomes and keeps my deeds until the end, to him I will give authority over the nations, and he shall rule them with a rod of iron, and I will give him the morning star.
 ## 3
 #### Letter to Sardis
+##### Deeds not completed in the sight of My God
+##### Wake up, strengthen, remember, keep it, repent
+##### Else I will come like a thief, you will not know at what hour
 #### Letter to Philadelphia
+##### Hold fast what you have so no one will take your crown
+##### Him who overcomes I will make a pillar in the temple of my God and write on him God's name and God's city's name
 #### Letter to Laodicea
+##### Your deeds are neither cold or hot; lukewarm
+##### You think you are rich, wealthy, have need of nothing but you are wretched, miserable, poor, blind, naked
+##### Buy from Jesus gold, white garments, eye salve
+##### Be zealous and repent (accept My discipline)
+##### Him who overcomes I will grant to him to sit down with me on my throne
 ## 4
 #### Scene in heaven
 #### Throne and Him who sat on it
