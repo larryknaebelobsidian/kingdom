@@ -7,10 +7,39 @@
 ## 7
 ## 8
 ## 9
+#### Fifth trumpet: locusts from smoke out of the bottomless pit torment those who do not have the seal of God on their foreheads for five months. - first woe
+#### Sixth trumpet: two hundred million horsemen kills one third of mankind
+
 ## 10
+#### Angel (right foot on the sea, left on the land) with little book
+#### Seven peals of thunder - sealed up
+#### Angel announces: there will be delay no longer
+#### In the days of the seventh angel the mystery of God is finished
+#### John commanded to take the little book and eat it (in stomach it will be bitter but in mouth it will be sweet)
+#### John told he must prophesy again concerning many peoples and nations and tongues and kings.
 ## 11
+#### The two witnesses - second woe
+#### witnesses prophesy for 1260 days
+#### witnesses are 2 olive trees and 2 lampstands that stand before the Lord of the earth
+#### Witnesses killed
+#### Witnesses raised from dead after three and one-half days
+#### Great earthquake
+#### Seventh trumpet: Announcement from loud voices in heaven "The kingdom of the world has become the kingdom of our Lord and of His Christ; and He will reign forever and ever"
 ## 12
+#### Great sign appeared in heaven: Woman clothed in sun, moon under her feet, crown of 12 stars, with child, in labor pains
+#### Another sign in heaven - red dragon, tail swept away one third
+#### Woman gave birth to a son, male, to rule all the nations with a rod of iron, caught up to God and to His throne
+#### Woman fled into the wilderness, prepared by God, to be nourished for 1260 days
+#### War in heaven: Michael vs. dragon, dragon and his armies thrown down from heaven
+#### Woe to the earth and the sea because the devil has come down to you, have great wrath, knowing that he has only a short time.
+#### Two wings of an eagle given to the woman to fly into the wilderness to be nourished for time and times and half a time from the presence of the serpent
+#### Serpent poured water to sweep the woman away but earth helped the woman
+#### Dragon was enraged and went off to make war with the rest of her children who keep the commandments of God and hold to the testimony of Jesus
+
 ## 13
+### Beast coming up out of the sea
+#### Beast coming up out of the earth
+
 ## 14
 #### Saw Lamb standing on Mt Zion with 144,000
 #### 144,000 had His name and the name of His Father written on their foreheads
