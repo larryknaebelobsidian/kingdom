@@ -8,7 +8,7 @@
 ## 8
 ## 9
 #### Fifth trumpet: locusts from smoke out of the bottomless pit torment those who do not have the seal of God on their foreheads for five months. - first woe
-#### Sixth trumpet: two hundred million horsemen kills one third of mankind
+#### Sixth trumpet: two hundred million horsemen kill one third of mankind
 
 ## 10
 #### Angel (right foot on the sea, left on the land) with little book
