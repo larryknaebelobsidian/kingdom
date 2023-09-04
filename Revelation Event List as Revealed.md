@@ -4,8 +4,26 @@
 ## 4
 ## 5
 ## 6
+#### Seven Seals
+#### First seal: white horse, crown, conquering and to conquer
+#### Second seal: red horse, take peace from the earth, men will slay one another, great sword
+#### Third seal: black horse, scales, famine
+#### Fourth seal: ashen horse, death, hades following, fourth of earth killed with sword, famine, pestilence, wild beasts
+#### Fifth seal: martyrs. How long?  Until number of fellow martyrs completed.
+#### Sixth seal: great earthquake, sun black, moon like blood, stars fell from the sky, sky split apart like a scroll, every mountain and island moved. Men hide among the rocks of the mountains and call on the rocks to hide them from the wrath of the Lamb.  The great day of their wrath has come and who is able to stand.
 ## 7
+#### Four angels holding back the winds of the earth
+#### No harm on earth allowed until God's bond-servants are sealed
+#### 144,000 sealed from every tribe of the sons of Israel (note: Dan is missing)
+#### From every nation and all tribes and peoples and tongues, clothed in white, standing before the throne and before the Lamb, palm branches in their hands. These are the ones who come out of the great tribulation and have washed their robes and made them white in the blood of the lamb. No hunger, thirst, beating heat. Lamb in the center will guide them to springs of the water of life and God will wipe every tear from their eyes.
 ## 8
+#### Seventh Seal
+#### Seven Trumpets
+#### First Trumpet: Hail, First, Blood: one third of earth, trees  and all grass burned up.
+#### Second Trumpet: Great burning mountain thrown into the sea: one third of sea became blood, third of creatures died and ships destroyed
+#### Third Trumpet: Great star (wormwood) fell from heaven onto one third of rivers and springs and many men died because of the bitter water
+#### Fourth Trumpet: one third of sun, moon and stars struck to cause one-third of light to shine during day and night
+#### Eagle announces in midheaven: Woes to those dwelling on earth due to the last three trumpets
 ## 9
 #### Fifth trumpet: locusts from smoke out of the bottomless pit torment those who do not have the seal of God on their foreheads for five months. - first woe
 #### Sixth trumpet: two hundred million horsemen kill one third of mankind
