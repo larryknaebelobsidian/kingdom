@@ -17,7 +17,7 @@
 ##### Else, I will remove your lampstand out of its place
 ##### Him who overcomes I will grant to eat of the tree of life which is in the paradise of God
 #### Letter to Smyrna
-##### Do not fear tribulation about to suffer (for 10 days by Satan), be faithful until death
+##### Do not fear tribulation about to suffer (for 10 days by Satan you will be cast into prison and tested), be faithful until death
 ##### Him who overcomes will not be hurt by the second death
 #### Letter to Pergamum
 ##### You have some bad teachings - Balaam and Nicolaitans
