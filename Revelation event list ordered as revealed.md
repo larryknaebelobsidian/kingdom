@@ -34,6 +34,7 @@
 ##### Deeds not completed in the sight of My God
 ##### Wake up, strengthen, remember, keep it, repent
 ##### Else I will come like a thief, you will not know at what hour
+##### Him who overcomes white garments, not erase his name from book of life, I will confess his name before My father and the angels
 #### Letter to Philadelphia
 ##### I will make false Jews bow before you and know that I have loved you
 ##### Because you kept the word of My perseverance, I will keep you from the hour of testing that is coming on the whole world
