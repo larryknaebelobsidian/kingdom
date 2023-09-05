@@ -38,7 +38,7 @@
 ##### I will make false Jews bow before you and know that I have loved you
 ##### Because you kept the word of My perseverance, I will keep you from the hour of testing that is coming on the whole world
 ##### Hold fast what you have so no one will take your crown
-##### Him who overcomes I will make a pillar in the temple of my God and write on him God's name and God's city's name
+##### Him who overcomes I will make a pillar in the temple of my God and write on him God's name and God's city's name and Jesus' new name
 #### Letter to Laodicea
 ##### Your deeds are neither cold or hot but lukewarm
 ##### You think you are rich, wealthy, have need of nothing but you are wretched, miserable, poor, blind, naked
