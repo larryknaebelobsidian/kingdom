@@ -260,7 +260,7 @@
 #### The spirit and the bride say Come
 #### Let the one who hears come
 #### Let the one who is thirsty come
-#### Let the one who wishes take the water of life without cost
+#### Let the one who wishes, take the water of life without cost
 #### Plagues upon him who adds to this book
 #### Part in tree of life taken away for any one who takes from the words of this book
 #### I am coming quickly
