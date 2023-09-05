@@ -79,8 +79,9 @@
 #### Fourth Trumpet: one third of sun, moon and stars struck to cause one-third of light to shine during day and night
 #### Eagle announces in midheaven: 3 Woes to those dwelling on earth due to the last three trumpets
 ## 9
-#### Fifth trumpet: locusts from smoke out of the bottomless pit torment those who do not have the seal of God on their foreheads for five months. - first woe
-#### Sixth trumpet: two hundred million horsemen kill one third of mankind
+#### Fifth trumpet (first woe): locusts(their king is Abaddon/Apollyon) from smoke out of the bottomless pit  torment (not kill) those who do not have the seal of God on their foreheads for five months. - first woe past
+#### Sixth trumpet (second woe): two hundred million horsemen (Euphrates) kill one third of mankind by fire, smoke, brimstone
+#### No repentance of murders, sorceries, immorality, thefts
 ## 10
 #### Angel (right foot on the sea, left on the land) with little book
 #### Seven peals of thunder - sealed up
@@ -89,27 +90,44 @@
 #### John commanded to take the little book and eat it (in stomach it will be bitter but in mouth it will be sweet)
 #### John told he must prophesy again concerning many peoples and nations and tongues and kings.
 ## 11
-#### The two witnesses - second woe
+#### The two witnesses
 #### witnesses prophesy for 1260 days
 #### witnesses are 2 olive trees and 2 lampstands that stand before the Lord of the earth
 #### Witnesses killed
 #### Witnesses raised from dead after three and one-half days
-#### Great earthquake
-#### Seventh trumpet: Announcement from loud voices in heaven "The kingdom of the world has become the kingdom of our Lord and of His Christ; and He will reign forever and ever"
+#### Great earthquake, tenth of city fell, 7000 killed, rest terified and gave glory to God
+#### Second woe is past
+#### Seventh trumpet (third woe): Announcement from loud voices in heaven "The kingdom of the world has become the kingdom of our Lord and of His Christ; and He will reign forever and ever"
+#### The Elders worship: You have begun to reign. Time came for dead to be judged, to reward bond-servants, to destroy those who destroy the earth
+#### Temple opened, ark appeared, lightning, thunder, earthquake, hailstorm
+
 ## 12
 #### Great sign appeared in heaven: Woman clothed in sun, moon under her feet, crown of 12 stars, with child, in labor pains
 #### Another sign in heaven - red dragon, tail swept away one third
 #### Woman gave birth to a son, male, to rule all the nations with a rod of iron, caught up to God and to His throne
 #### Woman fled into the wilderness, prepared by God, to be nourished for 1260 days
-#### War in heaven: Michael vs. dragon, dragon and his armies thrown down from heaven
+#### War in heaven: Michael vs. dragon, dragon(devil, satan) and his armies thrown down from heaven to earth
+#### Loud voice from heaven: Now has come salvation, power, kingdom of God, authority of Christ for the accuser has been thrown down
 #### Woe to the earth and the sea because the devil has come down to you, have great wrath, knowing that he has only a short time.
-#### Two wings of an eagle given to the woman to fly into the wilderness to be nourished for time and times and half a time from the presence of the serpent
-#### Serpent poured water to sweep the woman away but earth helped the woman
+#### Dragon persecuted the woman
+#### Two wings of the great eagle given to the woman to fly into the wilderness to be nourished for time and times and half a time from the presence of the serpent
+#### Serpent poured water like a river to sweep the woman away but earth helped the woman
 #### Dragon was enraged and went off to make war with the rest of her children who keep the commandments of God and hold to the testimony of Jesus
 
 ## 13
-### Beast coming up out of the sea
+#### Beast coming up out of the sea
+
+##### Dragon gives him authority
+##### Authority for forty two months
+##### Authority to war and overcome the saints
 #### Beast coming up out of the earth
+##### Causes worship of first beast
+##### Deceiving signs
+##### Commands an image of the beast to be made
+##### Gives breath to the image of the beast
+##### Causes humans to receive the mark of the beast
+##### No one allowed to buy or sell without the mark of the beast
+
 
 ## 14
 #### Saw Lamb standing on Mt Zion with 144,000
@@ -122,9 +140,9 @@
 #### Another angel saying "Fallen is Babylon the great"
 #### Another angel announcing doom for worshippers of the beast
 #### Write, blessed are the dead who die in the Lord from now on
-#### Angel told to swing his sickle because the harvest of the earth is ripe; the earth was reaped
-#### Angel who has power over fire tell another angel to swing his sickle and gather the clusters from the vine of the earth and throw them into the great wine press of the wrath of God
-#### Blood from wine press came out as high as a horse's bridle for two hundred miles.
+#### An angel tells 'one like a son of man' who is sitting on a cloud, to swing his sickle because the harvest of the earth is ripe and the hour to reap has come; the earth was reaped
+#### Angel who has power over fire tells another angel to swing his sickle and gather the clusters from the vine of the earth (for they are ripe) and throw them into the great wine press of the wrath of God
+#### Blood from wine press came out (outside the city) as high as a horse's bridle for two hundred miles.
 ## 15
 #### Another sign in heaven
 #### Seven angels with seven plagues
