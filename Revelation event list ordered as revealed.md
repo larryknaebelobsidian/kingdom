@@ -145,10 +145,9 @@
 #### Blood from wine press came out (outside the city) as high as a horse's bridle for two hundred miles.
 ## 15
 #### Another sign in heaven
-#### Seven angels with seven plagues
-#### Those victorious over the beast standing on a sea of glass
-#### They sang the song of Moses
-#### Seven angels came out of the temple
+#### Seven angels with seven plagues (in these the wrath of God is finished)
+#### Those victorious over the beast standing on a sea of glass singing the song of Moses
+#### Seven angels came out of the temple and given seven bowls of the wrath of God
 #### Temple filled with smoke
 #### No one able to enter the temple until the seven plagues were finished
 ## 16
@@ -165,15 +164,14 @@
 #### They gathered them together to a place called in Hebrew Har-Magedon.
 #### Seventh bowl: Lightning, thunder, great earthquake, huge hailstones
 ## 17
-#### The great harlot
-#### The beast
-#### The ten horns
+#### An angel shows the judgement of the great harlot
+#### The beast, seven heads, ten horns
 #### The waters where the harlot sits are peoples, multitudes, nations and tongues
 #### The ten horns will hate the harlot and burn her with fire
 #### The woman is the great city which reigns over the kings of the earth
 ## 18
 #### Angel announces "Babylon is fallen"
-#### Come out of her my people
+#### 'Come out of her my people'
 #### Strong angel throws great millstone into sea and says "So will Babylon be thrown down with violence"
 ## 19
 #### Hallelujah - great multitude in heaven says: the great harlot has been judged and God as avenged the blood of His bond-servants
@@ -190,18 +188,16 @@
 #### Rider strikes down the nations with the sword from his mouth
 #### He will rule them with a rod of iron
 #### He treads the wine press of the fierce wrath of God
-#### KING OF KINGS, AND LORD OF LORDS
+#### Written on his robe and thigh: KING OF KINGS, AND LORD OF LORDS
 #### Announcement to all the birds to assemble for the great supper of God
 #### Beast, kings, armies assembled to make war against rider and rider's army
 #### Beast and false prophet thrown alive into lake of fire
-#### Rest (of assembled armies) were killed with the sword of the rider's mouth
-
-
+#### Rest (*of assembled armies*) were killed with the sword of the rider's mouth
 
 ## 20
 #### Satan bound for 1000 years
-#### Thrones and judgement
-#### Resurrection of martyrs and non-marked
+#### Sees: Thrones , those seated on the thrones,  judgement given to them
+#### Resurrection of martyrs and those who did not receive the mark of the beast
 #### The rest of the dead raised after 1000 years completed
 #### First resurrection
 #### Reign with Christ for a 1000 years
@@ -217,7 +213,7 @@
 #### Sea gave up the dead
 #### Death and Hades gave up the dead
 #### Judgement according to their deeds
-#### If name was not found written in the book of life, thrown into lake of fire
+#### If their name was not found written in the book of life, thrown into lake of fire
 ## 21
 #### New heaven and new earth
 #### First heaven and first earth passed away
@@ -234,8 +230,8 @@
 #### the bride, wife of the Lamb
 #### Gates named per 12 tribes of Israel
 #### 12 foundation stones - names of the apostles
-#### Size described
-#### Appearance descrbed
+#### Size: 1500 cubic miles, 72 yard high walls
+
 #### No temple - Lord and Lamb are its temple
 
 #### Nations will walk by its light
@@ -245,14 +241,12 @@
 #### Nothing unclean, abominators, liars will enter
 #### Only those whose name written in Lamb's book of life will enter
 
-
 ## 22
 #### Showed me river of the water of life
 #### Tree of life
 #### No longer any curse
 #### Throne of God and throne of Lamb in it
-#### Bond-servants will serve him
-#### Bond-servants will see His face
+#### Bond-servants will serve him and see His face
 #### His name will be on bond-servants foreheads
 #### No longer any night
 #### No need of sun because the Lord God will illumine them
