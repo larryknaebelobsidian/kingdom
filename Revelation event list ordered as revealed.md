@@ -105,7 +105,7 @@
 #### Temple opened, ark appeared, lightning, thunder, earthquake, hailstorm
 
 ## 12
-#### Great sign appeared in heaven: Woman clothed in sun, moon under her feet, crown of 12 stars, with child, in labor pains
+#### Great sign appeared in heaven: Woman clothed in sun, moon under her feet, crown of 12 stars, pregnant with child, in labor pains
 #### Another sign in heaven - red dragon, tail swept away one third
 #### Woman gave birth to a son, male, to rule all the nations with a rod of iron, caught up to God and to His throne
 #### Woman fled into the wilderness, prepared by God, to be nourished for 1260 days
