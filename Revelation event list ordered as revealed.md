@@ -13,7 +13,7 @@
 ## 2
 #### Letter to Ephesus
 ##### Left your first love
-##### Remember, repent, do you first deeds
+##### Remember, repent, do your first deeds
 ##### Else, I will remove your lampstand out of its place
 ##### Him who overcomes I will grant to eat of the tree of life which is in the paradise of God
 #### Letter to Smyrna
