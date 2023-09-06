@@ -46,3 +46,6 @@ But as for you, go _your way_ to the end; then you will enter into rest and stan
 >No other interpretation, therefore, can be affixed to this, than that it implies the doctrine of the resurrection of the dead, and that the mind of Daniel was directed onward to that.
 >p. 248 Vol 2 Prop. 126 Obs. 3
 
+Ezek. 37:1-14 - Valley of Dry Bones
+Isa. 26:19
+
