@@ -64,4 +64,10 @@ Isa. 26:19
 >This doctrine of a literal Pre-Millennial resurrection we admit, is* *Jewish*.” This term of reproach (given in this sense by man) we cheerfully accept, for it is a distinguishing feature of our faith, seeing that we find it in the covenant given *to Jews*, in *Jewish* Prophets, in the teaching of a *Jewish* Saviour and *Jewish* apostles, and in agreement with *Jewish* statements of doctrine; and that only such who are engrafted into the Abrahamic stock and become members of the *Jewish* commonwealth, shall participate in it. It belongs pre-eminently to the introduction of that Theocratic-Davidic Kingdom promised to the *Jewish* select nation. Even Rabbinical lore is full of intimations intimations respecting it. That, therefore, which forms such an objectionable feature to many, is only *an additional reason* for retaining it. (Comp. e.g. Prop. 68.)
 >p. 260 Vol 2 Prop. 126 Obs. 7
 
+>the Rabbins (Tract Sanhedrin, 2) as quoting such passages as Deut. 31:16, and 1:8 in favor of a resurrection.
+>p. 261 Vol 2 Prop. 126 Obs. 7 note
+
+>One reason, apparently, why the resurrection is more prominently given by Daniel, Ezekiel, and others is the following: The resurrection is allied with a *restored* Theocracy
+>p. 261 Vol 2 Prop. 126 Obs. 7 note
+
 
