@@ -49,3 +49,19 @@ But as for you, go _your way_ to the end; then you will enter into rest and stan
 Ezek. 37:1-14 - Valley of Dry Bones
 Isa. 26:19
 
+>in the Scriptures a moral change of the soul is uniformly held to be a *prelude* to a blessed resurrection of the body unto life
+>p. 250 Vol 2 Prop. 126 Obs. 4
+
+>the language of Jesus addressed to Jews is a confirmation of a literal resurrection. (John 5:28,29)
+>p. 251 Vol 2 Prop. 126 Obs. 4
+
+>The covenant, if Abraham, Isaac, and Jacob are *to personally inherit* the land, the covenant promises, if the meek are to *inherit* the land, etc., absolutely *demands* just such bringing of the dead ones *into* the land of Israel, *the promised inheritance*.
+>p. 251 Vol 2 Prop. 126 Obs. 4
+
+>For the word translated "*regeneration*" means "*born again*", and was anciently employed to denote the resurrection.
+>p. 257 Vol 2 Prop. 126 Obs. 6
+
+>This doctrine of a literal Pre-Millennial resurrection we admit, is* *Jewish*.” This term of reproach (given in this sense by man) we cheerfully accept, for it is a distinguishing feature of our faith, seeing that we find it in the covenant given *to Jews*, in *Jewish* Prophets, in the teaching of a *Jewish* Saviour and *Jewish* apostles, and in agreement with *Jewish* statements of doctrine; and that only such who are engrafted into the Abrahamic stock and become members of the *Jewish* commonwealth, shall participate in it. It belongs pre-eminently to the introduction of that Theocratic-Davidic Kingdom promised to the *Jewish* select nation. Even Rabbinical lore is full of intimations intimations respecting it. That, therefore, which forms such an objectionable feature to many, is only *an additional reason* for retaining it. (Comp. e.g. Prop. 68.)
+>p. 260 Vol 2 Prop. 126 Obs. 7
+
+
