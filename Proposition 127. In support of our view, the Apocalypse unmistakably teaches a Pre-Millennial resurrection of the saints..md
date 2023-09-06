@@ -6,3 +6,6 @@ subjects:
   - advent stages
 ---
 #toc
+
+## Props Mentioned
+[[Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.|75]] 
