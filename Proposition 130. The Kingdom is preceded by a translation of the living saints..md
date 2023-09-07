@@ -84,7 +84,7 @@ My current view, before reading Peters, is that Peters' "translation" equals the
 
 ### Obs. 2
 #### FOR and WITH
-Jesus coming "for of in behalf" of His saints (1 Thess. 3:14-17; 1 Cor. 15:51,52) and Jesus coming "with all" His saints (Zech. 14:5; Rev. 19:14; 1 Thess. 3:13; Jude 14,15)
+Jesus coming "for or in behalf" of His saints (1 Thess. 3:14-17; 1 Cor. 15:51,52) and Jesus coming "with all" His saints (Zech. 14:5; Rev. 19:14; 1 Thess. 3:13; Jude 14,15)
 
 
 FOR His saints 1 Th. 3:14-17; 1 Cor. 15:51-52||WITH His saints Zech. 14:5; Rev. 19:14; 1 Th. 3:13; Jude 14,15
