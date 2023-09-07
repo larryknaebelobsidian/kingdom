@@ -23,6 +23,11 @@ Who gets translated and when? (this seems to be related to rewards ([[Propositio
 
 Prop. 149 - Peters says the conflagration comes BEFORE the millennium.  How does this agree with Revelation 21 (AFTER) Revelation 20?
 
+## 144,000
+Peters appears to believe that the sealing of the 144,000 (Rev 7) means that they are removed from the world.
+
+Peters also appears to believe that the 144,000 seen with the Lamb on Mt. Zion, mentioned in Rev. 14, is a different group than the 144,000 mentioned in Rev. 7.
+
 
 
 
