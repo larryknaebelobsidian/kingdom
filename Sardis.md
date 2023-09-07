@@ -5,13 +5,13 @@ He who has the:
 - seven Spirits of God
 - seven stars
 
-### The Considerations
+### Considerations
 Judge knows
 - your deeds
 - you have a name that you are alive but you are dead
 - you have a few people in Sardis who have not soiled their garments
 
-
+### Verdict
 I have not found your deeds completed in the sight of My God
 ### Corrective Action
 Wake up
