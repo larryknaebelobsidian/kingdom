@@ -48,22 +48,37 @@ My current view, before reading Peters, is that Peters' "translation" equals the
 
 #### One Coming ... Series of Acts
 
-> "prophetical writers are also agreed that what is called the Sec. Advent (the Advent itself as distinguished from the reign and Kingdom that follows) is not to be regarded as simple one act, but embracing a series of acts connected with the one Coming (for when Jesus comes again He remains upon earth).  That is, the Sec. Advent is to be considered more in the light of the First Advent (which latter embraced not less than thirty-three years, and numerous acts predicted as related to His coming), as something which, owing to a variety of things prophesied concerning it, cannot possibly be limited to a few years." (p. 315 Vol 2)
+> "prophetical writers are also agreed that what is called the Sec. Advent (the Advent itself as distinguished from the reign and Kingdom that follows) is not to be regarded as simple one act, but embracing a series of acts connected with the one Coming (for when Jesus comes again He remains upon earth).  That is, the Sec. Advent is to be considered more in the light of the First Advent (which latter embraced not less than thirty-three years, and numerous acts predicted as related to His coming), as something which, owing to a variety of things prophesied concerning it, cannot possibly be limited to a few years." 
+> p. 315 Vol 2 Prop. 130 Obs. 1
 
-> "Comparing all the events that are included in the Sec. Advent, it is simply impossible, without great violation of order, etc., to crowd them all together as the instantaneous resultants of such a Coming." (p. 315 Vol 2)
+> "Comparing all the events that are included in the Sec. Advent, it is simply impossible, without great violation of order, etc., to crowd them all together as the instantaneous resultants of such a Coming." 
+> p. 315 Vol 2 Prop. 130 Obs. 1
 
-> "This, then, impresses caution in not compressing what is intimated concerning the translation or removal of saints necessarily to one transaction or day" (p. 315 Vol 2)
+> "This, then, impresses caution in not compressing what is intimated concerning the translation or removal of saints necessarily to one transaction or day" 
+> p. 315 Vol 2 Prop. 130 Obs. 1
 
 #### Over a Period of Time
 
-> "writers now generally attribute to this introductory manifestation a period of seven years, or forty years, and of (thirty and forty conjoined) seventy years. (Considering the events to follow the Advent before the overthrow of Antichrist, such as the development of the confederation, the return of a portion of the Jews to Palestine, the doom of the harlot, etc., the longer periods are preferable)" (p. 315 Vol 2)
+> "writers now generally attribute to this introductory manifestation a period of seven years, or forty years, and of (thirty and forty conjoined) seventy years. (Considering the events to follow the Advent before the overthrow of Antichrist, such as the development of the confederation, the return of a portion of the Jews to Palestine, the doom of the harlot, etc., the longer periods are preferable)" 
+> p. 315 Vol 2 Prop. 130 Obs. 1
 
 #### 7, 40, 70 years
 
+>Again, analogy favors the removal of the righteous in a time of severe and terrible judgment intended for the wicked, as in the case of Noah, Lot, the early believers at Jerusalem, etc., while previous translations are not lacking, as in the case of Enoch and Elijah.
+>p. 315-316 Vol 2 Prop. 130 Obs. 1
 
-> "It is universally admitted by Millenarians that "the day of the Lord Jesus" is preceded not only by "a morning", but that it virtually begins in "the night"; Christ representing His Coming to be when it is yet "night", He being "the morning star", which ushers in "the morning" of the glorious day." (p. 316 Vol 2)
+>The Second Advent inaugurates a series of most tremendous judgments, both upon the Church and the world—so terrific that they are constantly pointed out as *the culmination culmination of God’s wrath*—and it is reasonable to suppose, judging from God’s past dealings, that He again will grant *special deliverance* to those who are devoted to Him. At this time also, the removal being designed not only to save out of tribulation, but to prepare the saints, deemed worthy of it, *for promised rulership then to be instituted, and for joint participation* in the administration of judgments upon the nations, a translation accompanied by the same transforming change, glorification, which the resurrected saints experience, is precisely that which we ought to anticipate.
+>p. 316 Vol 2 Prop. 130 Obs. 1
 
-> "This refers the resurrection and translation of a chosen body to "the night", i.e. to the close of this dispensation, as preparatory to the introduction of an incoming one." (p. 316 Vol 2)
+
+> "It is universally admitted by Millenarians that "the day of the Lord Jesus" is preceded not only by "a morning", but that it virtually begins in "the night"; Christ representing His Coming to be when it is yet "night", He being "the morning star", which ushers in "the morning" of the glorious day." 
+> p. 316 Vol 2 Prop. 130 Obs. 1
+
+> "This refers the resurrection and translation of a chosen body to "the night", i.e. to the close of this dispensation, as preparatory to the introduction of an incoming one." 
+> p. 316 Vol 2 Prop. 130 Obs. 1
+
+>Again, critical writers in investigating 2 Thess. 2:2 have shown that the word translated “is at hand” (in the phrase “the day of Christ (or Lord) is at hand”) means, correctly rendered, “is come or “has come,” i.e. is something already present, and not something still future. This correctly explains the trouble and alarm of the Thessalonian brethren, who were certainly not afraid of “the blessed hope,” which Paul says they waited for (1 Thess. 1:10), and for which they were prepared (1 Thess. 2:19 and 3:13, and 5:4, 5), but apprehending that “the day of Christ” had already come, and they not having experienced the promised translation, and their pious dead being still with them without an experienced resurrection, they were troubled and distressed at the thought. Those brethren with hearts full of love for the Saviour were not so fearful that they would desire and pray (as multitudes now) that the blessed Lord should delay His Coming, but, in some way misapprehending the real state of affairs, they believed that the initiatory proceedings belonging to the day of Christ had already commenced, and that they and their pious dead were left without realizing the exceeding precious promises given to them. This simple change in a single word, supported too by the strongest of evidence, explains not only the cause of the Thessalonians’ trouble (which Paul proceeds to remove by showing that an apostasy must first come to develop into the predicted Antichrist, implying that such an apostasy with its result necessarily required time, still in the future, before “the day of Christ” came), but throws much light, corroborative, on the subject of the resurrection and the translation of the saints. For, to cause such trouble they must have believed that” the day of Christ” would be inaugurated by preliminaries unseen by the world, and that the resurrection and translation would both be invisible, and they, not participating were doomed to terrible tribulation, or that the predictions were false.
+>p. 316-317 Vol 2 Prop. 130 Obs. 1
 
 
 

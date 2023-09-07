@@ -24,7 +24,7 @@ What is the relationship between resurrection and Peters' translation?
 Are there more than two resurrections per Peters? If so, how many?
 
 Is Peters' "translation" the same as the rapture?
-	144,000 in Rev. 7 are sealed (Peter's believes translated)
+	144,000 in Rev. 14 are purchased from thee earth (Peter's believes translated?)
 	Earth is reaped (Rev. 14:16) Is this both a translation and resurrection?
 
 Is there more than one rapture per Peters ("translation" of living saints - this is the word used by Peters)? If so, how many?
