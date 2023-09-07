@@ -6,6 +6,8 @@ subjects:
   - translation
 ---
 #toc
+## Props Mentioned
+[[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.|171]] 
 
 >the Theocratic king will also have His associated rulers assuring the moat ‘perfect administration of the laws, and securing the most perfect government, government, productive of peace, prosperity, and happiness, such as the world has never yet witnessed.
 >p. 570 Vol. 2 Prop. 154
@@ -41,7 +43,7 @@ Joel 3:11; Matt. 24:30, 31; 2 Thess. 2:1; 1 Thess. 4:16, 17,
 >Reference is again made to this in order that the reader may consider that “heirship of a Kingdom,” and “the inheriting of a Kingdom” embraces much more than a mere admittance into and enjoyment of the blessings of a Kingdom. It evinces the coming into such actual possession of a Kingdom as is alone met by the idea of a participancy in government and of regal authority.
 >p. 578 Vol. 2 Prop. 154 Obs. 5
 
->Thus Rev. 2:26:44 And he that overcometh and keepeth My words unto the end, to him will I give power over the nations, and he shall rule them with a rod of iron, as the vessels of a potter shall they be broken in shivers, even as 1 received from My Father.”
+>Thus Rev. 2:26-27 And he that overcometh and keepeth My words unto the end, to him will I give power over the nations, and he shall rule them with a rod of iron, as the vessels of a potter shall they be broken in shivers, even as I received from My Father.”
 >p. 578 Vol. 2 Prop. 154 Obs. 5
 
 >So also the Psalmist (Ps. 140:5-9) makes “the saints joyful in glory” at the appearance of “their king” and declares: 45 Let the high praises of God be in their mouth and a two-edged sword in their hand; to execute vengeance upon the heathen, and punishments upon the people; to bind their kings with chains, and their nobles with fetters of iron; to execute upon them the judgment written:—this honor have all His saints. Praise ye the Lord”
