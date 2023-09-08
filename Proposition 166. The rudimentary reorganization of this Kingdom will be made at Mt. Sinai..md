@@ -27,7 +27,29 @@ subjects:
 >Isa. 63:1-6 cannot possibly, without the grossest inconsistency, be applied to the First Advent of Jesus. For, aside from other reasons, it is not true that He then came in anger, fury and vengeance, and shed the blood of His enemies, until His own garments were stained, seeing that His mission was one of love, mercy and submission to death. But at His Second Advent numerous passages *expressly mention* wrath, vengeance on enemies, and a fearful slaughter and supper. It is therefore a description *only applicable* to the Second Advent, as the early Church taught (see Prop. 121). But the prophet in vision sees Him Coming from the direction of Mt. Sinai, asking: “*Who is this that cometh from Edom, with dyed garments from Bozrah*? Indeed, when we come to compare Scripture with Scripture, we have *the route* taken by the mighty King *from Mt. Sinai until He arrives at Jerusalem* clearly pointed out. Prophecy distinctly mentions Mt. Sinai, Paran, the Wilderness, Mt. Seir, Edom, Teman or the South, Bozrah, giving us *a direct route* from Sinai *northward* to Palestine. This does not occur *by chance, but is descriptive of what shall truly take place*. Having the Mighty One with His Saints manifested at Sinai, and also by way of the wilderness of Paran on through Idumea, it seems to us faithless not to accept of these things.
 >p. 22 Vol. 3 Prop 166 Obs. 5
 
-
+Isaiah 63:1-6 (LSB)
+Who is this who comes from Edom,
+With garments of glowing colors from Bozrah,
+This One who is majestic in His clothing,
+Marching in the greatness of His power?
+“It is I who speak in righteousness, mighty to save.”
+2 Why is Your clothing red,
+And Your garments like the one who treads in the wine press?
+3 “I have trodden the wine trough alone,
+And from the peoples there was no man with Me.
+I also trod them in My anger
+And trampled them in My wrath;
+And their lifeblood is sprinkled on My garments,
+And I stained all My clothes.
+4 For the day of vengeance was in My heart,
+And My year of redemption has come.
+5 I looked, and there was no one to help,
+And I was astonished, and there was no one to uphold;
+So My own arm brought salvation to Me,
+And My wrath upheld Me.
+6 I trod down the peoples in My anger
+And made them drunk in My wrath,
+And I brought down their lifeblood to the earth.”
 
 
 
