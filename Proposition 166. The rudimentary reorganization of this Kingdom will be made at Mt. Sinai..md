@@ -5,6 +5,8 @@ subjects:
   - advent stages
 ---
 #toc
+## Props Mentioned
+[[Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ.|121]] 
 
 >The organization of the Theocracy was affected before the Jewish nation entered Palestine. The appointment of officials, the giving of laws, the commandments to destroy the enemies of God, etc., were issued at Mt. Sinai. It is eminently suitable that the reorganization of the same should be effected in the same place.
 >p. 17 Vol. 3 Prop 166
@@ -21,6 +23,10 @@ subjects:
 
 >A comparison of Scripture shows, that when the saints are removed by the power of resurrection and translation, they *do not remain in “the air,”* but are conveyed *to Mt. Sinai*, where, as at the establishment of the Theocracy, *positions* are assigned, *the kingship and priesthood* inaugurated, the *instructions* given preparatory to the ushering in of “the dispensation of the fulness of times.” After all the preparations are completed, and the time has come for “*the manifestation of the sons of God*,” the deliverance of the Jewish nation, the destruction of Antichrist, *this associated body of Rulers with the King of kings at their head* (Rev. 19) present themselves to the confusion of ail enemies, and to the joy of the ancient elect nation.
 >p. 19 Vol. 3 Prop 166 Obs. 3
+
+>Isa. 63:1-6 cannot possibly, without the grossest inconsistency, be applied to the First Advent of Jesus. For, aside from other reasons, it is not true that He then came in anger, fury and vengeance, and shed the blood of His enemies, until His own garments were stained, seeing that His mission was one of love, mercy and submission to death. But at His Second Advent numerous passages *expressly mention* wrath, vengeance on enemies, and a fearful slaughter and supper. It is therefore a description *only applicable* to the Second Advent, as the early Church taught (see Prop. 121). But the prophet in vision sees Him Coming from the direction of Mt. Sinai, asking: “*Who is this that cometh from Edom, with dyed garments from Bozrah*? Indeed, when we come to compare Scripture with Scripture, we have *the route* taken by the mighty King *from Mt. Sinai until He arrives at Jerusalem* clearly pointed out. Prophecy distinctly mentions Mt. Sinai, Paran, the Wilderness, Mt. Seir, Edom, Teman or the South, Bozrah, giving us *a direct route* from Sinai *northward* to Palestine. This does not occur *by chance, but is descriptive of what shall truly take place*. Having the Mighty One with His Saints manifested at Sinai, and also by way of the wilderness of Paran on through Idumea, it seems to us faithless not to accept of these things.
+>p. 22 Vol. 3 Prop 166 Obs. 5
+
 
 
 
