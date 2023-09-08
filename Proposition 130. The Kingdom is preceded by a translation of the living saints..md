@@ -68,7 +68,7 @@ My view, before reading Peters, is that the Bible word "rapture" only applies to
 >Again, analogy favors the removal of the righteous in a time of severe and terrible judgment intended for the wicked, as in the case of Noah, Lot, the early believers at Jerusalem, etc., while previous translations are not lacking, as in the case of Enoch and Elijah.
 >p. 315-316 Vol 2 Prop. 130 Obs. 1
 
-## Removal for deliverance and preparation
+### Removal for deliverance and preparation
 
 >The Second Advent inaugurates a series of most tremendous judgments, both upon the Church and the world—so terrific that they are constantly pointed out as *the culmination of God’s wrath*—and it is reasonable to suppose, judging from God’s past dealings, that He again will grant *special deliverance* to those who are devoted to Him. At this time also, the removal being designed not only to save out of tribulation, but to prepare the saints, deemed worthy of it, *for promised rulership then to be instituted, and for joint participation* in the administration of judgments upon the nations, a translation accompanied by the same transforming change, glorification, which the resurrected saints experience, is precisely that which we ought to anticipate.
 >p. 316 Vol 2 Prop. 130 Obs. 1
@@ -87,7 +87,7 @@ My view, before reading Peters, is that the Bible word "rapture" only applies to
 
 
 ### Obs. 2
-#### FOR and WITH
+### FOR and WITH
 Jesus coming "for or in behalf" of His saints (1 Thess. 3:14-17; 1 Cor. 15:51,52) and Jesus coming "with all" His saints (Zech. 14:5; Rev. 19:14; 1 Thess. 3:13; Jude 14,15)
 
 
@@ -105,7 +105,7 @@ eagles/vultures - saints
 body - followers of the antichrist
 
 ### Obs. 4
-***One class of believers kept from the great tribulation and another class goes into it.***
+### ***One class of believers kept from the great tribulation and another class goes into it.***
 
 Rev 7 - 144,000 - note: Peters says this 144,000 is a different group than the 144,000 of chapter 14
 
@@ -115,7 +115,7 @@ Rev 7 - great multitude from every nation
 > "hiding of the saints when this time of trouble, this storm of persecution and fury bursts upon the Church and world" (p. 325 Vol 2)
 
 ### Obs. 6
-#### Translation will be unwitnessed but known to the nations.
+### Translation will be unwitnessed but known to the nations.
 
 > "It is likely, however, from the consultation of the wicked against them, that while the removal is allowed it will be attributed to natural causes, or to a concerted movement, and that all reference to its supernatural occurrence will be stoutly denied" (p. 327 Vol 2)
 
@@ -124,7 +124,7 @@ Rev 7 - great multitude from every nation
 
 
 ### Obs. 7
-#### Multiple Translations
+### Multiple Translations
 
 > "the astonishing [[removal of certain chosen ones]], accounted worthy, owing to their distinctive faith in God's promises, to escape" (p. 327 Vol 2)
 
@@ -134,7 +134,7 @@ Rev 7 - great multitude from every nation
 
 > "The Church, then starting up with Abrahamic faith will recognize its chronological position, will see what is before it, and, energetically infused by fear and hope, prepare itself for the fearful ordeal through which it must pass. And we are assured that the Church in this contest, overpowered as she will be, will sustain the persecution with triumphant faith, feeling convinced from the events occurring and the time elapsed, that the Son of Man is even already present, waiting for the moment of direct interference." (p. 327-328 Vol 2)
 
-##### ***Peters believes that the majority of Christians (but not all) will be [[left behind]] to experience the tribulation***
+### ***Peters believes that the majority of Christians (but not all) will be [[left behind]] to experience the tribulation***
 
 ### Restrainer
 ### Obs. 8
