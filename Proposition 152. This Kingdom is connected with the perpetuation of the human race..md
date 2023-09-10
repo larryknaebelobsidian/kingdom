@@ -38,5 +38,20 @@ subject:
 >Thus Dr. Brown informs us that “the Church will be absolutely complete at Christ’s Coming,” and implies from this that after that *no others* will be saved. Aside from our direct arguments in various Propositions which prove that such a conclusion is erroneous, it is sufficient to say that our doctrine itself embraces *the completeness of the elect* (i.e. those gathered out and accounted worthy to become kings and priests), who become “*the first-fruits*,” “*the Church of the first-born*” associated with Christ in rulership, etc. The Scriptures teaching *such completeness*, which is consistent with the Plan of the administrations of the Kingdom, do not at the same time declare that no others—*after this specific number* of chosen ones are gathered—shall be saved. To say this is *adding* to the Word of God, and is not *to distinguish between things* that belong to different dispensations.
 >p. 542 Vol. 2 Prop. 152 Obs. 4
 
+>we have the Jewish nation converted by the appearance of the Messiah, and the spared of the Gentiles also receive and cordially embrace *the truth as it is in Jesus*. The universality of language does not by any means forbid the future conversion of nations under the administrations of King Jesus; for the wicked shall perish at the Coming of Jesus (as a class, those who are given up as incorrigible—even among the Jews), and yet some, who are willing to become *repentant and obedient*, shall be saved.
+>p. 543 Vol. 2 Prop. 152 Obs. 4
+
+>the race’s grand destiny; which bind the predictions from the earliest to the latest prophet info one connected chain of evidence testifying that the Kingdom of David’s Son is established here on the earth for the express purpose of unfolding and carrying on the eternal purposes of God respecting the race, for a time (“a moment”) delayed by the fall of man and the procedure required for redemption.
+>p. 543-544 Vol. 2 Prop. 152 Obs. 4
+
+
+>The “unchangeable priesthood” priesthood” of Jesus Christ (Prop. 155), as well as the priestly office of His associated rulers (Prop. 156), certainly implies that there must be generations of men who are to be benefited by that priesthood extending into “the ages, seeing that it is founded on the adaptation and relation that it sustains to those (not glorified saints who themselves become “priests”) whom it is designed to benefit. The intercession is not limited and made intermediate between the two Advents. Thus also, the work of the Spirit for saving purposes is not confined to this dispensation (Prop. 171), etc., but extends into the age to come, where its greatest manifestations—in glorifying the saints, in converting, etc., the nations—are yet to be witnessed.
+>p. 545 Vol. 2 Prop. 152 Obs. 5
+
+>. . . —simply faithless to suppose that the conflagration of Peter (Prop. 149 and 150) is to prevent the fulfilment of this perpetuation of the race.
+>p. 546 Vol. 2 Prop. 152 Obs. 5
+
+
+
 
 
