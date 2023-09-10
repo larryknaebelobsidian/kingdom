@@ -3,6 +3,8 @@ pagecount: 12
 observationcount: 5
 subjects:
   - inspiration
+completion: 1
+id: 5
 ---
 #toc
 ## Props Mentioned

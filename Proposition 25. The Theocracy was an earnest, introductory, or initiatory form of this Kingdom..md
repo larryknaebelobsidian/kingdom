@@ -1,6 +1,8 @@
 ---
 pagecount: 6
 observationcount: 6
+id: 25
+completion: 1
 ---
 #toc
 #keyproposition

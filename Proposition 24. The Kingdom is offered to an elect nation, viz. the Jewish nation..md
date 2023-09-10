@@ -3,6 +3,8 @@ pagecount: 9
 observationcount: 9
 subjects:
   - elect nation
+id: 24
+completion: 1
 ---
 #toc
 #keyproposition
