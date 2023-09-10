@@ -9,9 +9,11 @@ SORT id
 
 LIST
 FROM #toc
-WHERE completion = 1 and completion != null
+WHERE completion = 0 and completion != null
 SORT id
 `````
+
+
 
 
 
