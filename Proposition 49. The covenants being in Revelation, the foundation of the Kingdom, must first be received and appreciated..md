@@ -3,6 +3,8 @@ pagecount: 27
 observationcount: 34
 subjects:
   - covenant
+id: 49
+completion: 1
 ---
 #toc
 #keyproposition 

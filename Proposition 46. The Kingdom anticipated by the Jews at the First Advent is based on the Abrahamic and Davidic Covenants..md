@@ -3,6 +3,8 @@ pagecount: 2
 observationcount: 4
 subjects:
   - covenant
+id: 46
+completion: 0.8
 ---
 [[Abrahamic Covenant]]
 [[Davidic Covenant]]

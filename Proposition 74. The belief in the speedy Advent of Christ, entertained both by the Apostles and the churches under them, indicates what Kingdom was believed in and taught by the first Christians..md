@@ -3,6 +3,8 @@ pagecount: 10
 observationcount: 10
 subjects:
   - gathering
+id: 74
+completion: 1
 ---
 #toc
 

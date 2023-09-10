@@ -4,6 +4,8 @@ observationcount: 15
 subjects:
   - gathering
   - elect nation
+id: 65
+completion: 0.8
 ---
 #toc
 

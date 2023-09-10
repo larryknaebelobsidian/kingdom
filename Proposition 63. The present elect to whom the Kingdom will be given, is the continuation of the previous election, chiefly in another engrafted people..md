@@ -3,6 +3,8 @@ pagecount: 4
 observationcount: 7
 subjects:
   - elect nation
+id: 63
+completion: 0.8
 ---
 #toc
 

@@ -3,6 +3,8 @@ pagecount: 17
 observationcount: 24
 subjects:
   - covenant
+id: 50
+completion: 1
 ---
 [[Abrahamic Covenant]]
 #toc 
