@@ -25,13 +25,15 @@ subject:
 >Irenaeus and Lactantius, . . . at the time of the first resurrection there will be found some good men living upon the earth, and that of them, in the space of a thousand years, shall be born a numerous race, a godly seed, over whom likewise the raised saints are to reign, and by whom they are to be served.
 >p. 539 Vol. 2 Prop. 152 Obs. 3
 
-### There will be millennial unsaved
+### There will be unsaved humans in the Millennium
 
 >Briefly, it would be interesting to trace in what manner this early doctrine, once so prevalent—that the Jewish nation and Gentiles in the flesh *would survive* the Advent, and the fearful judgments then poured out upon the nations, and would form the subjects of that world-wide dominion under Christ and His resurrected brethren—was gradually undermined and finally almost rooted out.
 >p. 539 Vol. 2 Prop. 152 Obs. 4
 
 >no one has ever yet found *a passage within the Bible that directly teaches* that the multiplication of the race ceases after the Advent of Christ;
 >p. 542 Vol. 2 Prop. 152 Obs. 4
+
+### Salvation continues in the Millennium
 
 >Thus Dr. Brown informs us that “the Church will be absolutely complete at Christ’s Coming,” and implies from this that after that *no others* will be saved. Aside from our direct arguments in various Propositions which prove that such a conclusion is erroneous, it is sufficient to say that our doctrine itself embraces *the completeness of the elect* (i.e. those gathered out and accounted worthy to become kings and priests), who become “*the first-fruits*,” “*the Church of the first-born*” associated with Christ in rulership, etc. The Scriptures teaching *such completeness*, which is consistent with the Plan of the administrations of the Kingdom, do not at the same time declare that no others—*after this specific number* of chosen ones are gathered—shall be saved. To say this is *adding* to the Word of God, and is not *to distinguish between things* that belong to different dispensations.
 >p. 542 Vol. 2 Prop. 152 Obs. 4
