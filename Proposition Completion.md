@@ -7,11 +7,13 @@ SORT id
 
 `````dataview
 
-LIST
+TABLE completion
 FROM #toc
 WHERE completion = 0 and completion != null
 SORT id
 `````
+
+
 
 
 
