@@ -29,7 +29,12 @@ completion: 0
 >The Kingdom, its past, present, or future state, forms *the key-note* of Revelation, and in no instance do we find the writers involving themselves in expressions relating to it that are *antagonistic* to each other.
 >p. 468 Vol. 3 Prop. 198 Obs. 1
 
->Unless it can be shown that such a consecutive plan, in itself opposed to the wishes, etc., of the nation, would be suggested by reason, or is a natural result flowing from the powers of man, it is the most reasonable to accept of the only explanation which thus far alone covers the ground, viz., that of inspiration.
+>Unless it can be shown that such a consecutive plan, in itself opposed to the wishes, etc., of the nation, would be suggested by reason, or is a natural result flowing from the powers of man, it is *the most reasonable* to accept of the only explanation which thus far alone covers the ground, viz., that of inspiration.
 >p. 468 Vol. 3 Prop. 198 Obs. 1
+
+>It is a fact, however, worthy of especial notice that not one of our opponents from the early Church down to the present day has ventured to consider the Bible *as a whole*, as containing *one continuous plan*, and has noticed the Rise, Progress, and Result *purposed* by it. In this consists *the strength* of the Bible; in this is found *the great, and overwhelming proof* of its inspiration.
+>p. 469 Vol. 3 Prop. 198 Obs. 2
+
+
 
 
