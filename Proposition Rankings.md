@@ -1,6 +1,6 @@
 This assumes that a greater level of effort was given to those propositions containing the most content.  
 PageCount is the number of pages given to a proposition in the hard copy of the book.  ObservationCount is the number of observations Peters made on the proposition.
-Completion is a number indicating how much of the proposition received notes in Obsidian (1=100%)
+Completion is a number estimating how much of the proposition received notes in Obsidian (1=100%)
 NOTE: The hard copy book contains notes. The Kindle version does not.  I estimate that the notes consist of almost half the size of the book.
 
 `````dataview
