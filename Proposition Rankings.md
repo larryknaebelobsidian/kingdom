@@ -3,7 +3,7 @@ PageCount is the number of pages given to a proposition in the hard copy of the 
 NOTE: The hard copy book contains notes. The Kindle version does not.  I estimate that the notes consist of almost half the size of the book.
 
 `````dataview
-TABLE pagecount AS PageCount, observationcount AS ObservationCount
+TABLE pagecount AS PageCount, observationcount AS ObservationCount, completion AS Completion
 FROM #toc
 SORT pagecount DESC, observationcount DESC
 `````
