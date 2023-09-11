@@ -3,6 +3,8 @@ pagecount: 12
 observationcount: 8
 subjects:
   - advent stages
+id: 166
+completion: 0.5
 ---
 #toc
 ## Props Mentioned

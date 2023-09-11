@@ -3,6 +3,8 @@ pagecount: 16
 observationcount: 7
 subjects:
   - translation
+id: 153
+completion: 0.8
 ---
 #toc
 

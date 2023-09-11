@@ -3,6 +3,8 @@ pagecount: 10
 observationcount: 7
 subject:
   - judgement
+id: 133
+completion: 0.5
 ---
 #toc
 Scripture from LSB
