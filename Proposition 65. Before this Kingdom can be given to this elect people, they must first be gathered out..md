@@ -4,6 +4,7 @@ observationcount: 15
 subjects:
   - gathering
   - elect nation
+  - postponement
 id: 65
 completion: 0.8
 ---
