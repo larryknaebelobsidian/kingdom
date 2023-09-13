@@ -8,6 +8,7 @@ completion: 0.2
 ---
 #toc
 
+
 >Notice: 
 >(1) the Abrahamic covenant out of which arises the Kingdom; 
 >(2) the Theocracy in its initiatory form; 
@@ -32,6 +33,8 @@ completion: 0.2
 >Unless it can be shown that such a consecutive plan, in itself opposed to the wishes, etc., of the nation, would be suggested by reason, or is a natural result flowing from the powers of man, it is *the most reasonable* to accept of the only explanation which thus far alone covers the ground, viz., that of inspiration.
 >p. 468 Vol. 3 Prop. 198 Obs. 1
 
+### One continuous plan - Is it worthy of God? Is it adapted to produce what it intends?
+
 >It is a fact, however, worthy of especial notice that not one of our opponents from the early Church down to the present day has ventured to consider the Bible *as a whole*, as containing *one continuous plan*, and has noticed the Rise, Progress, and Result *purposed* by it. In this consists *the strength* of the Bible; in this is found *the great, and overwhelming proof* of its inspiration.
 >p. 469 Vol. 3 Prop. 198 Obs. 2
 
@@ -40,6 +43,19 @@ completion: 0.2
 
 >While it is reasonable in studying a locomotive to consider its separate portions and descant on their form, etc., it would be folly to confine ourselves only to these and neglect what is of far greater moment to consider, the locomotive as one whole—its capability of performing the work designed by its builder—and then to look at its various parts—not as misshapen or wrongfully constructed when contemplated by themselves irrespective of their designed use—but only in their adaptedness to subserve *the intended end*.
 >p. 469 Vol. 3 Prop. 198 Obs. 2
+
+### Relationship to the whole
+
+>Reason, if true to itself, ought not so much to look at things, or facts, or doctrines, etc., isolated, torn from their connection, but in the relationship that they sustain to a system or purpose. This is true philosophy. Reason is given to discern truth; and to find out *the whole truth*, the most important part of truth, is to ascertain its bearing or affinity to other and more leading or general truths. It is the is feature introduced into science, art, etc., correctly appreciated and carried out, that enhances their interest and value; and the time has arrived when reason conducting the attack upon, or the defence of Bible statements should firmly plant itself on the same ground, viz., rejecting or receiving alleged truths in their unsustained or sustained relationship to the whole.
+>p. 472 Vol. 3 Prop. 198 Obs. 3
+
+>it is of the *utmost importance* that in a discussion involving the inspiration of God’s professed Word, two things should be observed: 
+>(1) that a proper knowledge and estimate of the Kingdom itself should be attained, and 
+>(2) that in virtue of this Kingdom being the End proposed in the Redemptive process, all other announcements, facts, etc., must be regarded in their relationship
+>p. 475 Vol. 3 Prop. 198 Obs. 4 slightly reformatted
+
+>let it be traced in its initiatory establishment, its overthrow, its promised restoration, its predicted glory, etc., and with all this before the mind, lot reason carefully examine its design, its merits, its adaptability to secure the deliverance of man, the race, and the world, and reason must confess that if carried out according to the pre-determined programme laid down in the Word, it will *fully and most perfectly* meet the wants and the desires of humanity.
+>p. 475 Vol. 3 Prop. 198 Obs. 4
 
 
 
