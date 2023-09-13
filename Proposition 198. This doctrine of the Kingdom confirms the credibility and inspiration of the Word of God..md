@@ -59,7 +59,7 @@ completion: 0.2
 >let it be traced in its initiatory establishment, its overthrow, its promised restoration, its predicted glory, etc., and with all this before the mind, lot reason carefully examine its design, its merits, its adaptability to secure the deliverance of man, the race, and the world, and reason must confess that if carried out according to the pre-determined programme laid down in the Word, it will *fully and most perfectly* meet the wants and the desires of humanity.
 >p. 475 Vol. 3 Prop. 198 Obs. 4
 
-### Are the agencies adapted to secure the Kingdom
+### Are the agencies adapted to secure the Kingdom ?
 
 
 
