@@ -49,6 +49,8 @@ completion: 0.2
 >Reason, if true to itself, ought not so much to look at things, or facts, or doctrines, etc., isolated, torn from their connection, but in the relationship that they sustain to a system or purpose. This is true philosophy. Reason is given to discern truth; and to find out *the whole truth*, the most important part of truth, is to ascertain its bearing or affinity to other and more leading or general truths. It is the is feature introduced into science, art, etc., correctly appreciated and carried out, that enhances their interest and value; and the time has arrived when reason conducting the attack upon, or the defence of Bible statements should firmly plant itself on the same ground, viz., rejecting or receiving alleged truths in their unsustained or sustained relationship to the whole.
 >p. 472 Vol. 3 Prop. 198 Obs. 3
 
+### The Kingdom is worthy of God and adapted to fulfil its intent
+
 >it is of the *utmost importance* that in a discussion involving the inspiration of God’s professed Word, two things should be observed: 
 >(1) that a proper knowledge and estimate of the Kingdom itself should be attained, and 
 >(2) that in virtue of this Kingdom being the End proposed in the Redemptive process, all other announcements, facts, etc., must be regarded in their relationship
@@ -56,6 +58,8 @@ completion: 0.2
 
 >let it be traced in its initiatory establishment, its overthrow, its promised restoration, its predicted glory, etc., and with all this before the mind, lot reason carefully examine its design, its merits, its adaptability to secure the deliverance of man, the race, and the world, and reason must confess that if carried out according to the pre-determined programme laid down in the Word, it will *fully and most perfectly* meet the wants and the desires of humanity.
 >p. 475 Vol. 3 Prop. 198 Obs. 4
+
+### Are the agencies adapted to secure the Kingdom
 
 
 
