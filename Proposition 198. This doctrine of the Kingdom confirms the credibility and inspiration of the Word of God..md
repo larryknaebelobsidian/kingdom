@@ -99,7 +99,7 @@ completion: 0.2
 >The longer the postponement the more cumulative the evidence, seeing that eighteen centuries of continuous fulfilment of introduced change *only increases* the display of Christ’s wonderful foreknowledge.
 >p. 485 Vol. 3 Prop. 198 Obs. 6 
 
-
+### Must consider the whole
 >It does not even need a theory which serves to explain with scientific precision (good and great men differ) just *how far and in what degree* the Bible is inspired, for it derives its idea of inspiration not from this or that portion of the Book but from its contents *regarded as a whole*. It is the Divine Plan unfolded in it, and thus far most wonderfully carried out, that affords *the true and solid ground* for its inspiration.
 >p. 487 Vol. 3 Prop. 198 Obs. 7 
 
@@ -108,6 +108,8 @@ completion: 0.2
 
 >Now let this principle of judgment, every day practically observed and enforced, be applied, in judging the inspiration of the Word. Let this doctrine of the Kingdom running from Genesis to Revelation (and which embraces the Divine Purpose) be duly considered, its initiatory form, its modification to bring it into closer relationship with humanity, its provisionary measures, etc., and it will be found at once that it contemplates a scheme *so noble* in conception, *so admirably* adapted to secure deliverance, *so extended* in its capacity to bring the much desired and wanted blessings to man, *so confirmed* by past and present fulfilments which form history, *so far beyond* anything that can be suggested by mere intelligence to remove existing evils, that *it commends itself* in design, adaptability and end contemplated as being of Divine origin.
 >p. 487 Vol. 3 Prop. 198 Obs. 7
+
+### Adapted for the Kingdom of God
 
 >It professes to be the Kingdom of God, and to judge correctly whether it comes from God we must not merely confine ourselves to the manner in which it is presented (the mediumship) but observe whether it is *worthy* of God and *conducive* to the highest interests of humanity, and the answer to this becomes the leading proof of inspiration. 
 >
@@ -122,6 +124,12 @@ completion: 0.2
 >these and other considerations inspire *such confidence* in its representations (confirmed as they are by personal observation in present fulfilments and present experience in the reception of the Word) that the alleged discrepancies and difficulties (if even unsusceptible of explanation or reconciliation) give place to a film belief in its divine inspiration.
 >p. 488 Vol. 3 Prop. 198 Obs. 7 slightly reformatted
 
+### Books of Moses
+
+>The inspiration of the books of Moses is shown not by this or that statement, but by their design as a whole and their relationship to the rest of the Word;
+>p. 488 Vol. 3 Prop. 198 Obs. 7 
+
+### First chapters of Genesis
 
 
 
