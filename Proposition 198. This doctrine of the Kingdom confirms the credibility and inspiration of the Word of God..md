@@ -130,6 +130,36 @@ completion: 0.2
 >p. 488 Vol. 3 Prop. 198 Obs. 7 
 
 ### First chapters of Genesis
+>The God who appears in Creation, who manifests His love for man and then His displeasure at sin, again appears in love and mercy, manifested by the most extraordinary admirably adapted measures of grace looking forward to a magnificent re-creation, and thus stamps the first record as divine.
+>p. 494 Vol. 3 Prop. 198 Obs. 8 
+
+>In Genesis, as explained and enforced by the tenor of the entire Word, we have a personal God presented who takes a deep and abiding interest in the welfare of man, not only filling out a proper conception of the absolute, but bringing Him into intimate relationship with this world. We have evolution proceeding from Infinite Intelligence, according with Divine Purpose, manifesting a Divine Plan, previously entertained and now carried out. This is eminently more satisfactory than that reasoning which removes this personal Creator and introduces matter and force as the original producers of life, making a self-creative matter and force (although some writers on both sides advocate an intelligent cause directing this evolution), out of which, in some way unexplained, the first organisms are self;developed.
+>p. 494 Vol. 3 Prop. 198 Obs. 8 
+
+>In other words, the retention of the Jewish covenanted Messianic idea of the Kingdom, and its universally received postponement to the period of the Second Advent, is the most powerful proof of the strict historical unity extending from the ministry of Christ down to near the fourth century.
+>p. 502 Vol. 3 Prop. 198 Obs. 9
+
+## Denial of supernatural is an outgrowth of scientific unbelief
+
+>The logical, consistent outgrowth of scientific unbelief is the denial of the Supernatural.
+>p. 506 Vol. 3 Prop. 198 Obs. 10
+
+>Their whole creed is, in fact, pre-eminently based upon this assumed uniformity of nature.”
+>p. 506 Vol. 3 Prop. 198 Obs. 10
+
+>this conclusion of unintelligent physical causes dominating over all, is pressed upon us from all sides as the legitimate one to be received.
+>p. 507 Vol. 3 Prop. 198 Obs. 10
+
+>We see in this, viewed from the standpoint of our doctrine, three things inevitably resulting: 
+>1. That it is vain for men to imagine that even a compromise between such antagonisms can be effected; 
+>2. that it is absurd and foolish to hide from ourselves the existence of such a conflict; and 
+>3. that it is only preparatory to that naturalism and humanitarianism which is to introduce the culminated Antichrist.
+>p. 507 Vol. 3 Prop. 198 Obs. 10
+
+
+
+
+
 
 
 
