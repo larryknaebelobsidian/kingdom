@@ -59,7 +59,73 @@ completion: 0.2
 >let it be traced in its initiatory establishment, its overthrow, its promised restoration, its predicted glory, etc., and with all this before the mind, lot reason carefully examine its design, its merits, its adaptability to secure the deliverance of man, the race, and the world, and reason must confess that if carried out according to the pre-determined programme laid down in the Word, it will *fully and most perfectly* meet the wants and the desires of humanity.
 >p. 475 Vol. 3 Prop. 198 Obs. 4
 
+>there is *no phase* of imperfection, suffering, and evil which it does not propose to remove, and that there is *no blessing* which the heart of man has longed for both for himself and society which it does not intend to bestow.
+>p. 475 Vol. 3 Prop. 198 Obs. 4
+
 ### Are the agencies adapted to secure the Kingdom ?
+#### Divinity and Humanity of Jesus
+
+>Take the *Divinity and Humanity* of Jesus, the Christ, and view these, not isolated, disconnected from the Divine Plan, but as forming *an indispensable part* of that Plan, and we have at once the strongest possible proof in favor of the Divinity of Jesus.
+>p. 477 Vol. 3 Prop. 198 Obs. 5
+
+>In other words, Jesus in every respect is qualified to carry out the remainder of the programme as given by the Divine Purpose. 
+>He is David’s Son as covenanted; 
+>he is Divine (Isa. 9:O; Zech. 13:9; Jer. 23:6; Ps. 2:7; Rom. 9:11; 1 Tim. 3:16; Tit. 1:3; 1 John 4:15; Heb. 1:8; 1 John 5:20, etc.); 
+>He is One and equal with the Father, (John 14:7-11; 10:30; 12:45; 17:10, etc.); 
+>He is the Image of God, (Phil. 2:6; Col. 1:15; 2:9, etc.); 
+>He possesses eternity (Heb. 13:18; Rev. 1:17, 18); 
+>He has Omnipresence (Matt. 17:20; 28:20, etc.); 
+>He is Omniscient (John 2:24, 25; Rev. 2:23; John 16:30, etc.); 
+>He is Creator (John 1:3, 10; Col. 1:16; Heb. 1:2, 10; Rev. 3:14, etc.); 
+>He in virtue of His divinity has Pre-Existence, (John 8:58; 13:3, etc.); 
+>He is the Preserver (Col. 1:17; Heb. 1:3, etc.); 
+>He is worthy of worship (John 5:23; Phil. 2:10; Heb. 1:6; Ps. 72:15, 17; Rev. 5:8-13, etc.), etc. 
+>Thus to qualify Him to act in the capacity of a Theocratic King, everything essential to God is fully ascribed to, and possessed in its fulness by Him. Admitting then the simple record as given, we have the very Person described whom the Plan contemplates as the One suitable to act as the ‘predetermined Theocratic King.
+>p. 478-479 Vol. 3 Prop. 198 Obs. 5 slightly reformatted
+
+>All that we assert at this stage is, that thus far there is *no discrepancy* between the Plan proposed and the great leading Agency by which it is to be accomplished.
+>p. 479 Vol. 3 Prop. 198 Obs. 5 
+
+>let reason decide whether such a Being, as we find described in Jesus Christ, is not indispensable to carry out the Plan as given.
+>p. 479 Vol. 3 Prop. 198 Obs. 5 
+
+### Requires Supernatural Power
+
+#### The Death of Jesus
+#### The Resurrection of Jesus
+
+### Obs. 6 - Jesus failed to setup the Kingdom as promised in the OT
+#### Postponement
+>The longer the postponement the more cumulative the evidence, seeing that eighteen centuries of continuous fulfilment of introduced change *only increases* the display of Christ’s wonderful foreknowledge.
+>p. 485 Vol. 3 Prop. 198 Obs. 6 
+
+
+>It does not even need a theory which serves to explain with scientific precision (good and great men differ) just *how far and in what degree* the Bible is inspired, for it derives its idea of inspiration not from this or that portion of the Book but from its contents *regarded as a whole*. It is the Divine Plan unfolded in it, and thus far most wonderfully carried out, that affords *the true and solid ground* for its inspiration.
+>p. 487 Vol. 3 Prop. 198 Obs. 7 
+
+>To illustrate by returning to our figure: the man who looks at a locomotive forms his conclusions respecting its design, adaptedness, etc., from its *completeness* as it stands before him, and does not detract from its inception, plan, design, use, etc., because the designer of it did not draft the exact shape of every rod, bolt, and screw employed in its construction. He judges the locomotive, its fitness, etc., by the mechanical principles exhibited in its make and to be specifically applied in its design. Reason influencing sound judgment, does not impel him to lay down the criterion that before he can accept of the conception of the builder, he must first be assured that every particular part of it is shaped and framed precisely as the inventor specified, for he knows that owing to the numerous workmen employed—men varying in skill—in its erection, some latitude and diversity must necessarily be allowed. He is abundantly satisfied with the consideration of the general outlines, if fashioned according to mechanics, and forms his judgment of the correctness of the inception, its greatness and value—not so much by the shape the material assumes but by *its capacity to perform* the work intended.
+>p. 487 Vol. 3 Prop. 198 Obs. 7
+
+>Now let this principle of judgment, every day practically observed and enforced, be applied, in judging the inspiration of the Word. Let this doctrine of the Kingdom running from Genesis to Revelation (and which embraces the Divine Purpose) be duly considered, its initiatory form, its modification to bring it into closer relationship with humanity, its provisionary measures, etc., and it will be found at once that it contemplates a scheme *so noble* in conception, *so admirably* adapted to secure deliverance, *so extended* in its capacity to bring the much desired and wanted blessings to man, *so confirmed* by past and present fulfilments which form history, *so far beyond* anything that can be suggested by mere intelligence to remove existing evils, that *it commends itself* in design, adaptability and end contemplated as being of Divine origin.
+>p. 487 Vol. 3 Prop. 198 Obs. 7
+
+>It professes to be the Kingdom of God, and to judge correctly whether it comes from God we must not merely confine ourselves to the manner in which it is presented (the mediumship) but observe whether it is *worthy* of God and *conducive* to the highest interests of humanity, and the answer to this becomes the leading proof of inspiration. 
+>
+>The evolving of *a continuous, unintermitted unity of Purpose* (notwithstanding the hindrances presented by human nature); 
+>
+>the distinctive preservation of the same decided outline of belief *from beginning to end* through writers separated by ages: the acknowledgments of the writers themselves that in certain stages of the developing of the Plan they themselves were *involved in unbelief* not then being able to see the connection; 
+>
+>*the extraordinary simplicity* of the manner in which the matters pertaining to the Kingdom are recorded, 
+>
+>the remarkable *adaptation* consisting between the Plan, and >the condition (need) of man, and the end (desirable) intended—
+>
+>these and other considerations inspire *such confidence* in its representations (confirmed as they are by personal observation in present fulfilments and present experience in the reception of the Word) that the alleged discrepancies and difficulties (if even unsusceptible of explanation or reconciliation) give place to a film belief in its divine inspiration.
+>p. 488 Vol. 3 Prop. 198 Obs. 7 slightly reformatted
+
+
+
+
+
 
 
 
