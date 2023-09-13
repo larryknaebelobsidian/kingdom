@@ -38,6 +38,11 @@ completion: 0.2
 >The important question to be answered is not whether this or that portion may or may not be defective—but whether the Bible contains a Plan of Salvation *worthy* of God and *adapted* to secure the happiness of man in all his relations—*worthy* of the sacrifice alleged to have been made in its behalf, and *adapted* to the removal of the evils now unhappily burdening the world. While it is reasonable in studying a locomotive to consider its separate portions and descant on their form, etc., it would be folly to confine ourselves only to these and neglect what is of far greater moment to consider, the locomotive as one whole—its capability of performing the work designed by its builder—and then to look at its various parts—not as misshapen or wrongfully constructed when contemplated by themselves irrespective of their designed use—but only in their adaptedness to subserve *the intended end*.
 >p. 469 Vol. 3 Prop. 198 Obs. 2
 
+>While it is reasonable in studying a locomotive to consider its separate portions and descant on their form, etc., it would be folly to confine ourselves only to these and neglect what is of far greater moment to consider, the locomotive as one whole—its capability of performing the work designed by its builder—and then to look at its various parts—not as misshapen or wrongfully constructed when contemplated by themselves irrespective of their designed use—but only in their adaptedness to subserve *the intended end*.
+>p. 469 Vol. 3 Prop. 198 Obs. 2
+
+
+
 
 
 
