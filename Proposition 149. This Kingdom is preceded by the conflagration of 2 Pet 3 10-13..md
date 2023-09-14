@@ -3,6 +3,9 @@ pagecount: 4
 observationcount: 5
 id: 149
 completion: 1
+subjects:
+  - new heavens new earth
+  - conflagration
 ---
 #toc
 
