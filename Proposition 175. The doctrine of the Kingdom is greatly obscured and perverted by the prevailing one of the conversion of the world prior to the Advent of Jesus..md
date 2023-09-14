@@ -26,3 +26,7 @@ completion: 0.1
 >While the opinion of such a conversion of the world was suggested, and at once opposed (as e.g. by Luther, Calvin, etc.. in preceding Obs.) *no writer* of any prominence, or *theologian*, or *commentator*, appeared to advocate a Millennium *still in the future before the Advent of Christ*, until Daniel Whitby (an English commentator, born a.d. 1038, died 1720), appeared, unless we except the dreams of aggrandizement suggested by some of the Jesuits (see Prop. 78, Obs. 19).
 >p. 177 Vol. 3 Prop. 175 Obs. 4
 
+>The conversion even of all nations *could not restore* the Kingdom.
+>p. 181 Vol. 3 Prop. 175 Obs. 5
+
+The church is "a preparatory stage" to the ushering in of the glorious Messianic Kingdom
