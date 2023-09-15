@@ -2,12 +2,26 @@
 pagecount: 38
 observationcount: 14
 id: 121
-completion: 0.6
+completion: 1
 ---
 #toc
 
 ## Props Mentioned
 [[Proposition 120. This Kingdom with its Millennial blessings can only be introduced through the power of God in Christ Jesus.|120]] 
+### Notice A few considerations
+Obs. 1
+### Importance per early church doctrine
+Obs. 2
+### Various opinions
+Obs. 3
+### Failed attempts to make out second advent as a spiritual or providential coming from the OT
+Obs. 4
+### Denial of Pre-Mill. Advent involves an arbitrary handling of prophecy
+Obs. 5
+### Spiritualizing the second advent ignores the first advent
+Obs. 6
+### Contradictions
+Obs. 7
 ### 55 proofs of the personal pre-millennial advent of Christ
 Observation 8 (pp. 174 - 192) discusses 55 proofs. This is an extremely valuable section. Worthy of much study.
 
