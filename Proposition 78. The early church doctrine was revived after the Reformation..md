@@ -119,6 +119,44 @@ Obs. 20
 >The retention of the Augustinian theory or Constantinian view by some; the general adoption of a spiritualizing interpretation to sustain a Church-Kingdom view; the reception of the Whitbyan hypothesis; the issuing of works in which our doctrine is caricatured, misrepresented, and ridiculed; the linking of our doctrine with the vagaries and fanaticism of certain parties to make it odious; the incorporation of some parts of our system by smaller organizations that exerted but little influence; the parading of mistakes made by some rash writers both as to time and details; the influence of leading societies in their publications, their endowments, commentaries for popular use, periodicals, etc.; in brief, the unfriendliness of worldliness, sect, indifference, unbelief, prejudice, etc., has been exerted to overpower this ancient faith. Numerous Numerous instances will be cited as we proceed. The fact that great and good men—men eminent for piety and ability in the church—have aided in decrying the doctrine has had a powerful influence upon the minds of many (comp. Props. 177-180). Doctrinal belief is not, however, decided by numbers (Matt. 8:13, 14, and 22:14; 1 Cor. 1:26, 27, etc.).
 >p. 549-550 Vol. 1 Prop. 78 Obs. 22
 
+### Newspapers, periodicals exhibiting Chiliastic doctrine
+Obs. 28
+
+### Survival of Chiliasm of the past centuries
+Obs. 29
+>The survival of Chiliasm, amidst the opposition, ridicule, persecution, etc., of the past centuries, is worthy of notice. Dr. West (*His. of the Doc*.) has some forcible remarks on this point, showing “that only because it is *an imperishable truth of God* has it been able to survive the ordeal which it has passed.” Considering the reproach attending it—the debasements and admixtures to which it has been subject; how offensive it was to Gentile rulers, to Gnostic and Alexandrian teachers, to Papal claims; the persecutions to which it was exposed; the obloquy heaped on it as heresy to crush it; the misrepresentations, abuse, hostility, etc., heaped upon it, as found in thousands of works; and considering the pious and eminent men who clung to it, taught it, and urged it upon others, it must be—as Chiliasts affirm—a truth found in the Divine Record, planted there *by God Himself* to inspire faith and hope.
+>p. 553 Vol. 1 Prop. 78 Obs. 29
+
+### Missionaries holding to Chiliastic doctrine
+Obs. 30
+
+### Evangelists and Revivalists who are Chiliastic
+Obs. 31
+
+### Believers of all classes and tendencies
+Obs. 32
+
+### Conferences in London, Milday, New York and other places
+Obs. 33
+
+### Poets
+Obs. 34
+
+### Conclusion
+>In conclusion, a brief resume of our historical argument, to show its connection, is in place. The evidence in support of each step is *ample and conclusive*. Indeed, no other doctrine has *a more clear and decisive proof* in its behalf drawn from historical ground than this one. 
+>1. We have shown that the Jews, before and at the First Advent, held to it, professing to derive it from covenant and prophecy. (Compare e.g. Props. 20, 21, 40, 44, 72, 74.) 
+>2. Then we prove that John the Baptist and the disciples both entertained and preached the doctrine. (Compare Props. 38, 39, 43.) 
+>3. Next, that the doctrine was still held after the death of Jesus. (Compare Props. 69, 70.) 
+>4. Extended evidence is given that the apostles, after the ascension and after the day of Pentecost, still adhered to it. (Compare Props. 71, 72 with Props. 66-68.) 
+>5. It is proven that our doctrine was generally, if not universally, received by the early churches, East and West, North and South. (Compare Props. 72, 73, 74, 75.) 
+>6. This doctrine was perpetuated by the followers and successors of the first teachers. (Compare Prop. 75.) 
+>7. That it was only changed and opposed under the Gnostic and Alexandrian influences. (Comp. Prop. 76.) 
+>8. That the Papacy materially aided in crushing the doctrine, because obnoxious to her teaching, claims, etc. (Comp. Prop. 77.) 
+>9. That, thus almost exterminated under Papal influence, there was a revival after the Reformation, since which time it has again been taught by able and devout sons of the church, as shown in this Prop.
+>p. 555 Vol. 1 Prop. 78 Obs. 36 slightly reformatted
+
+
+
 
 
 
