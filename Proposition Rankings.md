@@ -6,5 +6,5 @@ NOTE: The hard copy book contains notes. The Kindle version does not.  I estimat
 `````dataview
 TABLE pagecount AS PageCount, observationcount AS ObservationCount, completion AS Completion
 FROM #toc
-SORT pagecount DESC, observationcount DESC
+SORT pagecount + observationcount DESC
 `````
