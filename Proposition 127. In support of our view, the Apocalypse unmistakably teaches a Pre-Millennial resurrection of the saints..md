@@ -27,5 +27,24 @@ completion: 0.3
 >p. 270 Vol. 2 Prop. 127 Obs. 3
 
 
+### Dead saints (but not dead unsaved) are raised for the Millennium and unsaved dead after the Millennium
+Obs. 4
+
+### Objections alleged against Chiliastic interpretation of Rev. 20
+Obs. 5
+
+### References/allusions to the resurrection in Revelation
+Obs. 6
+#### Rev. 11:18
+#### Rev. 14:1-5
+#### Rev. 12:5
+#### Rev. 4,5,7
+
+
+
+
+
+
+
 
 
