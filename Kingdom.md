@@ -4,6 +4,130 @@ Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https:/
 
 NT - 155
 ## Gospels - 119
+[Matthew 3:2](https://read.lsbible.org/?q=Matthew+3&h=40-003-002)
+
+“Repent, for the **kingdom** of heaven is at hand.”
+
+[Matthew 4:8](https://read.lsbible.org/?q=Matthew+4&h=40-004-008)
+
+Again, the devil took Him to a very high mountain and showed Him all the **kingdoms** of the world and their glory;
+
+[Matthew 4:17](https://read.lsbible.org/?q=Matthew+4&h=40-004-017)
+
+From that time Jesus began to preach and say, “Repent, for the **kingdom** of heaven is at hand.”
+
+[Matthew 4:23](https://read.lsbible.org/?q=Matthew+4&h=40-004-023)
+
+And Jesus was going throughout all Galilee, teaching in their synagogues and preaching the gospel of the **kingdom**, and healing every kind of disease and every kind of sickness among the people.
+
+[Matthew 5:3](https://read.lsbible.org/?q=Matthew+5&h=40-005-003)
+
+“Blessed are the poor in spirit, for theirs is the **kingdom** of heaven.
+
+[Matthew 5:10](https://read.lsbible.org/?q=Matthew+5&h=40-005-010)
+
+Blessed are those who have been persecuted for the sake of righteousness, for theirs is the **kingdom** of heaven.
+
+[Matthew 5:19](https://read.lsbible.org/?q=Matthew+5&h=40-005-019)
+
+Whoever then annuls one of the least of these commandments, and teaches others to do the same, shall be called least in the **kingdom** of heaven; but whoever does and teaches them, he shall be called great in the **kingdom** of heaven.
+
+[Matthew 5:20](https://read.lsbible.org/?q=Matthew+5&h=40-005-020)
+
+“For I say to you that unless your righteousness surpasses that of the scribes and Pharisees, you will not enter the **kingdom** of heaven.
+
+[Matthew 6:10](https://read.lsbible.org/?q=Matthew+6&h=40-006-010)
+
+Your **kingdom** come. Your will be done, On earth as it is in heaven.
+
+[Matthew 6:13](https://read.lsbible.org/?q=Matthew+6&h=40-006-013)
+
+And do not lead us into temptation, but deliver us from the evil one. [For Yours is the **kingdom** and the power and the glory forever. Amen.’]
+
+[Matthew 6:33](https://read.lsbible.org/?q=Matthew+6&h=40-006-033)
+
+But seek first His **kingdom** and His righteousness, and all these things will be added to you.
+
+[Matthew 7:21](https://read.lsbible.org/?q=Matthew+7&h=40-007-021)
+
+“Not everyone who says to Me, ‘Lord, Lord,’ will enter the **kingdom** of heaven, but he who does the will of My Father who is in heaven will enter.
+
+[Matthew 8:11](https://read.lsbible.org/?q=Matthew+8&h=40-008-011)
+
+And I say to you that many will come from east and west, and recline at the table with Abraham, Isaac, and Jacob in the **kingdom** of heaven;
+
+[Matthew 8:12](https://read.lsbible.org/?q=Matthew+8&h=40-008-012)
+
+but the sons of the **kingdom** will be cast out into the outer darkness; in that place there will be weeping and gnashing of teeth.”
+
+[Matthew 9:35](https://read.lsbible.org/?q=Matthew+9&h=40-009-035)
+
+And Jesus was going through all the cities and villages, teaching in their synagogues, and preaching the gospel of the **kingdom**, and healing every kind of disease and every kind of sickness.
+
+[Matthew 10:7](https://read.lsbible.org/?q=Matthew+10&h=40-010-007)
+
+And as you go, preach, saying, ‘The **kingdom** of heaven is at hand.’
+
+[Matthew 11:11](https://read.lsbible.org/?q=Matthew+11&h=40-011-011)
+
+Truly I say to you, among those born of women there has not arisen anyone greater than John the Baptist! Yet the one who is least in the **kingdom** of heaven is greater than he.
+
+[Matthew 11:12](https://read.lsbible.org/?q=Matthew+11&h=40-011-012)
+
+And from the days of John the Baptist until now the **kingdom** of heaven suffers violence, and violent men take it by force.
+
+[Matthew 12:25](https://read.lsbible.org/?q=Matthew+12&h=40-012-025)
+
+And knowing their thoughts He said to them, “Any **kingdom** divided against itself is laid waste; and any city or house divided against itself will not stand.
+
+[Matthew 12:26](https://read.lsbible.org/?q=Matthew+12&h=40-012-026)
+
+And if Satan casts out Satan, he is divided against himself; how then will his **kingdom** stand?
+
+[Matthew 12:28](https://read.lsbible.org/?q=Matthew+12&h=40-012-028)
+
+But if I cast out demons by the Spirit of God, then the **kingdom** of God has come upon you.
+
+[Matthew 13:11](https://read.lsbible.org/?q=Matthew+13&h=40-013-011)
+
+And Jesus answered and said to them, “To you it has been given to know the mysteries of the **kingdom** of heaven, but to them it has not been given.
+
+[Matthew 13:19](https://read.lsbible.org/?q=Matthew+13&h=40-013-019)
+
+When anyone hears the word of the **kingdom** and does not understand it, the evil one comes and snatches away what has been sown in his heart. This is the one on whom seed was sown beside the road.
+
+[Matthew 13:24](https://read.lsbible.org/?q=Matthew+13&h=40-013-024)
+
+He presented another parable to them, saying, “The **kingdom** of heaven may be compared to a man who sowed good seed in his field.
+
+[Matthew 13:31](https://read.lsbible.org/?q=Matthew+13&h=40-013-031)
+
+He presented another parable to them, saying, “The **kingdom** of heaven is like a mustard seed, which a man took and sowed in his field;
+
+[Matthew 13:33](https://read.lsbible.org/?q=Matthew+13&h=40-013-033)
+
+He spoke another parable to them, “The **kingdom** of heaven is like leaven, which a woman took and hid in three sata of flour until it was all leavened.”
+
+[Matthew 13:38](https://read.lsbible.org/?q=Matthew+13&h=40-013-038)
+
+and the field is the world; and as for the good seed, these are the sons of the **kingdom**; and the tares are the sons of the evil one;
+
+[Matthew 13:41](https://read.lsbible.org/?q=Matthew+13&h=40-013-041)
+
+The Son of Man will send forth His angels, and they will gather out of His **kingdom** all stumbling blocks, and those who commit lawlessness,
+
+[Matthew 13:43](https://read.lsbible.org/?q=Matthew+13&h=40-013-043)
+
+Then the righteous will shine forth as the sun in the **kingdom** of their Father. He who has ears, let him hear.
+
+[Matthew 13:44](https://read.lsbible.org/?q=Matthew+13&h=40-013-044)
+
+“The **kingdom** of heaven is like a treasure hidden in the field, which a man found and hid again; and from joy over it he goes and sells all that he has and buys that field.
+
+[Matthew 13:45](https://read.lsbible.org/?q=Matthew+13&h=40-013-045)
+
+“Again, the **kingdom** of heaven is like a merchant seeking fine pearls,
+
 [Matthew 13:47](https://read.lsbible.org/?q=Matthew+13&h=40-013-047)
 
 “Again, the **kingdom** of heaven is like a dragnet cast into the sea, and gathering fish of every kind;
