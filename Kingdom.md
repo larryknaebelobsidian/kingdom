@@ -2,7 +2,8 @@ LSB - Legacy Standard Bible
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
 
-## Gospels
+NT - 155
+## Gospels - 119
 [Matthew 13:47](https://read.lsbible.org/?q=Matthew+13&h=40-013-047)
 
 “Again, the **kingdom** of heaven is like a dragnet cast into the sea, and gathering fish of every kind;
@@ -330,7 +331,7 @@ Jesus answered, “Truly, truly, I say to you, unless one is born of water and t
 [John 18:36](https://read.lsbible.org/?q=John+18&h=43-018-036)
 
 Jesus answered, “My **kingdom** is not of this world. If My **kingdom** were of this world, then My servants would be fighting so that I would not be delivered over to the Jews; but as it is, My **kingdom** is not from here.”
-## Acts
+## Acts - 8
 
 [Acts 1:3](https://read.lsbible.org/?q=Acts+1&h=44-001-003)
 
@@ -364,7 +365,7 @@ And when they had set a day for Paul, they came to him at his lodging in large n
 
 preaching the **kingdom** of God and teaching concerning the Lord Jesus Christ with all confidence, unhindered.
 
-## Paul
+## Paul - 14
 [  
 Romans 14:17](https://read.lsbible.org/?q=Romans+14&h=45-014-017)
 
@@ -422,7 +423,7 @@ I solemnly charge you in the presence of God and of Christ Jesus, who is to judg
 
 The Lord will rescue me from every evil deed, and will save me unto His heavenly **kingdom**; to Him be the glory forever and ever. Amen.
 
-## General Epistles
+## General Epistles - 14
 
 [Hebrews 1:8](https://read.lsbible.org/?q=Hebrews+1&h=58-001-008)
 
