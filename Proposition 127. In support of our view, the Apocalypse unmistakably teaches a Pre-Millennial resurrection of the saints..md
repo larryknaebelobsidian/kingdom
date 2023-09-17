@@ -5,7 +5,7 @@ subjects:
   - resurrection
   - advent stages
 id: 127
-completion: 0.3
+completion: 0.6
 ---
 #toc
 
