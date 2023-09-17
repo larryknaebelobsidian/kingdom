@@ -2,7 +2,38 @@ LSB - Legacy Standard Bible
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
 
-NT - 155
+[Daniel 2:44](https://read.lsbible.org/?q=Daniel+2&h=27-002-044)
+
+And in the days of those kings the God of heaven will cause a **kingdom** to rise up which will never be destroyed, and that **kingdom** will not be left for another people; it will crush and put an end to all these **kingdoms**, but it will itself stand forever.
+
+[Daniel 4:3](https://read.lsbible.org/?q=Daniel+4&h=27-004-003)
+
+How great are His signs, And how strong are His wonders! His **kingdom** is an everlasting **kingdom**, And His dominion is from generation to generation.
+
+[Daniel 4:34](https://read.lsbible.org/?q=Daniel+4&h=27-004-034)
+
+“But at the end of those days, I, Nebuchadnezzar, lifted up my eyes toward heaven, and my knowledge returned to me, and I blessed the Most High and praised and honored Him who lives forever; For His dominion is an everlasting dominion, And His **kingdom** endures from generation to generation.
+
+[Daniel 6:26](https://read.lsbible.org/?q=Daniel+6&h=27-006-026)
+
+I make a decree that in all the dominion of my **kingdom**, men are to fear and be in dread before the God of Daniel; For He is the living God and enduring forever, And His **kingdom** is one which will not be destroyed, And His dominion will be unto the end.
+
+[Daniel 7:14](https://read.lsbible.org/?q=Daniel+7&h=27-007-014)
+
+And to Him was given dominion, Glory, and a **kingdom**, That all the peoples, nations, and men of every tongue Might serve Him. His dominion is an everlasting dominion Which will not be taken away; And His **kingdom** is one Which will not be destroyed.
+
+[Daniel 7:18](https://read.lsbible.org/?q=Daniel+7&h=27-007-018)
+
+But the saints of the Highest One will receive the **kingdom** and possess the **kingdom** forever, for all ages to come.’
+
+[Daniel 7:22](https://read.lsbible.org/?q=Daniel+7&h=27-007-022)
+
+until the Ancient of Days came and judgment was given in favor of the saints of the Highest One, and the season arrived when the saints took possession of the **kingdom**.
+
+[Daniel 7:27](https://read.lsbible.org/?q=Daniel+7&h=27-007-027)
+
+Then the reign, the dominion, and the greatness of all the **kingdoms** under the whole heaven will be given to the people of the saints of the Highest One; His **kingdom** will be an everlasting **kingdom**, and all the dominions will serve and obey Him.’
+## NT - 155
 ## Gospels - 119
 [Matthew 3:2](https://read.lsbible.org/?q=Matthew+3&h=40-003-002)
 
@@ -219,6 +250,30 @@ And this gospel of the **kingdom** shall be proclaimed in the whole world as a w
 [Matthew 26:29](https://read.lsbible.org/?q=Matthew+26&h=40-026-029)
 
 But I say to you, I will not drink of this fruit of the vine from now on until that day when I drink it new with you in My Father’s **kingdom**.”
+
+[Mark 1:15](https://read.lsbible.org/?q=Mark+1&h=41-001-015)
+
+and saying, “The time is fulfilled, and the **kingdom** of God is at hand; repent and believe in the gospel.”
+
+[Mark 3:24](https://read.lsbible.org/?q=Mark+3&h=41-003-024)
+
+And if a **kingdom** is divided against itself, that **kingdom** cannot stand.
+
+[Mark 4:11](https://read.lsbible.org/?q=Mark+4&h=41-004-011)
+
+And He was saying to them, “To you has been given the mystery of the **kingdom** of God, but to those who are outside, everything comes in parables,
+
+[Mark 4:26](https://read.lsbible.org/?q=Mark+4&h=41-004-026)
+
+And He was saying, “The **kingdom** of God is like a man who casts seed upon the soil;
+
+[Mark 4:30](https://read.lsbible.org/?q=Mark+4&h=41-004-030)
+
+And He was saying, “How shall we compare the **kingdom** of God, or by what parable shall we present it?
+
+[Mark 6:23](https://read.lsbible.org/?q=Mark+6&h=41-006-023)
+
+And he swore to her, “Whatever you ask of me, I will give it to you; up to half of my **kingdom**.”
 
 [Mark 9:1](https://read.lsbible.org/?q=Mark+9&h=41-009-001)
 
