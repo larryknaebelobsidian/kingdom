@@ -60,16 +60,16 @@ Obs. 8
 Obs. 10
 
 >Of what practical use or benefit can such a res. unto condemnation and shame be? the answers are various; such as, 
->to vindicate the justice of God; 
->to prove the truthfulness and reality of His representations and mercy; 
->to apportion “the few or many stripes” that the guilty merit; 
->to fulfil His declaration that all the wicked snail see and acknowledge the Divine power; 
->to show that death itself, as many fondly hope, is no refuge for the sinner; 
->that a res. unto eternal life is the special gift of God through Jesus Christ; 
->to contrast the condition of the res. saints with their own; 
->to root out in the most effectual manner every remnant of evil; 
->to give to the creatures of God, the universe itself, a sublime and abiding idea of the nature and consequences of sin.
->p. 289 Vol. 2 Prop. 127 Obs. 10 slightly reformatted
+>	to vindicate the justice of God; 
+>	to prove the truthfulness and reality of His representations and mercy; 
+>	to apportion “the few or many stripes” that the guilty merit; 
+>	to fulfil His declaration that all the wicked snail see and acknowledge the Divine power; 
+>	to show that death itself, as many fondly hope, is no refuge for the sinner; 
+>	that a res. unto eternal life is the special gift of God through Jesus Christ; 
+>	to contrast the condition of the res. saints with their own; 
+>	to root out in the most effectual manner every remnant of evil; 
+>	to give to the creatures of God, the universe itself, a sublime and abiding idea of the nature and consequences of sin.
+>p. 289 Vol. 2 Prop. 127 Obs. 10 reformatted
 
 
 
