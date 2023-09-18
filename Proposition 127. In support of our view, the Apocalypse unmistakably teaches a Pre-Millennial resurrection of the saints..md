@@ -26,6 +26,11 @@ completion: 0.6
 >notice, the wicked cast into the fire preceding the Millennial age;
 >p. 270 Vol. 2 Prop. 127 Obs. 3
 
+>This inheriting of the earth Christ promises to all the meek (Matt. 5:5), but to do this they must, of necessity, arise from the dead, and when they inherit the wicked are “cut off,” “perish,” “are not,” etc., thus corresponding with the period under consideration.
+
+
+>A most circumstantial statement indicating the Pre-Millennial resurrection and that the rest of the dead do not participate in it, is found in Isa. chs. 24, 25, and 26.
+
 
 ### Dead saints (but not dead unsaved) are raised for the Millennium and unsaved dead after the Millennium
 Obs. 4
@@ -39,6 +44,35 @@ Obs. 6
 #### Rev. 14:1-5
 #### Rev. 12:5
 #### Rev. 4,5,7
+
+### Rev. 20:4-6
+Obs. 7
+
+>Rev. 20:4-6 is *retrospective*.
+>p. 286 Vol. 2 Prop. 127 Obs. 7
+
+>For then we have -- not the saints of past ages, but -- the martyrs and those associated with them *under the last great tribulation* of the culminated Antichrist. All that we contend for is, that the persons designated are persons who at a time still future experience this persecution and martyrdom, and that the rest of the saints are included in the "thrones", "judgement", and general affirmation respecting the first resurrection and the reign.
+>p. 287 Vol. 2 Prop. 127 Obs. 7 note 2
+### Rev. 20:4-6 synchronous with Dan. 7
+Obs. 8
+
+### There is a resurrection of the wicked dead
+Obs. 10
+
+>Of what practical use or benefit can such a res. unto condemnation and shame be? the answers are various; such as, 
+>to vindicate the justice of God; 
+>to prove the truthfulness and reality of His representations and mercy; 
+>to apportion “the few or many stripes” that the guilty merit; 
+>to fulfil His declaration that all the wicked snail see and acknowledge the Divine power; 
+>to show that death itself, as many fondly hope, is no refuge for the sinner; 
+>that a res. unto eternal life is the special gift of God through Jesus Christ; 
+>to contrast the condition of the res. saints with their own; 
+>to root out in the most effectual manner every remnant of evil; 
+>to give to the creatures of God, the universe itself, a sublime and abiding idea of the nature and consequences of sin.
+>p. 289 Vol. 2 Prop. 127 Obs. 10 slightly reformatted
+
+
+
 
 
 
