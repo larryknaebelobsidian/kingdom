@@ -12,10 +12,9 @@ completion: 0.2
 >Obs. 2. Some persons confidently tell us that “*the Gospel of the Kingdom*” is readily understood by all men, forgetting how variously it is interpreted and preached.
 >p. 151 Vol. 1 Prop. 14 Obs. 2
 
->We must discriminate between the means employed by which the Kingdom can be obtained—which is also Gospel or glad tidings—and the Kingdom itself—which proclaimed is the Gospel in its fullest sense.
->p. 151 Vol. 1 Prop. 14 Obs. 2
+>We must discriminate *between the means* employed by which the Kingdom can be obtained—which is also Gospel or glad tidings—and *the Kingdom itself*—which proclaimed is the Gospel in its fullest sense.
+>p. 152 Vol. 1 Prop. 14 Obs. 2
 
-Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 
 ### Obs. 3
 
 > There is no systematic statement of the doctrine of the Kingdom in the Bible.   It is given in brief covenants, in separate prophecies, in detached portions, in fragments, in hints, in promises, in concise outlines, and to bring all these together in their regular order much labor is requisite.
@@ -23,3 +22,15 @@ Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition.
 
 > Unless there is a deep conviction that the Bible is a Divine Record, and that, in consequence, everything that is contains should be duly weighed and placed in its connection with the Divine Purpose, it is impossible to harmonize the Word: some discordant elements will inevitably appear to prevent unity.
 > p. 152 Vol. 1 Prop. 14 Obs. 3
+
+
+>Obs. 4. Avoiding, on the one hand, the opinion of the Romish Church that the Scriptures are so unintelligible, so obscure that they need the interpretation of the Church, of Councils, of the Fathers, or of the Pope; and, on the other hand, the view of some Protestant divines, and others, that all things are clear and intelligible to him who is in the Spirit—it is best to preserve the due medium, that whilst many things are plainly stated, yet others, for the reasons given, can only be ascertained by laborious research, or, as some old writers have quaintly observed, by “digging for hid treasures.” The Kingdom, forming the subject-matter of a large portion of the Bible, cannot be correctly apprehended in its totality without the student passing over all that the different sacred writers have to say concerning it.
+>p. 152 Vol. 1 Prop. 14 Obs. 4
+
+>Obs. 5. “The Gospel *of the Kingdom*,” as intimated, includes “the mystery of God,” i.e. the final, closing act as presented Rev. 10:7, embracing the ultimate realization of the previously ordained provisionary institutions.
+>p. 152-153 Vol. 1 Prop. 14 Obs. 4
+
+>the Gospel undoubtedly comprehends the grand consummation, the perfected Redemption realized only in the Kingdom.
+>p. 153 Vol. 1 Prop. 14 Obs. 5
+
+
