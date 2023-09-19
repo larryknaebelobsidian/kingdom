@@ -2,7 +2,7 @@
 pagecount: 3
 observationcount: 5
 id: 14
-completion: 0.2
+completion: 1
 ---
 #toc
 
@@ -15,7 +15,6 @@ completion: 0.2
 >We must discriminate *between the means* employed by which the Kingdom can be obtained—which is also Gospel or glad tidings—and *the Kingdom itself*—which proclaimed is the Gospel in its fullest sense.
 >p. 152 Vol. 1 Prop. 14 Obs. 2
 
-### Obs. 3
 
 > There is no systematic statement of the doctrine of the Kingdom in the Bible.   It is given in brief covenants, in separate prophecies, in detached portions, in fragments, in hints, in promises, in concise outlines, and to bring all these together in their regular order much labor is requisite.
 > p. 152 Vol. 1 Prop. 14 Obs. 3
@@ -23,6 +22,8 @@ completion: 0.2
 > Unless there is a deep conviction that the Bible is a Divine Record, and that, in consequence, everything that is contains should be duly weighed and placed in its connection with the Divine Purpose, it is impossible to harmonize the Word: some discordant elements will inevitably appear to prevent unity.
 > p. 152 Vol. 1 Prop. 14 Obs. 3
 
+>unless there is *a careful collation* of all passages that legitimately refer to the Kingdom, error may, more or less, be advanced. If, as claimed, the Scriptures are the Word of God, then every word -- conceding that the truth is given through the language and style most familiar to the writer -- is of importance. 
+>p. 152 Vol. 1 Prop. 14 Obs. 3 note
 
 >Obs. 4. Avoiding, on the one hand, the opinion of the Romish Church that the Scriptures are so unintelligible, so obscure that they need the interpretation of the Church, of Councils, of the Fathers, or of the Pope; and, on the other hand, the view of some Protestant divines, and others, that all things are clear and intelligible to him who is in the Spirit—it is best to preserve the due medium, that whilst many things are plainly stated, yet others, for the reasons given, can only be ascertained by laborious research, or, as some old writers have quaintly observed, by “digging for hid treasures.” The Kingdom, forming the subject-matter of a large portion of the Bible, cannot be correctly apprehended in its totality without the student passing over all that the different sacred writers have to say concerning it.
 >p. 152 Vol. 1 Prop. 14 Obs. 4
