@@ -11,6 +11,24 @@ completion: 0.5
 ## Props Mentioned
 [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.|49]] [[Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”|137]] [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.|144]] [[Proposition 145. This Kingdom includes “the regeneration” of Matt 19 28.|145]] [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.|118]] [[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.|154]] [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.|114]] [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.|126]] 
 
+1 Cor. 15:52
+1 Thess. 4:16
+Rev. 11:15, 18
+Rev. 20:3-6
+1 Thess. 4:13-17
+Luke 20:34-36
+Phil. 3:11
+1 Pet. 1:3
+1 Cor. 6:14
+Rom. 9:27
+Mark 9:9-10
+John 11:24
+Acts 3:19-21
+Matt. 19:28
+Acts 13:33
+Dan. 12:2; John 5:28, 29; Rev. 20:11-15; 1 Cor. 15:20-23; John 6:39, 40, and 17:9, 24; 2 Tim. 4:1.
+John 6:45
+
 ### Righteous dead and wicked dead are raised - but not together
 
 >The res. of the saints being a distinctive one, belonging exclusively to them and no others, this feature of separation as to character and time is always preserved. Thus 
@@ -20,6 +38,13 @@ completion: 0.5
 >(4) the res. of the righteous described alone, without any reference whatever to the wicked (as John 6:39, 40, 44, 54; 1 Cor. 15, and 1 Thess. 4), implies a separate and distinctive one; 
 >(5) the titles given to the res. of the righteous imply the same, as “the better resurrection,” “the res. of the just,” “the res. unto life.”
 >Obs. 8 slightly reformatted
+
+>it is impossible to find a specific account of the resurrection of the wicked taking place at the same time with that of the righteous.
+>Obs. 10
+
+>The reader is referred to the Covenant, and, as we have shown (Prop. 49), its fulfilment is utterly impossible without a resurrection.
+>Obs. 14
+
 
 >If Christ and His saints are to reign as predicted over this restored people, etc., then, as a matter of course, this res. must take precedence, just as the Prophets locate it.
 >Obs, 15
