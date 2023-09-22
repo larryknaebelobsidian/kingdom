@@ -11,7 +11,7 @@ completion: 0.3
 #toc
 
 ## Props Mentioned
-[[Proposition 115. The Kingdom is not established without a period of violence or war.|115]] [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.|123]] [[Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.|160]] 
+[[Proposition 115. The Kingdom is not established without a period of violence or war.|115]] [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.|123]] [[Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.|160]] [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.|166]] 
 
 >This Proposition is given not to prove that a great conflict will ensue between Antichrist with his confederated forces and the Lord Jesus Christ and His army (for this has been done in previous Propositions, as e.g. Props. 115, 123, etc., and is too plainly predicted, as e.g. Rev. 19:15-21; Rev. 17:14, and 16:14, etc., to require additional notice, but to direct attention to some particulars connected with it.
 >p. 751 Prop. 163 Vol. 2
@@ -40,27 +40,33 @@ Obs. 3
 >Obs. 5. The critical student will also notice that the confederation arises after (Rev. 17) the harlot has been supported, as in the past, by the beast, and yet before the fall of Babylon (in which fall it participates), and (Rev. 14) before the universal demand to worship the beast and his image, and therefore previous to the persecution of the saints.
 >p. 756 Prop. 163 Vol. 2 Obs. 5
 
+### Overcome, yet victorious
+Obs. 7
 
+### Root cause of this war -- hatred to His truth
+Obs. 8
 ### Location
-#### Between the seas in the glorious holy mountain - Dan. 11
-#### Valley of Jehoshaphat - Joel 3:2,12
-#### The mountains of Israel - Ezek. 38-39
-#### Palestine - Zech. 14
-#### Armageddon - Rev. 16:16
-#### 200 miles - Rev. 14:20
-#### Idumea - Isa. 34, 63
+Obs. 9
+###### Between the seas in the glorious holy mountain - Dan. 11
+###### Valley of Jehoshaphat - Joel 3:2,12
+###### The mountains of Israel - Ezek. 38-39
+###### Palestine - Zech. 14
+###### Armageddon - Rev. 16:16
+###### 200 miles - Rev. 14:20
+###### Idumea - Isa. 34, 63
 
 >Antichrist arrives at, and takes, Jerusalem, he immediately sends (or probably sent before the fall of the city) a portion of his vast army under Rome of the kings toward and into Idumea, for the purpose of crushing any opposition that may develop itself from Mt. Sinai. It is at this crisis that Jesus and His brethren proceed toward Jerusalem, and on the road meet and fearfully overwhelm a large body of the Antichristian host, and then advancing to the Mt. of Olives, confronts His daring adversary, and crushes him there as the prophets declare. It would only be a repetition on a grander scale of the fighting in the wilderness, and in the land itself under the first Theocratic march from Mt. Sinai.
->Obs. 9
+>p. 761-762 Prop. 163 Vol. 2 Obs. 9
 
->we agree with him that a prevailing mistake has been long current and adopted, unthinkingly, by able writers, viz., that this gathering of Antichrist’s forces is to Armageddon, from whence springs the popular phrase, “the Battle of Armageddon”—a phrase not found in the Bible, but still adopted as the title of some books, under the plea that it is biblical.
->Obs, 10
+### Armageddon
+>we agree with him that a prevailing mistake has been long current and adopted, unthinkingly, by able writers, viz., that this gathering of Antichrist’s forces is to *Armageddon*, from whence springs the popular phrase, “the Battle of Armageddon”—a phrase not found in the Bible, but still adopted as the title of some books, under the plea that it is biblical.
+>p. 762 Prop. 163 Vol. 2 Obs. 10
 
->His open revelation with the saints, which occurs only when Antichrist has reached Jerusalem,
->Obs, 10
+>His open revelation with the saints, which occurs *only when* Antichrist has reached Jerusalem,
+>p. 763 Prop. 163 Vol. 2 Obs. 10
 
->a gathering takes place at the first stage of the Advent; that these are taken to Mt. Sinai; that there will be an assembling of the saints at that mountain previous to going forth to the destruction of Antichrist; that this gathering here is also one allied with the Advent, it is reasonable to conclude, that the gathering here is to the same “mountain of assembly,” where precious gifts are indeed bestowed.
->Obs. 10
+>a gathering takes place at the first stage of the Advent; that these are taken to Mt. Sinai; that there will be an assembling of the saints at that mountain previous to going forth to the destruction of Antichrist; that this gathering here is also one allied with the Advent, it is reasonable to conclude, that the gathering here is to the same “*mountain of assembly*,” where precious gifts are indeed bestowed.
+>p. 763 Prop. 163 Vol. 2 Obs. 10
 
 #### [Rev. 19:15-20](https://read.lsbible.org/?q=rev+19%3A15-20)
 And from His mouth comes a sharp sword, so that with it He may strike down the nations, and He will rule them with a rod of iron; and He treads the wine press of the wrath of the rage of God, the Almighty. 16 And He has on His garment and on His thigh a name written, “KING OF KINGS, AND LORD OF LORDS.” 17 Then I saw an angel standing in the sun, and he cried out with a loud voice, saying to all the birds which fly in midheaven, “Come, assemble for the great supper of God, 18 so that you may eat the flesh of kings and the flesh of commanders and the flesh of strong men and the flesh of horses and of those who sit on them and the flesh of all men, both free men and slaves, and small and great.” 19 Then I saw the beast and the kings of the earth and their armies assembled to make war with Him who sits on the horse and with His army. 20 And the beast was seized, and with him the false prophet who did the signs in his presence, by which he deceived those who had received the mark of the beast and those who worshiped his image. These two were thrown alive into the lake of fire which burns with brimstone.
