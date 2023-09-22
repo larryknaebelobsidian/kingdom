@@ -28,6 +28,19 @@ Joel 3:16; Ps. 92:7-9, Micah 4:11, 12; Ps. 37 and 73; Heb. 1:12-17; Isa. 35:4,
 Obs. 2
 10 horns
 
+### Out of and forms part of the revived Roman Empire
+Obs. 3
+
+>The simultaneous arising, and contemporary existence, of these ten kingdoms, not only sets aside a cast amount of irrelevant interpretation and application to the past and present, but it fully corroborates the position taken in previous Propositions. Whatever divisions, weakness, mixture of iron and clay, etc., has been witnessed in the past in the Roman Empire, these are only preparations to the exact form of ten as they shall be revealed at the consummation. In addition, the reader's special attention is called to the fact that it is while *the whole number* of ten are *contemporaneously existing* with the beast that the Papacy is destroyed, and *not after three* are fallen, because Rev. 17 is distinctive and most precise, thus showing: (1) that our view of the Papacy being the apostasy and not the Antichrist is correct; (2) that all those old theories of the ten kingdoms and three fallen before the Papacy are incorrect; and (3) that after the Papacy is overthrown by this confederation and before the war with Christ, three of those kingdoms, for some cause or other, will be uprooted by the Antichrist. Most probably to augment his own power and worship.
+>p. 755 Prop. 163 Vol. 2 Obs. 3 note
+
+>Obs,. 4. We feel impelled by a sense of duty to warn the reader against allowing himself to be misled into the idea, advocated by very many, that it is only at the close of the twelve hundred and sixty days (years they make it) *that this beast is to form this confederation*, etc.
+>p. 755 Prop. 163 Vol. 2 Obs. 4
+
+>Obs. 5. The critical student will also notice that the confederation arises after (Rev. 17) the harlot has been supported, as in the past, by the beast, and yet before the fall of Babylon (in which fall it participates), and (Rev. 14) before the universal demand to worship the beast and his image, and therefore previous to the persecution of the saints.
+>p. 756 Prop. 163 Vol. 2 Obs. 5
+
+
 ### Location
 #### Between the seas in the glorious holy mountain - Dan. 11
 #### Valley of Jehoshaphat - Joel 3:2,12
