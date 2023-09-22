@@ -6,7 +6,7 @@ subjects:
   - antichrist
   - tribulation
 id: 163
-completion: 0
+completion: 0.3
 ---
 #toc
 
