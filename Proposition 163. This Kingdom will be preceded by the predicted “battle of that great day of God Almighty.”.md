@@ -18,7 +18,7 @@ Joel 3:16; Ps. 92:7-9, Micah 4:11, 12; Ps. 37 and 73; Heb. 1:12-17; Isa. 35:4,
 ### Mighty confederation
 
 ### Location
-#### Between the seas in the glorious holy mounain - Dan. 11
+#### Between the seas in the glorious holy mountain - Dan. 11
 #### Valley of Jehoshaphat - Joel 3:2,12
 #### The mountains of Israel - Ezek. 38-39
 #### Palestine - Zech. 14
