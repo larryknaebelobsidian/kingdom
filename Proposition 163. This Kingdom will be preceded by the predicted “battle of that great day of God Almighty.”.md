@@ -13,9 +13,20 @@ completion: 0.3
 ## Props Mentioned
 [[Proposition 115. The Kingdom is not established without a period of violence or war.|115]] [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.|123]] [[Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.|160]] 
 
+>This Proposition is given not to prove that a great conflict will ensue between Antichrist with his confederated forces and the Lord Jesus Christ and His army (for this has been done in previous Propositions, as e.g. Props. 115, 123, etc., and is too plainly predicted, as e.g. Rev. 19:15-21; Rev. 17:14, and 16:14, etc., to require additional notice, but to direct attention to some particulars connected with it.
+>p. 751 Prop. 163 Vol. 2
+
+>We are reminded of Rev. Dr. J. G. Schmucker's (*Erp. of Apoc.*, p. 36) remark, when referring to the last struggle with Antichrist: "O God! these things are so near at hand, and we continue so careless and unconcerned for ourselves and our children; they are so certain and important, and we are so unprepared to meet them, as our heavenly calling requires". It is a remarkable fact (which students will do well to ponder), that even the most spiritualizing of commentators fully concede a terrible period to precede the Millennium, as e.g. Scott, *Com*., Rev. 19:17-21, Barnes, *Com. loci*, etc. So writers, who spiritualize the prophecies, and make a large number of "mystical comings," are compelled to advocate a still future terrible period before the Church. Thus e.g. Smith (*Key to Rev*., p. 169, etc.) contends that the spread of missions should not prevent the Church from also anticipating a fearful persecution, likewise predicted. He says: "If the Church has scenes of danger before her, and God has given us warning of it, it will not aid the cause of Christ to cry peace, and assure her that her warfare is already accomplished. If soldiers have a battle to fight, it but ill prepares them for it to assure them they have already gained the victory, and the enemy are vanquished. Should such assurance be given them, lest they be discouraged, would this prepare them for the battle? The Millennium is certain, and will be glorious.  But it will be just preceded by the battle of that great day of God -- last and most violent attach of Satan.  And *no victory* must be shouted previous to this, unless by anticipation. The armor must be put on and kept bright, and the warnings of the Word of God sounded." So also, under ch. 14 and 19, he speaks of "fiery trials yet to pass before the Millennial sun will smile upon the earth. The people of God who may then live will have a signal opportunity to glorify our Lord Jesus Christ, and to brighten their eternal crown." We are glad that the warning is given, even if surrounded by much that weakens its force or clearness, for it is immensely better that that deceptive cry which *utterly ignores* those future predictions as if they did not exist, and declares (as e.g. Dr. Harkey in *the Church's Best State*, p. 168--with which compare Dr. Sprague, *On Revivals*): "We believe that it will be one great and universal Revival, that Messiah will finally subdue the world to Himself, and amid the bliss and hellelujahs of such a state, He will reign in Millennial glory." (Comp. Prop. 175.) Even such a political prophet as Chateaubriand (Ticknor's *Memoirs*), although ridiculed, has a more truthful view of the future, when he says what shall be produced (1818): "The cloud is too dark for human vision; too dark, it may almost be said, to be penetrated by prophecy. There perhaps is the misery of our situation; perhaps we live not only in the decrepitude of Europe, but in the decrepitude of the world."
+>p. 751 Prop. 163 Vol. 2 note
+
+### Great civil and military leader
+Obs. 1
+
 Joel 3:16; Ps. 92:7-9, Micah 4:11, 12; Ps. 37 and 73; Heb. 1:12-17; Isa. 35:4,
 
 ### Mighty confederation
+Obs. 2
+10 horns
 
 ### Location
 #### Between the seas in the glorious holy mountain - Dan. 11
