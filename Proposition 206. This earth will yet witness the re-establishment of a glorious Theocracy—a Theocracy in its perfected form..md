@@ -2,7 +2,7 @@
 pagecount: 21
 observationcount: 15
 id: 206
-completion: 0
+completion: 1
 ---
 #toc
 ### God Himself, in the Person of Jesus, the Son of David, rules as an earthly ruler
@@ -108,4 +108,38 @@ Obs. 4
 
 >Why does God so carefully trace the rise and progress of the Jewish nation to the establishment of the Theocracy, then enter into fulness of detail respecting the Theocracy, its History and downfall; then avoiding any connected history of the nation so long as separated from the form of government He Himself instituted, He only presents a sufficiency to give coherency to predictions and preparations relating to the future? Why does God specially single out this Jewish nation as alone worthy of detailed mention, and pass by those mighty nations (with brief mention) that existed contemporaneously? Why does He devote so many pages to a special form of government, and pass by those forms which largely fill the pages of profane history and which played such a prominent part in the world’s drama? Such questions are only satisfactorily answered by a reference to the Theocratic ordering.
 >Obs. 9
+
+### Constitution
+>This Theocracy has a politico-religious constitution, i.e. a constitution inseparably connected with the worship of God, for God in the Person of “the Christ” is King.
+>Obs. 10
+
+### No other form of government
+>A Theocracy, in the very nature of the case, cannot tolerate any other form of government.
+>Obs. 11
+
+### Divine power
+Obs. 12
+
+### Not dependent on Rev. 20:1-6
+>The student will not fail to observe that our doctrine of the Kingdom, embracing this realized Theocratic idea, is not dependent on the statement of Rev. 20:1-6. This latter Scripture, so precious in stating one of the means of its inauguration, etc., might be entirely omitted without in the slightest degree affecting the abundant proof that covenants, predictions, and promises afford.
+>. . .
+>The Pre-Millennial resurrection is only a means necessary to secure a part of the rulers of this Kingdom; the idea of the Kingdom is not to be sought for in the means used for its re-introduction, but lies firmly imbedded in the oath-bound covenant of God.
+>Obs. 13
+
+
+### Distinguished blessings
+Obs. 14
+
+### Christ is the crowning excellence of the Theocracy
+>“The Christ” is the crowning excellence of the Theocracy; He is “the chief corner-stone” “the Head of the corner” the Stone that crowns the apex of the building.
+>Obs. 15
+
+>He must indeed be, as has been abundantly proven, David’s Son, and thus Human; but He must also be God, and thus able to rule Theocratically.
+>Obs. 15
+
+
+
+
+
+
 
