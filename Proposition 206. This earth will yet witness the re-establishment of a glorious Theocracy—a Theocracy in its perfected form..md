@@ -106,3 +106,6 @@ Obs. 4
 >The manner in which God regards the world’s history, as presented in His Word, indicates the high estimate that He places on this Theocratic idea.
 >Obs. 9
 
+>Why does God so carefully trace the rise and progress of the Jewish nation to the establishment of the Theocracy, then enter into fulness of detail respecting the Theocracy, its History and downfall; then avoiding any connected history of the nation so long as separated from the form of government He Himself instituted, He only presents a sufficiency to give coherency to predictions and preparations relating to the future? Why does God specially single out this Jewish nation as alone worthy of detailed mention, and pass by those mighty nations (with brief mention) that existed contemporaneously? Why does He devote so many pages to a special form of government, and pass by those forms which largely fill the pages of profane history and which played such a prominent part in the world’s drama? Such questions are only satisfactorily answered by a reference to the Theocratic ordering.
+>Obs. 9
+
