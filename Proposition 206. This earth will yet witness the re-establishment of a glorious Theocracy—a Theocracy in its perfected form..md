@@ -82,4 +82,27 @@ completion: 0
 >47. (47) When we regard the precious provision made by Jesus (comp. Prop. 195) for this very Theocratic ordering; when we contemplate the Person of Jesus, most wonderfully adapted to secure an exact, pure, real Theocratic rule (Prop. 199), and when we consider the title of Jesus, “the Messiah,” “the Christ” (Prop. 205) as alone applicable to a restored Theocracy, we certainly would be lacking faith in God and in His promises if we refused to receive, cordially and hopefully, the belief that, at the time determined by the Father, the Messiah shall come again, and fulfil the covenants and predictions relating to the restoration of a fallen Theocracy in a state of glory such as inspired men describe.
 >Obs. 3 slightly reformatted
 
+### Exceedingly desireable
+Obs. 4
+
+### Scriptures full of the Theocratic idea
+>The Scriptures are full of this Theocratic idea (as the preceding Propositions show), and many of its declarations receive new force and beauty when viewed in its light.
+>Obs. 5
+
+
+### A willing people
+>This Theocracy is a predetermined form of government, which, when the time arrives, will be enforced upon “a willing people.”
+>Obs. 6
+
+### Not of human devising
+>The Theocratic idea is so grand in its conception and so sublime in its adaptation to man and its results, that it could not have been of human devising.
+>Obs. 7
+
+### Permanent
+>This Theocracy, when once again established, is ‘permanent.
+>Obs. 8
+
+### Scripture's view of world history emphasizes the Theocratic idea
+>The manner in which God regards the world’s history, as presented in His Word, indicates the high estimate that He places on this Theocratic idea.
+>Obs. 9
 
