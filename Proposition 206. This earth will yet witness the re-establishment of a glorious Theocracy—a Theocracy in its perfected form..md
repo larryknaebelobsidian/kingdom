@@ -10,7 +10,6 @@ completion: 1
 >Attention is again called to the fact that this form, of government, predicted to be established and to extend itself over the earth, is a Theocracy, i.e. God Himself, in the Person of Jesus, the Son of David, rules in it as an earthly Ruler. This form of government is already seen in the Theocracy, initiatory, once established (Props. 25, 20) and which incorporated the Davidic line (Props. 27-33). God was the Supreme Ruler —the earthly King. This fundamental idea must necessarily be retained, if justice is done to the direct representations of Scripture, seeing that the entire tenor and analogy of the Record incontestably proves that the same Theocracy overthrown, owing to the sinfulness of the nation, shall be again restored under the Messiah with increased splendor and power (comp. Props. 31, 32, 33, 31, 35, and 30).
 >Obs. 1
 
-
 ### Consistency and Reasonableness of this theocracy
 >We press upon the notice of the reader the consistency and reasonableness of such a future Theocracy. The relation that man and this earth sustains to the most High God requires that the honor and majesty of God should demand the establishment of a Theocracy here on the earth, by which the race is brought under a government honorable alike to God and man. Our line of argument strongly develops this feature, and the student will appreciate its force, if attention is called to a few points. 
 >1. (1) At the creation God had determined upon this form of government (Props. 1 and 2); 
@@ -89,7 +88,6 @@ Obs. 4
 >The Scriptures are full of this Theocratic idea (as the preceding Propositions show), and many of its declarations receive new force and beauty when viewed in its light.
 >Obs. 5
 
-
 ### A willing people
 >This Theocracy is a predetermined form of government, which, when the time arrives, will be enforced upon “a willing people.”
 >Obs. 6
@@ -119,13 +117,11 @@ Obs. 4
 
 ### Divine power
 Obs. 12
-
 ### Not dependent on Rev. 20:1-6
 >The student will not fail to observe that our doctrine of the Kingdom, embracing this realized Theocratic idea, is not dependent on the statement of Rev. 20:1-6. This latter Scripture, so precious in stating one of the means of its inauguration, etc., might be entirely omitted without in the slightest degree affecting the abundant proof that covenants, predictions, and promises afford.
 >. . .
 >The Pre-Millennial resurrection is only a means necessary to secure a part of the rulers of this Kingdom; the idea of the Kingdom is not to be sought for in the means used for its re-introduction, but lies firmly imbedded in the oath-bound covenant of God.
 >Obs. 13
-
 
 ### Distinguished blessings
 Obs. 14
