@@ -68,5 +68,14 @@ Obs. 4
 ### Other objections
 Obs. 5
 
+>The Kingdom having been conditionally offered to the nation and having been rejected because the nation remained unrepentant, it was postponed until the Sec. Advent, and therefore, in view of the Divine Purpose previously plainly announced before His death, and thus embracing also a punishment upon the unbelief of the nation, it would have been incompatible with Messianic dignity and purpose to exhibit Himself to any others than believers in Him.
+>Obs. 5
 
+### More objections
+Obs. 6
+>the spiritualizing which tampered with the Messianic idea and the Messianic Kingdom came in later through such men as Origen, etc.; for history records the fact that both of these fundamental ideas were preserved intact by the early believers.
+>Obs. 6
+
+>no historical evidence, even the slightest, to prove that the allegorical interpretation of Alexandrian Jews had any influence whatever in forming the primitive views pertaining to the Christ; but, on the other hand, the reception of the Old Test. Scriptures, the retention of the pure Messianic conception, the utterance of various predictions, etc., all to be taken in their proper grammatical meaning, show that the allegorical interpretation met with no favor in the teaching of Jesus or His disciples.
+>Obs. 6
 
