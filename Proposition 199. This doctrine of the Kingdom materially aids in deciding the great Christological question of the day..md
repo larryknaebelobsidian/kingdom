@@ -6,6 +6,8 @@ completion: 0
 ---
 #toc
 
+## What think ye of Christ?
+
 >It has been justly remarked by many writers that the question that Jesus asked (Matt. 22:42) the assembled Pharisees: “What think ye of Christ?” is the great question of the day, seeing that the attack upon and the defence of Christianity, for the last twenty or more years, has centered upon the Person of Jesus Christ.
 
 >The question, “Who is Jesus V’ will be, so far as the world is concerned, decided adversely to Christianity; for we are assured that the time is certainly coming when the Christ ship of Jesus will be denied, the claims of His Messiahship will be ignored and scorned, and Antichrist shall gain, for a brief period, the complete victory in the contest, but, thank God, not by the force of reason or legitimate weapons, but, as the Spirit informs as, by “deceit,” “lying wonders,” “making war with the saints and overcoming them,” and killing all who will not worship him or his image.
