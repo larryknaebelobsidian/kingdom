@@ -4,7 +4,7 @@ observationcount: 8
 subjects:
   - judgement
 id: 132
-completion: 0.3
+completion: 0.6
 ---
 #toc
 
