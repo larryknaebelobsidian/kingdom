@@ -4,7 +4,7 @@ observationcount: 8
 subjects:
   - judgement
 id: 132
-completion: 0.6
+completion: 1
 ---
 #toc
 
@@ -42,4 +42,20 @@ completion: 0.6
 >The student can readily find an abundance of such allusions, a rich golden vein in the prophetic mine.
 
 >Obs. 5. The modern usage of the words “Judge” and “Judgment” have misled many in comprehending this subject, so that some assert, as Priest, that they cannot see how the Millennial period and judgment can be blended.
+
+>the meaning to be attached to the word in any particular case must be determined by the context, general analogy—in brief, by the laws controlling language, giving the preference in all cases to scriptural usage.
+>Obs. 5
+
+>Because “judge” is employed to designate judicial action, that is no reason for discarding the additional meanings attached to it by the Word of God.
+>Obs. 5
+
+>whether, when Christ is revealed as Judge, this Judgeship is not an equivalent to His Kingly rule. This we think is already conclusively proven,
+>Obs. 5
+
+>The Judgeship of Christ is not only perfectly consistent with the glory and blessedness of the Millennial period, but indispensably necessary to secure it.
+>Obs. 5
+
+>Obs. 6. The concessions made by writers when not directly opposing us are decidedly in our favor.
+
+>Obs. 7. This judging is connected with the casting out of Satan.
 
