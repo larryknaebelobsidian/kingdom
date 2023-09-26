@@ -37,6 +37,12 @@ Ezek. 30:27; Isa. 32:15; Ezek. 37:14; Isa. 44:3; Ezek. 39:29; Isa. 59:21,
 
 >For, in that day both body and soul shall experience this remarkable baptism of the Spirit; the body in the Spirit’s resurrecting, quickening, glorifying power (comp. Rom. 8:11; 2 Cor. 5:15; John 6:63; Eph. 1:13, and 4:20; 1 Pet. 3:18, etc.), and the soul in the Spirit’s conferring wisdom, knowledge, utterance, prophecy, miraculous gifts, etc.
 
+>it was something widely different from the ordinary operations of the Spirit given to form and develop Christian character,
+
+>it is most reasonable to anticipate, as holy men have predicted, an increase of measure, afar more extended manifestation of the Spirit’s almighty energy, etc.
+>Obs. 5
+
+
 
 
 
