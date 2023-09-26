@@ -2,7 +2,9 @@
 pagecount: 19
 observationcount: 12
 id: 171
-completion: 0.3
+completion: 1
+subjects:
+  - judgement
 ---
 #toc
 
@@ -53,9 +55,34 @@ Ezek. 30:27; Isa. 32:15; Ezek. 37:14; Isa. 44:3; Ezek. 39:29; Isa. 59:21,
 >Obs. 5
 
 
+>Obs. 6. Hence it is not correct to distinguish this dispensation as one of the Spirit exclusively, or even as pre-eminent over all that shall be given. The very same Spirit manifested His renewing, sanctifying, and even inspiring and miraculous power under the Antediluvian, Patriarchal, and Mosaic dispensations, and now in the Christian He has done this in a still more striking manner. But to limit His work to these, is to ignore a multitude of blessed predictions, which declare that “the day,” or “the age,” or “the world to come,” is to be emphatically the great dispensation in which the Spirit will, in the most extraordinary manner, exhibit his power, so that what has preceded is a mere earnest of that which shall follow. His supernatural power will be felt in recreation, in delivering a groaning creation, in raising and quickening the bodies of believers, in qualifying them for their position of kinghood and priesthood, in bestowing Pentecostal gifts, etc.; and hence, seeing that the perfection and completeness of His work is only to be witnessed in the coming age, we must attribute the most remarkable outpouring of the Spirit to that future period, thus making pre-eminently a dispensation of the Spirit.
 
 
 
+>It is really sad to observe in looking over the past that, notwithstanding the distinctive description of this baptism and what it confers, it has been claimed by a great company, and it has become fruitful of misunderstanding, perversion, and extravagances.
+>Obs. 7
+
+>Obs. 8. This may throw light upon the disputed point, when authentic miracles ceased, or when this special baptism of the Spirit no longer transpired.
+
+>if continued on, perpetuated on in the Church without intermission, the Baptism of the Spirit would have failed in its significance as a sign, a pledge of the future fulfilment.
+>Obs. 8
+
+>the mistake (which was made, and is now so tenaciously held by the multitude), that all that the prophets predicted related to the present dispensation, and that we need not look for any better here on earth.
+>Obs. 8
+
+>Besides this, its continuance was unsuitable both to the predictions of the prophets and to the times that ensued.
+>Obs. 8 
+
+>Now the prophecies associate this peculiar outpouring of the Spirit with the Jewish nation—it is not isolated from it, but inseparably joined with its restoration, and the period of the restored Theocracy.
+>Obs. 8
+
+>Obs. 9. It also aids in our interpretation of other Scripture.
+
+### Baptism with fire
+Obs. 12
+
+>To ascertain its meaning, we have only to allow scriptural usage to give us the key which enables us to interpret this promise consistently with the analogy of Bible promise, thus avoiding the making it a mere emblem of the Spirit or of His presence, or of His purity and power, or of the reception by believers of affliction instead of happiness, dishonor instead of honor, pain instead of pleasure, and punishment instead of triumph. Fire is employed to denote the power of judging, or rather of executing judgment upon others.
+>Obs. 12
 
 
 
