@@ -42,6 +42,19 @@ Ezek. 30:27; Isa. 32:15; Ezek. 37:14; Isa. 44:3; Ezek. 39:29; Isa. 59:21,
 >it is most reasonable to anticipate, as holy men have predicted, an increase of measure, afar more extended manifestation of the Spirit’s almighty energy, etc.
 >Obs. 5
 
+>It indicates how the pious wish of Moses (Num. 11:29) may be realized, “would God that all the Lord’s people were prophets, and that the Lord would put His Spirit upon them.”
+>Obs. 5
+
+>Indeed, when we regard the promises of Christ given in this direction to believers, it is impossible to confine them to the present dispensation, seeing that they have not yet been fully realized. Thus e.g. the promise is to everyone that believeth (John 14:12, 13), “the works that I do shall he do also; and greater works than these shall he do,” which in its amplitude undoubtedly extends to the period of this still future predicted outpouring of the Spirit, by which we know, from the evidence already presented in a limited extent, that it is not only possible to be, but that it will be, actually fulfilled.
+>Obs. 5
+
+
+>To be made equal unto angels, to possess the power attributed unto saints, etc., in the very nature of the case, requires the conferring of the Spirit through whom alone those great wonders are performed. When the body of Christ, the elect Church, is completed, then the Oneness, now existing by faith and grace through the Spirit, will be perfected by this superior baptism, in the bodies being made like unto Christ’s, and in the souls possessing divine power, and in their union with Christ as associated rulers and priests performing similar offices and acts. This opens up before us the most astonishing and enrapturing views of the honor, power, and glory of the saints; explaining the source from whence derived; showing how it can be verified, and teaching us that these promises are not exaggerated but sober, joyful realities.
+>Obs. 5
+
+
+
+
 
 
 
