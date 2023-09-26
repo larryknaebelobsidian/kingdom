@@ -4,7 +4,7 @@ observationcount: 18
 subjects:
   - postponement
 id: 94
-completion: 0
+completion: 1
 ---
 
 Proposition 94. The overlooking of the [[postponement]] of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.
@@ -34,4 +34,13 @@ Proposition 94. The overlooking of the [[postponement]] of this Kingdom is a fun
 
 >Obs. 11. By this postponement the special Davidic covenant remains unfulfilled (excepting that David’s Son and Lord is born, and qualified for the immortal reign), and “the tabernacle of David” continues “fallen down” and “in ruins”—"The house” remains “desolate.”
 
+>Obs. 12. The evidence in behalf of this postponement has already been given (e.g. Prop 58, 65, 66, 67, 70, etc.),
+
+>Obs. 13. To Millenarians it may be observed, that a remarkable announcement of the postponement of this Kingdom, its ultimate establishment in the restoration of the tribes of Israel with the glory that shall follow, is found in Isa. 49:1-23 (Comp. Alexander’s version), in Micah 5:2, 3, 4 (“give them up until” etc.), in Zech. 13:7-9, etc.
+
+>Obs. 16. The postponement indicates that a very large Judaistic element remains yet to be realized in fulfilment.
+
+>Obs. 17. This view also shows how ungrounded is the insidious (and to the philosophic mind, fascinating) theory, so prevalent, of distinguishing between the Gospels, making them different types or stages of expression. The simple fact is (comp. Prop. 9 and 10), that the Gospels are a unit in representing the leading subject of the Kingdom and of the King, and all of them have the same Jewish covenanted position presented.
+
+>Obs. 18. Unbelief,—rejecting the Messianic position, its rejection by the nation and the resultant postponement,—endeavors to deteriorate the actions of Jesus by ascribing to mere human passion what evidently was caused by the legitimacy of His station and His treatment by the nation.
 
