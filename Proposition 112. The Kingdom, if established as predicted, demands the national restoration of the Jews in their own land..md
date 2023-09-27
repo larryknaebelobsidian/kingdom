@@ -141,6 +141,9 @@ completion: 0
 
 >Obs. 7. The reader will consider how unnatural—even cruel—it would be, if the doctrine of a restoration is not to be received, to give so many predictions which in their plain grammatical sense teach a future glorious national restoration of the Jews to their once possessed land.
 
+>Moses after the delivery of the ceremonial law and after the establishment of the Theocratic ordering, predicts, Deut. 32, the restoration of the nation (e.g. vs. 36-43) after the call and gathering (v. 21 comp, with Rom. 10:19) of the Gentiles. This exactly corresponds with James’s declaration (Acts 15:16) that after the Gentiles are gathered out then the Davidic house or Kingdom will be restored.
+>Obs. 8
+
 
 
 
