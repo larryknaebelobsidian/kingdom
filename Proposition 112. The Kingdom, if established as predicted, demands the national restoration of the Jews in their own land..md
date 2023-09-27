@@ -4,7 +4,7 @@ observationcount: 8
 subjects:
   - elect nation
 id: 112
-completion: 0
+completion: 1
 ---
 #toc
 ### Preliminary considerations
