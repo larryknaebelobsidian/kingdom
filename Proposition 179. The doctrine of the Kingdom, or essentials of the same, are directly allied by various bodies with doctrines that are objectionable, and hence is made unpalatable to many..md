@@ -75,7 +75,7 @@ completion: 1
 #### Differences
 >They differ as to the exact nature of the Kingdom, the manner and duration of the reign, the stages of the Sec. Advent, and in the interpretation and application of passages and predictions of Scripture; and this difference arises solely from the removal of the everlasting, oath-bound covenant of David out of their system (a fundamental neglect, inevitably leading to misapprehension) and from a spiritualizing interpretation incorporated, more or less, notwithstanding the plain grammatically expressed sense.
 
-
+### Bitter history
 >Obs. 10. We may add: when regarding the history of this doctrine, how it has been treated; how it has been perverted; how it has been held in bigotry; how believers in it are held apart by incorporated erroneous doctrines; how bitterness, malice, and prosecution have arisen concerning it; how on the one hand it is hated and abused, and on the other loved and cherished, we are sad at heart, and feel to say, “How long, O Lord.”
 
 
