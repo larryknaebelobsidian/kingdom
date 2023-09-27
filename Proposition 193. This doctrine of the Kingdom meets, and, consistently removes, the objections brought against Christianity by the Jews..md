@@ -2,7 +2,7 @@
 pagecount: 19
 observationcount: 10
 id: 193
-completion: 0.3
+completion: 1
 ---
 #toc
 
@@ -23,4 +23,23 @@ Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition.
 
 >By the efficacy of this death, abundant provision is made for the ample realization of the covenant: an immortal King is provided who is able to save—through Him all that believe, can and will be saved as predicted, for He now has power to forgive sin, to save from the results of sin, to raise up the dead, etc.
 >Obs. 6
+
+>Obs. 7. The Kingdom as explained by the prevailing theories is a stumbling-block to the Jew.
+
+>For, when he looks at the Church, or at this age, he finds no such a Messianic Kingdom as his prophets promised, no such a glorious restoration of his nation under Davidic rule as the Spirit predicted, and hence, influenced by the usurped claim of the Christian Church, and warped by the apparent antagonism, he turns away from Christianity itself.
+>Obs. 7
+
+>Obs. 8. How poorly in effectiveness the arguments of the Jew have been met by later Christian apologists,
+
+>The spirit of it calls upon the Gentiles not to be“high-minded,” to consider that their call (as predicted even by Moses) is the result of Jewish unbelief, but which unbelief shall finally give place to a cordial reception of Jesus Christ, when the times of the Gentiles have run their allotted course.
+
+>It sympathizes most cordially with the down-trodden Jerusalem and the scattered nation, never forgetting that the glory of the adopted Gentiles and that of the Kingdom itself can never be realized, as promised, until Jerusalem and its nation experience the returned mercy of God and His Christ. It vindicates Jesus Christ and His teaching from the Jewish ground itself, and thus commends Jesus as the true fulfiller of the prophets.
+>Obs. 9
+
+>Obs. 10. Our doctrine brings forth with prominency the idea that the Messiah is a temporal Deliverer.
+
+>it was assumed that the Messiah had not yet come, thus overlooking that the same prophets predict a previous rejection of the same Messiah, a consequent continued fall of the nation, a call of the Gentiles, and after a long endurance of punishment the return of the Messiah for promised deliverance.
+>Obs. 10
+
+ 
 
