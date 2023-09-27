@@ -53,5 +53,35 @@ completion: 0
 >Obs. 6
 
 ### The Fifth-Monarchy Men
+>that arose later in England”, entertained precisely similar views, believing that they themselves were called—without a prior Advent or res.—to set up the Fifth Universal Monarchy predicted by Dan. (comp. Hists. of England, Hume’s, Pictorial, Burnet, etc., etc., and arts. on, in Cyclops.). What Millenarians attribute to Christ’s Coming and His reign (and that of the saints), they, like Post-Millenarians—thought they could perform, or the Church through them. The only difference between Whitbyanism and these two classes mentioned —we admit a great one—is this, that the former seeks to gain its dream of conquest through moral and spiritual means, while the latter invoked violent measures to aid them. The dream, however, is common to both, making a Millennium without Christ a possibility.
 
-Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 
+### Catholic Apostolic Church (the offshoot of Irvingism)
+>is Chiliastic, but in connection has an extreme hierarchical and liturgical formalism, having revived (as the Mormons) the Apostolate, and claims the extraordinary gifts of the Spirit perpetuated in their Church, thus having prophets, etc., in their midst.
+>Obs. 7
+
+### Plymouth Brethren/Believers/Darbyites
+>being noted for their absolute Independentism. While strongly Chiliastic, they prominently set forth that all clericism and ecclesiastical forms are evil—Romish and Protestant Churches alike are Babel—that there is only one office, the spiritual priesthood of all believers, and every one has a right, as the spirit moves him, to preach, administer the sacraments, discipline, etc. They also claim the special gifts of the Spirit, and have a mystical tendency.
+>Obs. 7
+
+### Pre-Millenarianism, Post-Millenarianism, Anti-Millenarianism, Spiritualism,
+>numerous in the interpretation and application of Scripture. These are pointed out in detail as we proceed, arising from the principle of interpretation adopted, and relate to the manner of understanding the Abrahamic Covenant, the Davidic, the renewal of the covenant, the inheritance of the Christ, the Pre-Mill. Advent, the non-conversion of the world before the Advent, the first and second resurrections, the Judgeship of Jesus, the Judgment Day, the world to come, the Rest, the reign of Jesus and His saints, the restoration of the Jewish nation and their supremacy, the Antichrist and results, the Theocratic Kingdom, the Supernatural introduction of the Mill, age, the perpetuity of the earth and race, the design of this dispensation, the nearness of the Advent, the commanded posture and duty of believers, the prominency of “the blessed hope,” and various related subjects. Of course the correctness of belief must be decided by an appeal to Scripture, and the student must determine for himself which party obtains the strongest support from Holy Writ.
+>Obs. 8
+
+### Pre-millenarians
+#### United
+>In the grand outlines of Millenarianism, all Pre-Millenarians are united.
+
+>Thus e.g. they all hold to a future Millennial age; this age to be preceded by the personal Advent of Jesus; this Millennial period to be bounded by a literal first and second resurrection, the former at the beginning and the latter at its ending. They all believe in a still future covenanted Messianic Kingdom introduced by the Sec. Advent, the resurrection and translation of the saints, and the restoration and repentance of the Jewish nation. They all teach the same design respecting this dispensation, the non-conversion of the world before the Sec. Advent, the same Judgeship of Jesus, the same Judgment Day, and related subjects.
+
+#### Differences
+>They differ as to the exact nature of the Kingdom, the manner and duration of the reign, the stages of the Sec. Advent, and in the interpretation and application of passages and predictions of Scripture; and this difference arises solely from the removal of the everlasting, oath-bound covenant of David out of their system (a fundamental neglect, inevitably leading to misapprehension) and from a spiritualizing interpretation incorporated, more or less, notwithstanding the plain grammatically expressed sense.
+
+
+>Obs. 10. We may add: when regarding the history of this doctrine, how it has been treated; how it has been perverted; how it has been held in bigotry; how believers in it are held apart by incorporated erroneous doctrines; how bitterness, malice, and prosecution have arisen concerning it; how on the one hand it is hated and abused, and on the other loved and cherished, we are sad at heart, and feel to say, “How long, O Lord.”
+
+
+
+
+
+
+
