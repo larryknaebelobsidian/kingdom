@@ -18,7 +18,6 @@ completion: 1
 >Obs. 1
 
 ### Seventh-Day Adventists
-
 >they do not in any sense hold to a Millennium here on the earth during the thousand years.
 >Obs. 2
 
@@ -63,7 +62,7 @@ completion: 1
 >being noted for their absolute Independentism. While strongly Chiliastic, they prominently set forth that all clericism and ecclesiastical forms are evil—Romish and Protestant Churches alike are Babel—that there is only one office, the spiritual priesthood of all believers, and every one has a right, as the spirit moves him, to preach, administer the sacraments, discipline, etc. They also claim the special gifts of the Spirit, and have a mystical tendency.
 >Obs. 7
 
-### Pre-Millenarianism, Post-Millenarianism, Anti-Millenarianism, Spiritualism,
+### Pre-Millenarianism, Post-Millenarianism, Anti-Millenarianism, Spiritualism
 >numerous in the interpretation and application of Scripture. These are pointed out in detail as we proceed, arising from the principle of interpretation adopted, and relate to the manner of understanding the Abrahamic Covenant, the Davidic, the renewal of the covenant, the inheritance of the Christ, the Pre-Mill. Advent, the non-conversion of the world before the Advent, the first and second resurrections, the Judgeship of Jesus, the Judgment Day, the world to come, the Rest, the reign of Jesus and His saints, the restoration of the Jewish nation and their supremacy, the Antichrist and results, the Theocratic Kingdom, the Supernatural introduction of the Mill, age, the perpetuity of the earth and race, the design of this dispensation, the nearness of the Advent, the commanded posture and duty of believers, the prominency of “the blessed hope,” and various related subjects. Of course the correctness of belief must be decided by an appeal to Scripture, and the student must determine for himself which party obtains the strongest support from Holy Writ.
 >Obs. 8
 
