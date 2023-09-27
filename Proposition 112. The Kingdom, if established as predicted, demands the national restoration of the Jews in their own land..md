@@ -127,6 +127,22 @@ completion: 0
 ### Where are the 10 tribes?
 >Obs. 5. There is only one objection that at first thought appears plausible urged against this restoration, which we feel unable to answer as it probably deserves. It is this: “the whole house of Israel,” both “Judah and Israel” are to be restored, but if so, where are the ten tribes?
 
+>the Divine Purpose pertaining to perfected salvation is inseparably connected with the Jewish nation as such, and absolutely requires its restoration.
+
+>the Jews could not understand how the blessings exclusively promised to a covenanted people, the natural seed of Abraham, could be extended to others and themselves be rejected, which, however, is explained by the adoption by faith into the covenanted people of Abraham, and by the additional fact that this rejection of the nation is not perpetual but only for a limited period,
+
+>the rejection of the nation is not final but bounded by a definite period known to God.
+
+>“And so all Israel shall be saved.” Then Abraham, Isaac and. Jacob and all the pious, believing dead shall arise to inherit the promises; then the Gentiles grafted in by faith, the dead of centuries shall also arise and inherit with them; and then too the nation once blind, rejected and sorely punished shall return to their former station of special consecration to God, and “all Israel,” not part (comp. Ezek. 39:28) but all, thus saved shall prove an inestimable blessing to the world.
+
+>God does not change or repent; His promises to this nation, notwithstanding its rebellion, etc., are sure. Otherwise with His foreknowledge, powers, etc., He would not have made and called them.
+
+>Surely the early Church more fully appreciated the Divine Purposes of God in Redemption by keeping close to the Record, than modern theology (with here and there an exception) with all its boasted enlightenment and deeper spirituality.
+
+>Obs. 7. The reader will consider how unnatural—even cruel—it would be, if the doctrine of a restoration is not to be received, to give so many predictions which in their plain grammatical sense teach a future glorious national restoration of the Jews to their once possessed land.
+
+
+
 
 
 
