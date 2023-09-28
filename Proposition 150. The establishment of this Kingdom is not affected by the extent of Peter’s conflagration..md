@@ -122,3 +122,99 @@ are melting
 καυσούμενα
 burning with heat  
 [V-PPM/P-NNP](https://biblehub.com/grammar/greek.htm "Verb - Present Participle Middle or Passive - Nominative Neuter Plural")
+
+[New International Version](https://biblehub.com/niv/2_peter/3.htm)  
+But the day of the Lord will come like a thief. The heavens will disappear with a roar; the elements will be destroyed by fire, and the earth and everything done in it will be laid bare.  
+  
+[New Living Translation](https://biblehub.com/nlt/2_peter/3.htm)  
+But the day of the Lord will come as unexpectedly as a thief. Then the heavens will pass away with a terrible noise, and the very elements themselves will disappear in fire, and the earth and everything on it will be found to deserve judgment.  
+  
+[English Standard Version](https://biblehub.com/esv/2_peter/3.htm)  
+But the day of the Lord will come like a thief, and then the heavens will pass away with a roar, and the heavenly bodies will be burned up and dissolved, and the earth and the works that are done on it will be exposed.  
+  
+[Berean Standard Bible](https://biblehub.com/bsb/2_peter/3.htm)  
+But the Day of the Lord will come like a thief. The heavens will disappear with a roar, the elements will be destroyed by fire, and the earth and its works will be laid bare.  
+  
+[Berean Literal Bible](https://biblehub.com/blb/2_peter/3.htm)  
+But _the_ day of _the_ Lord will come like a thief, in which the heavens will pass away with a roar, and elements will be dissolved, burning with heat, and _the_ earth and the works in it will not be found.  
+  
+[King James Bible](https://biblehub.com/kjv/2_peter/3.htm)  
+But the day of the Lord will come as a thief in the night; in the which the heavens shall pass away with a great noise, and the elements shall melt with fervent heat, the earth also and the works that are therein shall be burned up.  
+  
+[New King James Version](https://biblehub.com/nkjv/2_peter/3.htm)  
+But the day of the Lord will come as a thief in the night, in which the heavens will pass away with a great noise, and the elements will melt with fervent heat; both the earth and the works that are in it will be burned up.  
+  
+[New American Standard Bible](https://biblehub.com/nasb_/2_peter/3.htm)  
+But the day of the Lord will come like a thief, in which the heavens will pass away with a roar and the elements will be destroyed with intense heat, and the earth and its works will be discovered.  
+  
+[NASB 1995](https://biblehub.com/nasb/2_peter/3.htm)  
+But the day of the Lord will come like a thief, in which the heavens will pass away with a roar and the elements will be destroyed with intense heat, and the earth and its works will be burned up.  
+  
+[NASB 1977](https://biblehub.com/nasb77/2_peter/3.htm)  
+But the day of the Lord will come like a thief, in which the heavens will pass away with a roar and the elements will be destroyed with intense heat, and the earth and its works will be burned up.  
+  
+[Legacy Standard Bible](https://biblehub.com/lsb/2_peter/3.htm)  
+But the day of the Lord will come like a thief, in which the heavens will pass away with a roar and the elements will be destroyed with intense heat, and the earth and its works will be found _out_.  
+  
+[Amplified Bible](https://biblehub.com/amp/2_peter/3.htm)  
+But the day of the Lord will come like a thief, and then the heavens will vanish with a [mighty and thunderous] roar, and the [material] elements will be destroyed with intense heat, and the earth and the works that are on it will be burned up.  
+  
+[Christian Standard Bible](https://biblehub.com/csb/2_peter/3.htm)  
+But the day of the Lord will come like a thief; on that day the heavens will pass away with a loud noise, the elements will burn and be dissolved, and the earth and the works on it will be disclosed.  
+  
+[Holman Christian Standard Bible](https://biblehub.com/hcsb/2_peter/3.htm)  
+But the Day of the Lord will come like a thief; on that day the heavens will pass away with a loud noise, the elements will burn and be dissolved, and the earth and the works on it will be disclosed.  
+  
+[American Standard Version](https://biblehub.com/asv/2_peter/3.htm)  
+But the day of the Lord will come as a thief; in the which the heavens shall pass away with a great noise, and the elements shall be dissolved with fervent heat, and the earth and the works that are therein shall be burned up.  
+  
+[Aramaic Bible in Plain English](https://biblehub.com/hpbt/2_peter/3.htm)  
+But the day of THE LORD JEHOVAH comes as a thief in which the Heavens suddenly pass away, but the elements being set on fire shall be destroyed and The Earth and the works that are in it shall be discovered.  
+  
+[Contemporary English Version](https://biblehub.com/cev/2_peter/3.htm)  
+The day of the Lord's return will surprise us like a thief. The heavens will disappear with a loud noise, and the heat will melt the whole universe. Then the earth and everything on it will be seen for what they are.  
+  
+[Douay-Rheims Bible](https://biblehub.com/drbc/2_peter/3.htm)  
+But the day of the Lord shall come as a thief, in which the heavens shall pass away with great violence, and the elements shall be melted with heat, and the earth and the works which are in it, shall be burnt up.  
+  
+[English Revised Version](https://biblehub.com/erv/2_peter/3.htm)  
+But the day of the Lord will come as a thief; in the which the heavens shall pass away with a great noise, and the elements shall be dissolved with fervent heat, and the earth and the works that are therein shall be burned up.  
+  
+[GOD'S WORD® Translation](https://biblehub.com/gwt/2_peter/3.htm)  
+The day of the Lord will come like a thief. On that day heaven will pass away with a roaring sound. Everything that makes up the universe will burn and be destroyed. The earth and everything that people have done on it will be exposed.  
+  
+[Good News Translation](https://biblehub.com/gnt/2_peter/3.htm)  
+But the Day of the Lord will come like a thief. On that Day the heavens will disappear with a shrill noise, the heavenly bodies will burn up and be destroyed, and the earth with everything in it will vanish.  
+  
+[International Standard Version](https://biblehub.com/isv/2_peter/3.htm)  
+But the Day of the Lord will come like a thief. On that day the heavens will disappear with a roaring sound, the elements will be destroyed by fire, and the earth and everything done on it will be exposed.  
+  
+[Literal Standard Version](https://biblehub.com/lsv/2_peter/3.htm)  
+and it will come—the Day of the LORD—as a thief in the night, in which the heavens will pass away with a rushing noise, and the elements will be dissolved with burning heat, and [the] earth and the works in it will not be found.  
+  
+[Majority Standard Bible](https://biblehub.com/msb/2_peter/3.htm)  
+But the Day of the Lord will come like a thief in the night. The heavens will disappear with a roar, the elements will be destroyed by fire, and the earth and its works will be burned up.  
+  
+[New American Bible](https://biblehub.com/nabre/2_peter/3.htm)  
+But the day of the Lord will come like a thief, and then the heavens will pass away with a mighty roar and the elements will be dissolved by fire, and the earth and everything done on it will be found out.  
+  
+[NET Bible](https://biblehub.com/net/2_peter/3.htm)  
+But the day of the Lord will come like a thief; when it comes, the heavens will disappear with a horrific noise, and the celestial bodies will melt away in a blaze, and the earth and every deed done on it will be laid bare.  
+  
+[New Revised Standard Version](https://biblehub.com/nrsvce/2_peter/3.htm)  
+But the day of the Lord will come like a thief, and then the heavens will pass away with a loud noise, and the elements will be dissolved with fire, and the earth and everything that is done on it will be disclosed.  
+  
+[New Heart English Bible](https://biblehub.com/nheb/2_peter/3.htm)  
+But the day of the Lord will come as a thief; in which the heavens will pass away with a great noise, and the elements will be dissolved with fervent heat, and the earth and the works on it will not be found.  
+  
+[Webster's Bible Translation](https://biblehub.com/wbt/2_peter/3.htm)  
+But the day of the Lord will come as a thief in the night; in which the heavens will pass away with a great noise, and the elements will melt with fervent heat, the earth also and the works that are therein will be burned up.  
+  
+[Weymouth New Testament](https://biblehub.com/wey/2_peter/3.htm)  
+The day of the Lord will come like a thief--it will be a day on which the heavens will pass away with a rushing noise, the elements be destroyed in the fierce heat, and the earth and all the works of man be utterly burnt up.  
+  
+[World English Bible](https://biblehub.com/web/2_peter/3.htm)  
+But the day of the Lord will come as a thief in the night, in which the heavens will pass away with a great noise, and the elements will be dissolved with fervent heat; and the earth and the works that are in it will be burned up.  
+  
+[Young's Literal Translation](https://biblehub.com/ylt/2_peter/3.htm)  
+and it will come -- the day of the Lord -- as a thief in the night, in which the heavens with a rushing noise will pass away, and the elements with burning heat be dissolved, and earth and the works in it shall be burnt up.
