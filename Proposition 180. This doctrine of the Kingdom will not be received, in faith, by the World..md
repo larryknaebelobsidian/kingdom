@@ -5,7 +5,42 @@ id: 180
 completion: 0
 ---
 #toc
-
+### The Gospel condemns
 >“this is the condemnation, that light is come into the world and men loved darkness rather than light, because their deeds were evil. For every one that doeth evil, hateth the light, neither cometh to the light, lest his deeds should be reproved,” John 3:19, 20. Here a masterly hand in a few sentences lays bare the leading cause of opposition to the Bible. The condemnatory nature of both law and Gospel, the requirements of the Bible from the individual, the humbling doctrines associated with Redemption—alas, these form the great stumbling-blocks to the Christian religion.
 >Obs. 1
+### High moral requirements
+>Therefore it is, that this doctrine of the Kingdom will find no favor, not because of the Theocratic order assigned, or the blessings included in it, or the glory of the reign predicted, etc., but because of the moral fitness, moral requirements, the believing Christian life that is so imperatively, so authoritatively demanded by God before it can be inherited by us. The life of faith required before entrance into it, is not a life of blind faith, but of seeing faith, of appropriating faith, of faith resulting in corresponding action; and such a faith being unpalatable to man, forms the secret spring of opposition.
+>Obs. 3
+
+### Christianity rests on both reason and faith
+>The Word of God introduces both reason and faith as essential to a true Christian life, to a correct reception of the truth.
+>Obs. 4
+
+>Theoretically, i.e. in its doctrinal aspect, it depends on reason, and hence we are urged to use reason; practically, i.e. personal experience of the power of truth, it depends on faith, and faith is enforced.
+>Obs. 4
+
+>The application of the laws of language, the comparing of Scripture with Scripture, the criticism of the text, the study of analogy, etc., are all evidences of the intellectual inseparably connected with faith, fostering and cherishing faith, and assigning reasons for the faith within us.
+>Obs. 4
+
+>the truth thus refused—owing to his capacity to understand it—shall judge him in the last day. While reason is not the rule of faith (as shown by numerous writers, e.g. Prof. Loy, Evang. Quart. Review, Jan., 1871), it is also true that faith is not the rule of reason; for they are sisters, going hand in hand and mutually supporting each other, making the Word of God alone the rule, the guide, as received by them.
+>Obs. 4
+
+>As Pascal said: “the last step of reason is to know that there is an infinitude of things which surpass it.”
+>Obs. 4
+
+>when we say that this Kingdom of God is a subject of faith, that it can only in its entirety be received by faith, we do not at the same time discard reason. The meaning simply is that it is a matter exclusively of Divine Revelation, Procedure, and Consummation. Man could not plan, reveal, prepare for, and finally establish it.
+>Obs. 4
+
+>There is nothing so sad under the sun as intelligence fettered by unbelief, as reason bound by pride, as the intellectual nature held irresponsive to the moral, as man attempting to stand alone without the counsel and aid of his Maker.
+>Obs. 4
+
+### The charge of credulity against believers
+>the charge of “credulity” brought against believers.
+>Obs. 5
+
+>our position advances the most positive proof in its support by appealing to facts in the past and present; facts existing in the nature of man and of truth; facts appertaining to a developing Divine Purpose which in its totality, design, progress, etc., evince the intelligent guidance and control of a Creator; facts which when united the one to the other form a connected chain of Divine Procedure in the attainment of a definite specified Plan; facts too, which any one can verify by personal application of the truth; and facts which appertain both to reason and experience— thus manifesting the reasonableness of the same.
+>Obs. 5
+
+>Dr. Dawson (before Evang. Alliance of 1873) expressed this fully: “When you talk of Darwinism you talk of theories that make vaster demands on our faith than on our science.”
+>Obs. 5
 
