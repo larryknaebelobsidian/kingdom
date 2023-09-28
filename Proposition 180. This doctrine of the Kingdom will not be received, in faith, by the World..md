@@ -44,3 +44,6 @@ completion: 0
 >Dr. Dawson (before Evang. Alliance of 1873) expressed this fully: “When you talk of Darwinism you talk of theories that make vaster demands on our faith than on our science.”
 >Obs. 5
 
+>The condition of the world as delineated in the Word just previous to the Second Advent presents to us the nations under the influence of an unbelieving Naturalism and self-glorified Humanity, arrayed in open hostility to the Lord Jesus Christ.
+>Obs. 5
+
