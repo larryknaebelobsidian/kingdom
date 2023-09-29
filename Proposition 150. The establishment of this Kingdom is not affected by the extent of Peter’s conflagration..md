@@ -5,7 +5,7 @@ subjects:
   - conflagration
   - new heavens new earth
 id: 150
-completion: 0
+completion: 1
 ---
 #toc
 
@@ -33,7 +33,6 @@ Obs. 10
 
 >These three classes, by the extent of the fire advocated, make no provision for the Kingdom to exist in its expressed covenanted terms, and none for the deliverance of inanimate and animate creation, having the same destroyed and an entire new creation erected from the ashes, etc. Instead of the curse being removed from the existing world, the world falls beneath the curse and is sacrificed, so that an entire new one which has never borne a curse may be created.
 
-Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 
 
 #### The fire is entirely figurative
 
