@@ -38,6 +38,7 @@ Obs. 10
 
 #### Literal fire confined to localities
 
+## Peters does not dig into the text so we do a little below
 ## 2 Peter 3:5-13
 For when they maintain this, it escapes their notice that by the word of God _the_ heavens existed long ago and _the_ earth was formed out of water and by water, 
 6 through which the world at that time was destroyed, being deluged with water. 
