@@ -45,7 +45,7 @@ For when they maintain this, it escapes their notice that by the word of God _th
 7 But by His word the present heavens and earth are being reserved for fire, being kept for the day of judgment and destruction of ungodly men. 
 8 But do not let this one _fact_ escape your notice, beloved, that with the Lord one day is like a thousand years, and a thousand years like one day. 
 9 The Lord is not slow about His promise, as some consider slowness, but is patient toward you, not willing for any to perish but for all to come to repentance. 
-10 But the day of the Lord will come like a thief, in which the heavens will pass away with a roar and the elements will be destroyed with intense heat, and the earth and its works will be found _out_. 
+10 But the day of the Lord will come like a thief, in which the heavens will pass away with a roar and the elements will be destroyed with intense heat, and the earth and its works will be found out. 
 11 Since all these things are to be destroyed in this way, what sort of people ought you to be in holy conduct and godliness, 
 12 looking for and hastening the coming of the day of God, because of which the heavens burning will be destroyed, and the elements will melt with intense heat! 
 13 But according to His promise we are looking for new heavens and a new earth, in which righteousness dwells.
