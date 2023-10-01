@@ -7,7 +7,11 @@ subjects:
   - postponement
 ---
 #toc
->They could not consistently preach that it was established, because (1) the covenant forbids it, the express terms of it not being verified; (2) the rejection of the kingdom by the Jews and its consequent postponement during “the times of the Gentiles,” forbids it; (3) the seed of Abraham to whom the Kingdom is to be given not being yet gathered out, forbids it; and (4) the non-arrival of the Sec. Advent forbids it.
+>They could not consistently preach that it was established, because 
+>1. (1) the covenant forbids it, the express terms of it not being verified; 
+>2. (2) the rejection of the kingdom by the Jews and its consequent postponement during “the times of the Gentiles,” forbids it; 
+>3. (3) the seed of Abraham to whom the Kingdom is to be given not being yet gathered out, forbids it; and 
+>4. (4) the non-arrival of the Sec. Advent forbids it.
 ### His chosen witnesses
 >After the declarations of Jesus that “the house” (Davidic) would remain desolate until His return, that He would leave, remain away for an indefinite time, that the Kingdom was connected with His coming again, etc., it is reasonable to look for a corresponding style of preaching in His chosen witnesses.
 >Obs. 1
