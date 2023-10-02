@@ -6,6 +6,63 @@ completion: 0.2
 ---
 #toc
 
+>Obs. 1. Taking the establishment of the Kingdom for granted, and overlooking the postponement, has led to a wholesale appropriation by the church of predictions relating exclusively to the Kingdom still future.
+
+>the church cannot be meant by the Kingdom, for the prophecy locates the appearance of the Ancient of Days and the bestowment of the Kingdom after the horns have appeared.
+>Obs. 2
+
+>after three have fallen, and after the rise and extended progress of another horn called the “little horn,”
+>Obs. 2
+
+>The stone comes, the Son of man comes, at the time when the Kingdoms are to be destroyed, and the prophecy proclaims this to be one of the objects contemplated by the Coming.
+>Obs. 2
+
+>This Kingdom is only given to the Son of man at this Coming, referred by Jesus not to the first but a future one, and therefore it is not the church. (Comp. Prop. 121).
+>Obs. 2
+
+>The horns and the little horn are represented as existing down to this Coming, and during their presence and exertion of power, the saints, just as has occurred in the church but will not in the Kingdom, have been oppressed and persecuted.
+>Obs. 2
+
+>a Coming in triumph to rescue saints after they have endured a period of trial, etc. Hence this is not the Coming which preceded the Ch. Church, but must be the same alluded to in Rev. as preceding the Mill. age.
+>Obs. 2
+
+>The declaration of the prophecy is, that the church was in a struggling condition “until” “the time came that the saints possessed the Kingdom.” This language clearly implies that during the period when this oppressing hostile power existed, the saints did not possess the Kingdom.
+>Obs. 2
+
+>The setting up (as Tregelles, Fairbairn, etc.) of thrones (not casting down), “the judgment set and the books opened etc., locates the coming of the Ancient of Days and that of the Son of man, just where John locates the judgment under the last trumpet—Rev. 11:15-19; Rev. 15:15 -19; Rev. 20:4—still in the future. Therefore, these are not descriptions of events preceding the establishment of the Christian Church. (Comp. Props. 121, 132, 133, 134, etc.)
+>Obs. 2
+
+>The giving of the Kingdom, dominion, etc., implies at once a rulership, power, exaltation, etc., a fulfilment of which is thus far contradicted by the history of the church. It embraces actual dominion over nations, their subjection, etc., which has never been realized.
+>Obs. 2
+
+>When the power of this Kingdom is once exerted, it includes a continued, unremitted exertion and manifestation of the same, which does not correspond with the wavering, often weakened condition, relapses, losses, etc., of the church. (Comp. Prop. 159.)
+>Obs. 2
+
+>The time when this Kingdom is set up is a time of dire vengeance, as the slaying of the beast, giving his body to the burning flame indicates; this agrees with the vengeance to be inflicted at a future coming recorded in Rev. 19, etc. Hence, a Kingdom before this period of retribution is not described. (Comp. Props. 115, 123, 147, 161, etc.)
+>Obs. 2
+
+>The smiting of the stone is also a representation of vengeance. It demolishes, breaks into pieces, makes like chaff or dust, and utterly roots out. This teaches violence, not conversion, etc., as some contend to support a theory, but the utter removal of hostile powers, as our argument demands, and as illustrated in’ the closing portions of the Apocalypse. Kingdoms antagonistic to the truth, wars resultant from them, etc., exist down to the Second Advent; but that period, as Paul tells the Thessalonians, is a time of terrible smiting or vengeance. The church has exhibited no such power, and therefore is not denoted.
+>Obs. 2
+
+>The entire narration of the prophecy makes the natural impression that this Kingdom is not set up beside the image or beasts to be contemporaneous with them, and to be engaged in a continued series of smiting processes, but that at a certain period (as Rev. 11:15) it will be manifested, and that in connection with their removal.
+>Obs. 2
+
+>The condition of the world at the Sec. Advent does not coincide with the proposed conquest of the world attributed by interpreters to the church.
+>Obs. 2
+
+>The Kingdom, dominion, etc., is to be in the territorial limits, the very place occupied by the image and beasts, but if the church is meant, how comes it, unless we indorse the assumptions of the Romish and Greek Churches, which do not meet the conditions of the prophecy, that the church after so long a trial has never exercised such dominion within those limits?
+>Obs. 2
+
+>A real, visible, outward Kingdom is to be witnessed.
+>Obs. 2
+
+>The prophecy implies forcibly that when this Kingdom is set up it will be done so conspicuously that all will know definitely the period of its setting up.
+>Obs. 2
+
+>From these considerations, and especially from that arising in a preservation of covenanted promise, of Divine Unity of Purpose, of consistency between earlier and later prediction, we are forced to the conclusion that the church by no means meets the conditions imposed by the prophecy.
+>Obs. 2
+
+
 NOTE: Scripture quotes from LSB 
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
@@ -23,6 +80,12 @@ And Yahweh of hosts will prepare a lavish banquet for all peoples on this mounta
 ### [Isa. 2:1-5](https://read.lsbible.org/?q=Isa.+2%3A1-5)
 The word which Isaiah the son of Amoz beheld concerning Judah and Jerusalem. 2 Now it will be that In the last days The mountain of the house of Yahweh Will be established as the head of the mountains, And will be lifted up above the hills; And all the nations will stream to it. 3 And many peoples will come and say, “Come, let us go up to the mountain of Yahweh, To the house of the God of Jacob, That He may instruct us from His ways And that we may walk in His paths.” For from Zion the law will go forth And the word of Yahweh from Jerusalem. 4 And He will judge between the nations, And will render decisions for many peoples; And they will hammer their swords into plowshares and their spears into pruning hooks. Nation will not lift up sword against nation, And never again will they learn war. 5 Come, house of Jacob, and let us walk in the light of Yahweh.
 
+### [Isa. 2:10-22](https://read.lsbible.org/?q=isa+2%3A10-22)
+Enter the rock and hide in the dust From the dread of Yahweh and from the splendor of His majesty. 11 The lofty look of man will be made low, And the men made high will be bowed down,
+And Yahweh alone will be exalted in that day.  12 For Yahweh of hosts will have a day _of reckoning_
+Against everyone who is proud and high And against everyone who is lifted up, That he may be made low. 13 And _it will be_ against all the cedars of Lebanon that are high and lifted up, Against all the oaks of Bashan, 14 Against all the high mountains, Against all the hills that are lifted up, 15 Against every lofty tower, Against every fortified wall, 16 Against all the ships of Tarshish And against all the desirable craft. 17 The loftiness of man will be bowed down, And the men who are high will be made low; And Yahweh alone will be exalted in that day, 18 But the idols will completely vanish. 19 _Men_ will go into caves of the rocks And into holes of the ground
+Before the dread of Yahweh And the splendor of His majesty, When He arises to make the earth tremble. 20 In that day men will cast away to the moles and the bats Their idols of silver and their idols of gold, Which they made for themselves to worship, 21 In order to go into the caverns of the rocks and the clefts of the cliffs Before the dread of Yahweh and the splendor of His majesty,
+When He arises to make the earth tremble. 22 Stop regarding man, whose breath _of life_ is in his nostrils; For why should he be esteemed?
 ### [Micah 4:1-8](https://read.lsbible.org/?q=micah+4%3A1-8)
 Now it will be that in the last days The mountain of the house of Yahweh Will be established as the head of the mountains, And will be lifted up above the hills, And the peoples will stream to it.
 2 And many nations will come and say, “Come and let us go up to the mountain of Yahweh
