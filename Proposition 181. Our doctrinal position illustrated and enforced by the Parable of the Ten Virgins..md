@@ -18,7 +18,7 @@ completion: 0
 #### Groom and nuptial guests escort the bride and groom to the bridegroom's house (or his parents)
 #### Escort starts at night with pomp, torches, songs, music
 #### Escort meets another group (friends of the bride and groom) who have been waiting for the groom and bride, to enter the feast at the groom's house
-##### Some who are waiting have run out of oil and must go buy some
-#### After both escort groups arrive, the guests went in, the door was shut and no one else was admitted (the one's who had to go buy some oil did not make it in)
+#### Some who are waiting have run out of oil and must go buy some oil
+#### After bride and groom arrive with their guests, the guests went in, the door was shut and no one else was admitted (the one's who had to go buy some oil did not make it in)
 
 
