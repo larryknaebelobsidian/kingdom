@@ -14,9 +14,9 @@ completion: 0
 #### After the wedding
 #### At the house of the bride's parents
 #### After the wedding festival (7 days) at the bride's parents house
-#### Groom and nuptial guests escort the bride to the bridegroom's house (or his parents)
+#### Groom and nuptial guests escort the bride and groom to the bridegroom's house (or his parents)
 #### Escort starts at night with pomp, torches, songs, music
-#### Escort meets another group (friends of the bride and groom) who have been waiting for the groom and bride to enter the feast at the groom's house
+#### Escort meets another group (friends of the bride and groom) who have been waiting for the groom and bride, to enter the feast at the groom's house
 #### After all the escort groups arrived, the door was shut and no one else was admitted
 
 
