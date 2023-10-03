@@ -2,7 +2,9 @@
 pagecount: 10
 observationcount: 16
 id: 181
-completion: 0
+completion: 0.8
+subjects:
+  - advent stages
 ---
 #toc
 
@@ -21,4 +23,18 @@ completion: 0
 #### Some who are waiting have run out of oil and must go buy some oil
 #### After bride and groom arrive with their guests, the guests went in, the door was shut and no one else was admitted (the one's who had to go buy some oil did not make it in)
 
+>these virgins join the procession on the return of the “bridegroom with the bride to their future abode (Obs. 5 and note). This accords with the previous withdrawal of the 144,000 (Prop. 130), with the Theocratic marriage at Mt. Sinai (Prop. 166), and with the procession of the bridegroom and bride to their future glorious abode on Mt. Zion. This agrees with the simple fact that these virgins, prepared to unite and enter into the marriage supper, are, not the bride, but guests who honor the bridegroom and the bride—virgins who follow the queen.
+>Obs. 8
+
+>the parable is expressly designed to illustrate what will occur, in relation to certain parties, at its realization.
+>Obs. 9
+
+>The foolish, therefore, are only excluded from these marriage festivities, but will ultimately be saved.
+>Obs. 11
+
+>Obs. 12. The “door being shut” and the declaration “I know you not,” are, therefore, simply expressive of exclusion to a position which the others, because of their preparation and readiness, obtain.
+
+>Obs. 15. The parable enforces our position that there will be no conversion of the world prior to the Sec. Advent.
+
+>Obs. 16. No matter whether this parable be interpreted as applying to the Church at the first stage of the Sec. Advent, or to the same at the last stage, or to the Jews at the open, manifested parousia as distinguished from the previous thief-like Coming, it corroborates and enforces our doctrine respecting the attitude of watchfulness and preparation for the Sec. Advent, the certainty and personality of that Coming, and the blessed results flowing to the righteous from that Advent.
 
