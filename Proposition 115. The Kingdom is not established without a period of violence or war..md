@@ -2,7 +2,7 @@
 pagecount: 15
 observationcount: 18
 id: 115
-completion: 0
+completion: 1
 subjects:
   - tribulation
 ---
