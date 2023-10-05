@@ -86,4 +86,20 @@ Ps. 149:6, 7, 8, 9?
 >true wisdom ought to indicate a persistent refusal to all solicitations to engage against the ancient city and people of God,
 >Obs. 10
 
-Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 
+>Obs. 11. This again reminds us of the extreme position adopted by peace congresses, etc. A portion of the Scripture, isolated or tom from its connection, is alone presented in their pleas, while lengthy predictions, which show that war exists down and at this period, are ignored as if they did not exist. The general analogy of the Word tells us that it is only after (not before) this terrible conflict of, and with, the nations, that war snail be banished under the then peaceful and triumphant reign of David’s Son.
+
+After this war is concluded then will be realized:
+Ps. 76, 110, 83, 60, 47, 45, 48
+>Indeed, in that day, many a prediction now imperfectly understood, shall stand forth with a distinctness that will reproach the weakness of our faith in God’s Word, when the last prayer of Moses, the benedictions of Jacob, the covenanted relationship of the people, etc., are vindicated by this tremendous overthrow of enemies—then truly prophecy itself, now the sport of scientific unbelief and the butt of unscholarly ridicule, will secure the profound esteem and praise of all nations.
+>Obs. 12
+
+>Obs. 15. One peculiarity in this conflict is the statement that every Jew is specially under Divine protection, and endowed with supernatural strength, so that none of them are overcome by their enemies.
+
+>Obs. 16. Owing to the fearful slaughter and the multitude of dead, we have described by Ezekiel and others the cleansing of the land. This gives us a direct clew to “the cleansing of the sanctuary,” for the land of Palestine is called the sanctuary (Ex. 15:17, etc.), and, it being defiled with the dead, is carefully purified by their removal.
+
+>a long period of, more or less, oppressive Gentilism, until the mystery of God is finished.
+>Obs. 17
+
+>History corroborates this Gentile dominion, and it will continue until God shall determine that “the Times of the Gentiles” have run their allotted, predetermined course, and then and then only under the restoration of this Theocratic-Davidic Kingdom will this domination come to a perpetual end (Prop. 164).
+>Obs. 17
+
