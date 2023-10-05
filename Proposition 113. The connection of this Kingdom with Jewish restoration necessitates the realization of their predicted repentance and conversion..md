@@ -14,3 +14,6 @@ completion: 0.1
 
 >Obs. 2. The conversion and the restoration both result from a personal Coming of Jesus. Paul informs us (Rom. 11:25, 26) that when the fulness of the Gentiles is come in, then the blindness befallen Israel shall also be removed, because (as the Jews believed), “there shall come out of Zion the Deliverer,” etc., owing, as our argument has shown, to the Covenant, “for this is my Covenant unto them,” etc.
 
+>Obs. 3. This repentance, over against Ernesti and others, is positively covenanted to them, Isa. 44:22, 23; Rom. 11:26, 27; Isa. 59:19, 20, 21; Jer. 31:2, 3, etc.
+
+Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 
