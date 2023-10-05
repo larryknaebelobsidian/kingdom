@@ -2,7 +2,7 @@
 pagecount: 10
 observationcount: 16
 id: 181
-completion: 0.8
+completion: 1
 subjects:
   - advent stages
 ---
