@@ -1,6 +1,6 @@
 ---
 pagecount: 15
-observationcount: 8
+observationcount: 18
 id: 115
 completion: 0
 subjects:
@@ -60,6 +60,30 @@ subjects:
 >They shall agree among themselves, and be prospered until God is ready to pour out His vengeance; and the gathering itself on a gigantic scale with the eyes of the world fixed on it, will make the punishment the more signal and overwhelming. God employs their design as a vehicle for the accomplishment of His own; and therefore, with the power to prevent it at any time, it is correctly, although the direct result of creature agencies, attributed to Him.
 >Obs. 4
 
->Obs. 5. Jerusalem will be taken by this last enemy, and great cruelties will be perpetrated.
+>Obs. 5. Jerusalem will be taken by this last enemy, and great cruelties will be perpetrated. The Jews will be driven to despair, such as we can well imagine their blasted hopes, after long centuries of tribulation then excited by fondly anticipated prosperity, would produce. In a partial restoration attempted by themselves in reliance upon others, instead of waiting for the one to be gained through the power of their King, they suffer the last outpouring of God’s anger. This causes a cry of agony, which is mercifully heard, and in such away that sorrow and despair are turned into joy and happiness. Zech. ch. 14, delineates the extremity and the deliverance, which is corroborated by Zech. 12; Dan. 13; Jer. 30:4-24. The Lord will fight for them; and among the agencies employed is this very Jewish nation, as specified. Zech. 14:14, “Judah also shall fight at Jerusalem, etc.
+
+
+>Obs. 6. The active part taken by this Jewish nation in the punishment of the nations who opposed Jerusalem, etc., is given in Zech. 12:1—9; Zech. 10:3-12; Micah 4:11-13; Isa. 41:15-16; Micah 5:8-10; Jer. 51:19-20, etc., verifying Dan. 2 and 7 and 12; Ps. 2, etc.
+
+>The nations will be confounded at their valor and might, Micah 7:16, 17; Zech. 9:13-16, etc. The slaughter will be terrific, represented under the most impressive figures that language can employ, as e.g. Ezek. 38 and 39 the awful supper “upon the mountains of Israel” to which the birds and beasts are invited, Rev. 19:17-20, same supper, Rev. 14:19, 20; Jer. 25:29-33, etc.
+>Obs. 6
+
+>The hesitancy of many writers, who receive it, to dwell upon it arises not from disbelief or disregard, but from the fear that others not appreciating its relationship to the judgments of God preparatory to the establishment of Sis own Theocratic government, may become prejudiced against the truth in general.
+>Obs. 6
+
+>The time of wrath on the nations and of the Kingdom will also come, Rev. 11:15-18. Now, during the gathering out of the elect, vengeance is God’s; we are forbidden to exercise it; but God’s forbearance with Gentiles will also end as it did with Jerusalem, as it now does with individuals, and then He employs what agencies He pleases to cause their destruction.
+>Obs. 7
+
+>Obs. 8. This future overthrow of the nations is the key to the warlike spirit noticed in many of the Psalms, and which has been the fruitful subject of derision to unbelievers.
+
+Ps. 58:10; 68:23,
+Ps. 149:6, 7, 8, 9?
+
+>Obs. 9. This subject in one of its features, ought to serve as a warning to Jews, not to allow themselves to be persuaded by any nation or party to establish themselves in Jerusalem and Palestine. The prophets plainly predict their sad fate; that they shall fall under the persecuting power of this last confederation and experience its fearful effects. The restoration that God predicts for them, and which they should await, is under the Messiah, Jesus Christ, David’s Son. If they run before they are called, or if they accept of a restoration under the auspices of some nation relying upon their own efforts, etc., they shall certainly realize in their own unhappy experience what will befall Jerusalem and its inhabitants at this last great siege by the gathered nations.
+
+>Obs. 10. This also should serve as a warning to the nations, not to allow themselves by any arguments or inducements to enter into a league against Jerusalem.
+
+>true wisdom ought to indicate a persistent refusal to all solicitations to engage against the ancient city and people of God,
+>Obs. 10
 
 Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 
