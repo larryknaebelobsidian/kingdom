@@ -3,12 +3,17 @@ pagecount: 16
 observationcount: 7
 subjects:
   - translation
+  - resurrection
 id: 153
 completion: 0.8
 ---
 #toc
 
 ### Transfiguration is a representation of the Kingdom in some of its aspects
+>The transfiguration is thus regarded as a type of the Saviour’s future glory in His Kingdom.”
+>Obs. 1
+
+
 
 >The transfiguration, following the announcement that “some” should, before their death, see “the Son of man Coming in His Kingdom,” is *a representation of the Kingdom* in some of its aspects, viz., *in the glory of* “*the Christ*” *or King, in the presence of* (who also “appeared in glory,” Luke 9:31) *the translated and dead saints, and in the witnessing of that glory by mortal men*. It was a temporary display, an outward manifestation or revealing of the majesty and glory *that belongs* to Jesus when He comes *at the Second Advent in His Kingdom* with His saints to reign over the nations.
 >p. 559-560 Vol. 2 Prop. 153 Obs. 4
