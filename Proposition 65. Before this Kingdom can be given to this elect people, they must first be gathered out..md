@@ -44,12 +44,6 @@ completion: 1
 
 >Obs. 10. The reader need scarcely be reminded, that in all the elect ones, both ancient and modern, who are to enjoy the Kingdom of God, certain moral qualifications are necessary as a prerequisite. The natural and engrafted seed of Abraham must ail be of faith and obedience. The decisive argument in Romans and Hebrews evinces, this; for while the seed of Abraham is chosen, not every individual is thus favored; while the nation is elected to a Theocratic position, not every member of it will be saved; it is only the faithful portion of Abraham’s seed that is commended and that will be exalted. This has been so ably represented by various writers (as Noel, McNeill, Bickersteth, Bonar, etc.), that it only requires brief mention.
 
-Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 
-
-
-
-
-
 >The Kingdom thus given to these elect ones does *not remove the election* of the Jewish nation as a nation. This, aside from the covenants and the Theocratic ordering allied with the nation, is seen from the fact, that this seed gathered out is virtually regarded as part and parcel of the nation (is a continuation of the election, Prop. 63), and when the nation is nationally restored will be so recognized *in the inheriting with* Abraham, Isaac, and Jacob. Again, let any one compare Deut. ch. 32, Rom. ch. 11, together with various predictions relating to this elect Jewish nation, and he will find the following succinctly stated: 
 >(1) The *Jews* an elect nation (Prop. 24); 
 >(2) this nation can render itself unworthy of the Kingdom by disobedience; 
