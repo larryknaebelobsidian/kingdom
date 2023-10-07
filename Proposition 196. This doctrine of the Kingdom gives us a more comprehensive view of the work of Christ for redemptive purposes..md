@@ -34,20 +34,42 @@ completion: 0.8
 >Obs. 4. Seeing that the apostles refer the salvation spoken of by the prophets to the time of the Sec. Advent, it may be corroborative of our position to glance at some of the prophecies which describe it, and notice, briefly, what things are included under the phrase.
 
 >Isa. 25:9
+>1. the reign of the Messiah in Jerusalem, 
+>2. the resurrection of the righteous, 
+>3. the overthrow of all enemies, 
+>4. universal dominion, etc.
+>Obs. 4 reformatted
 
 >Ps. 9:14
+>1. “the lifting up from the gates of death,” 
+>2. the removal of enemies, 
+>3. the judging of the world in righteousness, etc.
+>Obs. 4
 
 >Ps. 37:39
+>the inheriting of the earth when the wicked are utterly rooted out of it.
+>Obs. 4
 
 >Ps. 98:2
+>When “the Lord makes known His salvation” Ps. 98:2 it is, when He comes “to judge the earth,” when He has done “marvellous things,” and “His right hand and His holy arm hath gotten Him the victory,” and “tie hath remembered His mercy and His truth toward the house of Israel.”
+>Obs. 4
 
 >Ps. 118:14,
+>When “the Lord becomes our salvation” Ps. 118:14, He overthrows the confederation of nations that compass the righteous, He remembers mercy for the elect nation and doeth valiantly; the righteous “shall not die but live,” for He will not give them “over unto death.”
+>Obs. 4
 
 >Ps. 132:10,
+>“When God will “clothe the Priests with salvation” Ps. 132:10, it is said that David’s Son shall sit upon David’s throne, “for the Lord hath chosen Zion, He hath desired it for His habitation. This is my rest forever; here will I dwell, for I have desired it”—“there will I make the horn of David to bud” and “His enemies will I clothe with shame, but upon Himself shall His crown flourish,” etc.
+>Obs. 4
 
 >Ps. 149:4,
+>At the time the Lord “will beautify (comp. 2 Thess. 1:10) the meek with salvation” Ps. 149:4, then 1. Israel will rejoice in their King, 
+>2. the saints will be joyful in glory, and 
+>3. the honor of executing judgment is conferred upon them.
+>Obs. 4
 
 >One of the most mournful and pathetic representations of the downfall of the nation, the desolations of Zion, the treading down of God’s own inheritance, is found in Ps. 74,
+>Obs. 4
 
 >Such references could be multiplied, the prophets being filled with them, in which this salvation is connected with 
 >1. the Coming of the Lord, 
