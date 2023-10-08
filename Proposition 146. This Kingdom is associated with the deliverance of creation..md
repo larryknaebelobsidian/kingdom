@@ -2,7 +2,7 @@
 pagecount: 15
 observationcount: 6
 id: 146
-completion: 0
+completion: 1
 subjects:
   - new heavens new earth
 ---
