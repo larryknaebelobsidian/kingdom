@@ -5,6 +5,11 @@ id: 143
 completion: 0.5
 ---
 #toc
+>If it can be shown that the Sabbath was regarded as typical of the Kingdom of the Messiah as covenanted, and of the Millennial era, and then if it is found that Paul adopts the phraseology current on this point and uses it, without change of meaning, in a way to confirm the opinions existing, it forms an additional argument in favor of the primitive view of the Kingdom.
+
+>Obs. 1. Observe how the Jews believed on this subject. Bh. Newton has well stated (Dis. on Proph., p. 587) on the thousand years of Rev. 20, “that the Jewish Church before John, and the Christian Church after him, have believed and taught that these one thousand years will be the seventh Millenary of the world.
+
+>Obs. 2. Writers inform us that this Jewish opinion of the seventh Millenary, however we may account for it, was continued in the Christian, Jewish, and Gentile churches established by the apostles and their successors, and that it was entertained both by Millenarians and their opponents.
 
 >Augustine aided largely in overthrowing and darkening the early Church view of the Kingdom,
 >p. 450 Vol. 2 Prop. 143 Obs. 2 
