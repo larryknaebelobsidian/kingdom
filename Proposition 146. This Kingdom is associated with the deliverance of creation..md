@@ -24,6 +24,12 @@ subjects:
 >a large class of writers, who expressly affirm that creation is to be brought back to its former “paradisiacal state” cannot be comprehended, unless violence is done to their own statements of what redemption is to accomplish, without receiving such a deliverance of the animals.
 >Obs. 3
 
+>Besides this, before the reader comes to a conclusion upon this particular point, let him first pass over the argument respecting the Kingdom; for if the Kingdom of the Messiah is that which we derive from Covenant and Prophecy, from His own words and that of His commissioned preachers, if it contains the restored Jewish nation and the spared Gentile nations, then, indeed, it would be both inconsistent and absurd to have such a Kingdom existing without the presence of the lower creation.
+>Obs. 3
+
+>Obs. 4. As the curse is to be repealed, it is necessary to go back to the record in Genesis to ascertain its extent, and Obs. 4. As the curse is to be repealed, it is necessary to go back to the record in Genesis to ascertain its extent, and from this deduce what the deliverance will affect.
+
+
 
 
 
