@@ -29,6 +29,10 @@ subjects:
 
 >Obs. 4. As the curse is to be repealed, it is necessary to go back to the record in Genesis to ascertain its extent, and Obs. 4. As the curse is to be repealed, it is necessary to go back to the record in Genesis to ascertain its extent, and from this deduce what the deliverance will affect.
 
+>Obs. 5. Without pressing this subject into details (which are not given), we ought to be content with the general statements made concerning the deliverance of creation, which are sufficiently extended in their nature to indicate a completeness of Redemption, reaching to a restoration of all the forfeited blessings.
+
+>Now, the curse has fallen upon the race, and all nations experience its sad consequences, but our doctrine of the Kingdom explicitly teaches that after the manifestation or the resurrection of the sons of God, the race, the nations, both Jewish and Gentile, shall be delivered from the heavy pressure of the curse (Prop. 152).
+
 
 
 
