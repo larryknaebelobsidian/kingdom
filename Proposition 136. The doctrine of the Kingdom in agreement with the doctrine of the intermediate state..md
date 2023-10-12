@@ -4,17 +4,24 @@ observationcount: 9
 subjects:
   - intermediate state
 id: 136
-completion: 0.8
+completion: 1
 ---
 #toc
 
 >. . . the Scripture statements clearly and unmistakably teach a *detention* of the saints from the promised inheritance and reward.
 >p. 394 Vol. 2 Prop. 136
 
-Exalting the intermediate state unduly depreciates the Second Advent as "The Blessed Hope"
+>Obs. 1. The Propositions that have preceded show that any view which unduly exalts the intermediate state or condition after death must correspondingly depreciate the Second Advent as “The Blessed Hope,” the resurrection as completed Redemption, the covenant as still to be verified, and the prophecies as realized on earth.
+>Obs. 1
 
 >The prominence heaped upon the condition of saints after death (so different from the Scriptural position, which says so little respecting it), and the extravagant eulogies attached to it, are practically leading multitudes to make little or nothing of the Advent, the resurrection, the covenant, and the prophecies.
 >p. 394 Vol. 2 Prop. 136 Obs. 1
+
+>The time of inheriting is thus specified: Matt 25:31-34; Col. 3:4, 24; 1 Pet. 1:3-7, 13, when the Son of man is revealed in His glory.
+>Obs. 2
+
+>Thus the entire tenor of the Scripture is, as our position demands, an overleaping of the intermediate state, as if it were not worthy to be compared with the glory that is to be revealed at the Coming again of Jesus; and a positive asserting of rewarding, crowning, inheriting, etc., at that time. We dare not reverse the order thus laid down, and any theory which requires such a transposition is most certainly defective.
+>Obs. 2
 
 ### Imperfect and waiting condition of the saints
 
