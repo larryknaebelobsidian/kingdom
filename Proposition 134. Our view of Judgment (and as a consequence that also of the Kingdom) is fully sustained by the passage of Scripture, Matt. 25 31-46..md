@@ -5,7 +5,7 @@ subjects:
   - harvest
   - judgement
 id: 134
-completion: 0
+completion: 1
 ---
 #toc
 ### Matt. 25:31-46
