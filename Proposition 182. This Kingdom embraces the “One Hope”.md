@@ -11,3 +11,7 @@ completion: 0
 >Obs. 1. Much vagueness exists among believers at the present day in reference to this Hope, owing to the simple fact that the announcement of this Hope (as e.g. by the angel, Luke 1:32, 33) is spiritualized or explained away, and something else substituted in its place.
 
 >A portion of the Hope (also called Hope because firmly attached to it, as e.g. the resurrection, eternal life, etc.) must not be mistaken for the whole Hope.
+>Obs. 1
+
+>this is pre-eminently a Jewish Hope,
+>Obs. 1
