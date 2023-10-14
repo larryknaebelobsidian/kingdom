@@ -2,7 +2,7 @@
 pagecount: 14
 observationcount: 4
 id: 169
-completion: 0
+completion: 1
 ---
 #toc
 
@@ -38,3 +38,13 @@ Attempted interpretations of the New Jerusalem
 >But that the saints are not denoted, and that the reference is to a material city, is found in the fact that the saints are represented (Rev. 19:9) when the marriage (i.e. this setting up of the Theocratic Throne) takes place as guests, the called or invited, who enjoy the marriage supper, the feast that the prophets describe. They cannot be, in this case, the Guests and the Bride at the same time;
 >...
 >believers are the invited guests, the called, who are virgins waiting for the Bridegroom and Bride, and who have on the wedding garment not as the Bride but as guests who now participate in and enjoy the unbounded blessings resulting from this splendidly restored Theocratic enthronement in a city prepared for the King.
+
+>Obs. 3. The immense size of the city forms in the minds of many the most formidable objection to the reception of the description as representative of a real, literal city.
+
+>Obs. 4. The restoration of the Davidic throne and the occupation of it by David’s Son, necessarily includes the fact, so plainly predicted by the prophets, that when the Messiah comes to reign, He will set up His throne at the same place formerly occupied by David’s throne. This throne was not in the third heaven” and not “in the air above the earth” but was located on the earth, in Palestine, at Jerusalem.
+
+>The Theocratic relationship is not fully restored without this feature, and the inheritance of David’s Son is not possessed unless Zion’s hill is again occupied by Him.
+
+>a strong and irresistible impression that the Old and New Jerusalem are permanently united; the one part specially designed for the King and the saints into which the kings of the earth, the representatives of the nations, enter, and the other part intended for the restored Jewish nation, as a kind of suburb or extension of the city embracing some of its subjects constantly living in the light and beholding the glory of the former.
+
+>the prophets, whom we endeavor to imitate, speak of them as one, sometimes describing one portion and then again the other, because of the immediate close conjunction existing between them, for the New is added as an addition, most glorious and suitable for such a David’s Son, to the Old, thus making it (Isa. 62:3, Hebrew) “a diadem of a Kingdom.”
