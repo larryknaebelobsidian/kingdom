@@ -5,7 +5,7 @@ subjects:
   - nations
   - elect nation
 id: 114
-completion: 0.2
+completion: 1
 ---
 #toc
 
