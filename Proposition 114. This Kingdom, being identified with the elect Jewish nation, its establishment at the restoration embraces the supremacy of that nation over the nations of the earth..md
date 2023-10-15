@@ -48,3 +48,7 @@ completion: 0.2
 >8. (8) The folly of being indifferent to, or totally ignoring, the predictions on this subject, just as if they were not given. 
 >9. (9) That if, as many advocate, the phrase “Times of the Gentiles,” is indicative of “Gentile domination,” then the cessation of these times would of itself indicate that such dominion would come to a close.
 >-- slightly reformatted
+
+>Obs. 6. This supremacy of the Jewish nation is a stumbling-block to many (who misapprehend its connection with the saints, etc.), and the most bitter and sarcastic remarks are levelled against it.
+
+>Obs. 7. Milman (His. of the Jews), Wines (Com. on Laws), and others, have shown that past history records the fact that science, art, philosophy, history, jurisprudence, politics, statesmanship, finance, education, etc., are adorned with splendid Jewish names—names suggestive of vigorous intellect, large attainments, great skill, profound wisdom, and vast knowledge. If the Hebrew race in its dispersion, under its disabilities and humiliation among nations, has exhibited such talent, genius, energy, learning, enterprise, and power, what will they not become when restored to their own land under the peculiar and elevating guidance of their long expected, and at length arrived, Messiah?
