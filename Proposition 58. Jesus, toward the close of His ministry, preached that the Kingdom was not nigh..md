@@ -13,7 +13,17 @@ subjects:
 
 All Observations in this Proposition are worthy of detailed study.
 
+### Marriage of the King's son, Matt. 22:1-14
+>take the parable of the marriage of the King’s son, Matt. 22:1-14, given just after (Matt. 21:43), He declared that the Kingdom should be taken from them, and we have: 
+>1. (1) The Jewish nation bidden but refusing the invitation (showing the sincerity of the offer, etc.); 
+>2. (2) if the invitation had been accepted, the marriage would have taken place, but the invited guests refusing, it was postponed until other guests were furnished; 
+>3. (3) the marriage (i.e. the enthronement to the Kingdom, comp. Prop. 169), the wedding (i.e. the inauguration blessings and privileges, the Kingdom being likened to a feast, Prop. 169), were no longer nigh to these invited ones; 
+>4. (4) the marriage, the time when the guests are scrutinized, is (as commentators inform us correctly) at the Sec. Advent of this King, hence postponed until that period.
+> Obs. 1
 
+### The Great Supper, Luke 14:15-24
+>Again: the parable of the Great Supper, Luke 14:15-24, has also reference to this fact. It was suggested by the saying, “Blessed is he that shall eat bread in the Kingdom of God,” i.e. in this Theocratic-Davidic Kingdom, for such was the meaning attached to the phrase. Jesus, in reply, expressively shows how this Kingdom was received. The persons (Jews) specially invited to this “great supper” (i.e. to the blessings of this Kingdom) rejected the invitation, for “they all with one consent began to make excuse,” and other guests are to be invited, urged to come and enjoy it, whilst “none of those men which were bidden shall taste of my supper,” i.e. it was no longer nigh to those invited. The calling of other guests now (still going on) takes the place of the first invitation—a new exigency and preparation being evolved—and the supper, until these guests are obtained (Prop. 65) is postponed to the Sec. Advent (Prop. 169).
+>Obs. 1
 
 
 
