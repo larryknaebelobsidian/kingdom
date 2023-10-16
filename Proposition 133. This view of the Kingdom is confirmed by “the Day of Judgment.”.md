@@ -76,6 +76,40 @@ In that **day** there will be inscribed on the bells of the horses, “Holy to Y
 
 And every pot in Jerusalem and in Judah will be holy to Yahweh of hosts; and all who sacrifice will come and take of them and boil in them. And there will no longer be a Canaanite in the house of Yahweh of hosts in that **day**.
 
+### Not all at the same time
+>Obs. 1. Again the reader is reminded that the Jewish and Early Church doctrine of the Judgment Day is something very different from the Popish doctrine now so generally entertained. The notion of an assize, a universal gathering of dead and living, pious and wicked, before a tribunal at which character is to be tested, etc., was developed in the Church several centuries later, in the form now held by many writers. On all sides are to be found utterances concerning the judgment utterly unknown, and completely antagonistic to the doctrine once held by the Church.
+
+>the very fact of the resurrection of the saints, thus counted worthy of it, and the non-resurrection of the wicked at the time of the first resurrection, counted unworthy of it, proves to us a pre-existing judgment.
+>Obs. 2
+
+>the question arises, Why subject these same parties—especially taking Brown’s, Barnes’s, etc. idea that the saints have been, many of them for centuries upon centuries, in the third heaven enjoying a development of glory indescribable, etc.—to be brought before a tribunal to undergo a scrutiny of character? This difficulty and others vanish only if we allow the legitimate meaning given to the original by commentators, which involves our idea, that the saints are manifested before that throne to be assigned their position as rulers in the Kingdom, which apportionment is only done at the manifestation of the Kingdom itself, and is proportioned to the deeds done in the body.
+>...
+>All are raised from the dead, but each in his own order; so also all shall stand before His throne, but each in his order.
+>Obs. 2
+
+>Obs. 3. The Judgment Day is inseparably linked with the personal presence of the Judge, and therefore, as we proceed, it is unnecessary to repeat what all admit. It is very essential to our doctrine to find the judgment united with the Coming of the Son of Man. 
+
+>Mede (Works, B. 3, p. 762) long ago observed that Dan. 7 contains “The mother text of Scripture, whence the Jews grounded the name and expectation of the Great Day of Judgment.”
+>Obs. 3
+
+>The facts (1) that the phrases originated with Jewish believers, and (2) that they are employed without the least intimation that they are to be understood differently, certainly ought to have some weight with the student.
+>Obs. 3
+
+### A day
+>Obs. 4. The Judgment Day is designated, Acts 17:31, “He hath appointed a day wherein He will judge the world in righteousness,” etc.
+
+Rom. 2:16
+1 Thess. 5:2
+1 Cor. 1:8
+
+>It is called “a day,” which in the largeness of prophecy does not indicate an ordinary day, or even a brief period of time, but may include a long, extended time.
+>Obs. 4
+
+>The word is employed to denote time indefinitely, as “the day of trouble,” “the day of adversity,” “the day of prosperity,” etc. Again, it is used to designate definite periods, either short or long, as e.g. the six days of creation are called “day” Gen. 2:4; the forty years in the wilderness are named, Heb. 3:8; Ps. 95:8, “the day of temptation;” the times of the Messiah are called by the prophets “that day,” “the day of the Lord,” as Isa. 24:25, 26; Zech. 14, etc.; “the day of salvation, 2 Cor. 6:2,“the day,” Heb. 3:7, 13; Ps. 118:24, etc., are admitted to embrace an entire dispensation. It is well known that prophecy speaks of events occurring “in that day,” which the fulfilment snows occupied hundreds of years in fulfilling. Reference might be made to other passages, such as John 8:56; 1 Cor. 5:5; Deut. 33:12, etc., all showing this usage by the Spirit.
+>Obs. 4
+
+>Obs. 5. The scholastic or eccles. terms “the Last Judgment,” Dr. Knapp (Ch. Theol., p. 542) frankly says is not employed in the New Test., and that the phrases “the last day” or “last days” are not “used exclusively with reference to the end of the world.
+
 >The announcement comes to us in the simplest form, that a period of time is appointed in which Jesus will be revealed as the Judge, the King, assume the visible Judgeship or Rulership of the World, and the events connected therewith, such as the resurrection of the saints, the overthrow of enemies, the restoration of the Jewish nation, the subjugation of all people, the binding of Satan, the rewarding of the righteous, the fulfilment of Mill, predictions, etc., indicate a lengthy period.
 >p. 370 Vol. 2 Prop. 133 Obs. 7
 
