@@ -46,3 +46,12 @@ tags:
 >Obs. 3
 
 >Obs. 4. Luke 19:11-27 forcibly demonstrates our Proposition.
+
+>For there is (as there could not be) no declaration that they were wrong in believing that the Kingdom which they expected, the Messianic, was still in the future. They were only mistaken in the opinion, carefully announced, “that the Kingdom of God should immediately appear” Now the parable is given to correct this belief in the immediate setting up of the Kingdom, to indicate that it would not soon appear, but only after an undefined period of time had elapsed.
+>Obs. 4
+
+>Obs. 5. It is worthy of notice, that Christ only openly predicted His sufferings and death toward the close of His ministry, Matt. 20:17-20, John 12:32-34, etc.
+
+>Obs. 6. This change of preaching in Jesus has been noticed by Renan and others, and they wrongfully attribute it to a change of plan respecting the Kingdom, forced upon Him by attending circumstances. That is, seeing that He could not secure the throne and Kingdom over the Jewish nation, He concluded to erect a more spiritual Kingdom.
+>...
+>Renan and his class totally ignore the abundance of Scripture assigning the reasons for postponement, just as if they had no existence.
