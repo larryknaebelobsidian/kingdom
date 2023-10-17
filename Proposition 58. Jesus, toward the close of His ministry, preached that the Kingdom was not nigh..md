@@ -55,3 +55,7 @@ tags:
 >Obs. 6. This change of preaching in Jesus has been noticed by Renan and others, and they wrongfully attribute it to a change of plan respecting the Kingdom, forced upon Him by attending circumstances. That is, seeing that He could not secure the throne and Kingdom over the Jewish nation, He concluded to erect a more spiritual Kingdom.
 >...
 >Renan and his class totally ignore the abundance of Scripture assigning the reasons for postponement, just as if they had no existence.
+
+>Obs. 7. The notion entertained by some, that only temporal blessings and rewards were offered to the Jews under the Levitical economy, is also shown (as before noticed), by the tender of this Kingdom and its postponement, to be erroneous.
+
+>Obs. 8. In view of this foreknown change in the preaching of Jesus resulting from a postponement of the Kingdom, Christ did not publicly assume in His personal ministry the title of “the Christ” until after His betrayal, Mark 14:62. After the death of John the Baptist, which already foreshadowed His own rejection and the nation’s refusal of the tender, of the Kingdom, He strictly charged His disciples to tell no man that He was “the Christ.”
