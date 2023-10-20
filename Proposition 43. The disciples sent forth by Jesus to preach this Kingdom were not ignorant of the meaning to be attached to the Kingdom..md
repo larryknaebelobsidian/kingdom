@@ -2,7 +2,7 @@
 pagecount: 6
 observationcount: 9
 id: 43
-completion: 0.8
+completion: 1
 ---
 #toc
 
@@ -38,15 +38,17 @@ But we were hoping that it was He who was going to redeem Israel. Indeed, beside
 
 >If they were in error on so important and fundamental a point, it is unreasonable to suppose that Jesus would leave them in error, send them forth to disseminate error, and thus allow them, commissioned by Himself, to deceive the people.
 >Obs. 2
-
+### The disciples preached the kingdom conditioned by repentance
 >Obs. 3. It is freely admitted that there were many things that these disciples, when preaching the Kingdom, did not then know, but it was not requisite to know them for the simple reason that, before the decided postponement of the Kingdom, it was no part of their mission to preach them.
 >...
 >They were not to preach the death of Jesus, or things then unknown to them; they were commissioned to preach the Kingdom conditioned by repentance—to offer it to the Jewish nation—and thus far they were instructed and had knowledge of the truth.
 >Obs. 3
-
+### Miracles attest to the truthfulness of the kingdom message
 >Obs. 4. Miracles (Matt. 10:1, 8, Luke 10:17, etc.) attend their preaching of the Kingdom, which is a most convincing attestation of both the truthfulness of their proclamation, freed from error, and the intimate relationship that the Kingdom sustained to the Supernatural.
-
+### Misleading theories
 >Obs. 7. Misled by some favorite theory, the plain facts of the disciples’ preaching are unintentionally misstated, and, of course, others are improperly influenced.
 
 >Obs. 8. It is a fact to be lamented, that while infidelity has made itself merry over the preaching of the disciples, calling it “mistaken,” “deceived,” “delusion,” etc., the Apologists, unable themselves to receive this preaching, or to satisfactorily account for it, have done nothing to remove this stumbling-block out of the way.
-
+### The church is awaiting for this Theocratic kingdom
+>Why does the church, founded by these disciples, assume the position that Jesus, the crucified one, is the Messiah (with a full understanding of the Jewish meaning of the name), so declared by His resurrection and exaltation, who remains in heaven during this intermediate period until the elect are gathered out and the time arrives, at the Sec. Advent, for the reestablishment of the Theocratic-Davidic Kingdom?
+>Obs. 9
