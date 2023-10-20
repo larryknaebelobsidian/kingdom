@@ -31,14 +31,11 @@ Obs. 3
 >This secondary sense is not true even of the Church. The Church comes with observation, as e.g. on the day of Pentecost.
 >...
 >This secondary sense is not correct concerning the Kingdom of Christ. Let the reader notice what the Covenant demands, what the prophets predict, respecting this Kingdom. Is it not to come with such “outward show,” such “splendor” and “external majesty,” that it shall arrest the attention of, and be witnessed by, all living?
-
 ### "Within you"
 Obs. 4
 Within the elect Jewish nation
-
 ### Not the Christian church
 Obs. 5
-
 ### Urge for watchfulness
 Obs. 6
 >Luke 21:31; “So likewise, ye when ye see these things come to pass, know ye that the Kingdom of God is nigh at hand.” Having already used this passage in sustaining the postponement of the Kingdom, it is only necessary to say that neither the Church, visible or invisible, nor “God’s reign in the heart,” could be denoted, since “these things” specified are running their course down to the present day.
