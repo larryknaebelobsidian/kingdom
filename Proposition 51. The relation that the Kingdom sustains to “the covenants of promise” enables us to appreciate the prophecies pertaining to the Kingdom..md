@@ -14,7 +14,7 @@ completion: 1
 
 ### To test the faith of His people
 >Obs. 2. God is jealous of His covenanted Word, and after having confirmed it by oath, by the sending of His Son, etc., He presents it in a form, through additional revelation, admirably adapted to test the faith of His people. Much of it, the most precious portion of it, the distinctive features of it, still belong to the future and are dependent upon the Sec. Advent of Jesus, the Messiah. Hence the predictions of the Old and New Test., unless viewed in the light of the covenant, cannot be duly apprehended. They only form additional links to a previously forged chain, and the places in which they fit must be found and matched.
-##### Places they fit must be found and matched
+##### "Places they fit must be found and matched"
 
 ### The ignoring of the David covenant
 >Obs. 3. We see the fatal mistake of those systems of Biblical and Systematic Theology, which entirely ignore the Davidic covenant.
