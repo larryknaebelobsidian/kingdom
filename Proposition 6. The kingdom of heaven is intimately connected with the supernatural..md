@@ -1,7 +1,7 @@
 ---
 pagecount: 8
 observationcount: 5
-completion: 0.5
+completion: 1
 id: 6
 ---
 #toc
@@ -21,3 +21,8 @@ id: 6
 
 >how easily objections are formed when the heart desires them
 >Obs. 4
+
+>Man cannot describe a greater, more perfect, more absolute sovereign than the Bible in its simplicity does, when it makes Him so all-powerful that He is able, and does, at any time He chooses, intervene in His own workmanship.
+>Obs. 4
+### View of a Higher Power
+>Obs. 5. Before entering upon the consideration of the miraculous, it is necessary, first of all, to come to a decision respecting the supernatural; whether indeed a Higher Power exists in addition to nature which can introduce the miraculous.
