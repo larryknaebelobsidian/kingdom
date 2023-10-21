@@ -91,7 +91,7 @@ Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 201
 [[Proposition 77. The doctrine of the Kingdom, as held by the early church was finally almost exterminated under the teaching and power of the Papacy. ]]  
 [[Proposition 78. The early church doctrine was revived after the Reformation.   ]]
 [[Proposition 79. The Kingdom of God, promised by covenant and prophets, is to be distinguished from the general and universal Sovereignty of God.   ]]
-[[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished front the Sovereignty which Jesus exercises by virtue of His Divine nature.]]   
+[[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]]   
 [[Proposition 81. This Kingdom, thus covenanted, belongs to Jesus as “the Son of Man.” ]]  
 [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.   ]]
 [[Proposition 83. This Kingdom is given to the Son of Man by God’ the Father.   ]]
