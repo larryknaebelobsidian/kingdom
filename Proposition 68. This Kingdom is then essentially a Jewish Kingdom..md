@@ -9,11 +9,10 @@ subjects:
 #toc
 
 >This follows from the Abrahamic, Sinaitic, and Davidic covenants; this is uniformly taught by the Prophets in associating and identifying the Kingdom with the nationality of the Jews; this again is confirmed by the election of the Jewish nation, the oneness of the Kingdom, the preaching of John, Jesus, and the disciples, the renewed covenant, the offer of the Kingdom, the engrafting of Gentiles, the rejection of the nation only until the times of the Gentiles are ended, the postponement of the Kingdom, etc. The whole tenor and analogy of Scripture sustain this position; and it is but a weak, unsatisfactory, inconsistent procedure to deny what is so plainly the burden of Holy Writ.
-### Current trend to separate from Judaism
+### Trend to separate Christianity from Judaism
 >Obs. 1. It is a standing proposition, even among some who profess to be defenders of Christianity, that, as Renan (Life of Christ, p. 373), expresses it, “the general progress of Christianity has been to separate more and more from Judaism,” and the inference is drawn that the wider such a separation is made, the better for true religion. Everything distinctively Jewish is to be sacrificed, giving place to a substituted Gentileism. This is especially true of the leading doctrine of the Kingdom; the Jewish view is denounced,, and a wide departure substituted as better adapted to the wisdom, standing, etc., of Gentiles.
 ### The Kingdom is Jewish admitted by all classes of writers but opposed
 >Obs. 2. It is fully admitted by able writers, of all classes, that the Scriptures, taken in their literal aspect, do expressly teach a Jewish Kingdom; but our opponents contend that this literal rendering is to be discarded for a spiritual or mystical one, mainly on the ground that the literal has not been verified.
-
 ### Gentile "high-mindedness" prejudice
 >Obs. 3. It is certainly strange that the old prejudice, originally urged by Celsus against the Jews as in no special and favorable relationship to God, should be so deeply rooted in the minds of many at the present day so that everything that can be even remotely reduced to a so-called “Jewish form” or “Jewish husk” excites a degree of bitterness and hostility, which, to say the least, indicates something akin to the Gentile “high-mindedness” against which we are cautioned by Paul (Rom. 11).
 ### Covenants and throne show kingdom must be Jewish
