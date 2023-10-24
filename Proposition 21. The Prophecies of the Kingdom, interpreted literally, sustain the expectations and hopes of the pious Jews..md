@@ -5,3 +5,13 @@ id: 21
 completion: 0
 ---
 #toc
+
+>The plain literal sense expressly teaches what the Jews anticipated; and no author has yet arisen who has dared to assert that the grammatical construction of the Old Testament language, received according to the usual laws, does not convey the meaning found therein of a literal restoration of the Theocratic-Davidic throne and kingdom as expected by the believing Israelites.
+### Both Jew and Gentile admit
+>Obs. 1. Here, then, is something that all, both Jew and Gentile, frankly admit, however some may afterward attempt to break its force and continued application.
+### Both enemies and friends of the truth have ways to reject this
+>Obs. 2. Two classes array themselves against this obvious, admitted sense entertained for centuries. The one party, enemies of the revealed truth, honestly accept of it as existing, but discard it on the ground of its conveying human, not divine, notions and expectations.. The other class, friends of the truth, also find and admit this sense, but believing it to be “gross and carnal,” endeavor to adapt its language to their own ideas of the fitness of things, and hence attach to it another, distinct, separate sense (some even adding two or more), which, rejecting the grammatical, we are to receive as the true intended one.
+### Would God teach something literally but then have us take it in a different sense
+>Obs. 3. In view of the faith of the Jews, and from whence derived, it may well be asked: Is it reasonable to suppose that God would give utterances by His prophets respecting a Kingdom, which, taken in their usual literal sense (making due allowance for the usage of figures common to all languages), positively denote the re-establishment, in a most glorious form under a Son of David’s, of David’s cast-down throne and kingdom, etc., and yet that all these assurances must be taken in a different sense?
+
+
