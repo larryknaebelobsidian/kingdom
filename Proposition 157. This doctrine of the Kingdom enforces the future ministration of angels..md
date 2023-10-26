@@ -2,7 +2,7 @@
 pagecount: 4
 observationcount: 6
 id: 157
-completion: 0
+completion: 1
 ---
 #toc
 >Believers now by faith come “to an innumerable company of angels” (Heb. 12:22, or “to myriads of angels in an assembly or joyful convocation,” Barnes, Com. loci). These angels were employed preparatory to the Theocracy, at the introduction of the Theocracy, etc., and it is most reasonable to believe, as taught, that they will continue to be interested in, and engaged in behalf of, the Theocracy when gloriously restored.
@@ -20,3 +20,5 @@ completion: 0
 >Obs. 4. To be “as the angels of God in heaven” (Matt. 22:30), or to be “equal unto the angels” (Luke 20:36) may, as the context seems to indicate, only refer to the mode of existence (i.e. in reference to marriage, happiness, and immortality), but there is one passage which distinctly teaches a certain pre-eminency over, at least, some of the angels. In 1 Cor. 6:3 we read: “Know ye not that we shall judge angels?” which evidently means ruling over angels, just as “Do ye not know that the saints shall judge the world?” indicates clearly a ruling over the world.
 ### Involvement in world governments
 >Obs. 5. In Dan. 10:13, 20; Heb. 2:5 it is intimated that angels are concerned in the present government of the world.
+### Blessed future fellowship with angels
+>Obs. 6. One of the blessed ingredients of future happiness and glory will be the intercourse of the glorified saints with the angelic host. This will prove a never-ending source of blissful enjoyment. To converse with those who witnessed creation, who have been the trusted messengers of God in countless missions of mercy and love, who for ages have had the honor and glory of God at heart, who are so exalted in knowledge, wisdom, and power —this will be a privilege indeed.
