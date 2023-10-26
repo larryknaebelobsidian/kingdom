@@ -2,7 +2,7 @@
 pagecount: 5
 observationcount: 6
 id: 188
-completion: 0
+completion: 1
 ---
 #toc
 
@@ -14,3 +14,15 @@ completion: 0
 >5. (5) and in urging all to accept Jesus as the promised Messiah, so that they may become qualified to enter into His coming Kingdom.
 >--reformatted
 
+### Romans
+Obs. 1
+### Pauline Epistles
+Obs. 2
+### Hebrews
+Obs. 3
+### James
+Obs. 4
+### Peter
+Obs. 5
+### John
+Obs. 6
