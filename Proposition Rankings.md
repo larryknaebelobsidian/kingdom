@@ -1,4 +1,4 @@
-A listing of the propositions ordered by my assumed level of effort made by Peters. This is another way for me to view these propositions (than their numbered order) and I am using this ranking view as the order of further completion of my note taking in Obsidian. 
+A listing of the propositions ordered by my assumed level of effort made by Peters. This is another way for me to view these propositions (other than their numbered order) and I am using this ranking view as the order of further completion of my note taking in Obsidian. 
 
 This ranking assumes that a greater level of effort was given to those propositions containing the most content. Here propositions are shown in order of pagecount + observationcount.  
 PageCount is the number of pages given to a proposition in the hard copy of the book.  ObservationCount is the number of observations Peters made on the proposition.
