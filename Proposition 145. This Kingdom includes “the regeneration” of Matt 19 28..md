@@ -2,7 +2,7 @@
 pagecount: 6
 observationcount: 3
 id: 145
-completion: 0
+completion: 1
 ---
 #toc
 
@@ -14,3 +14,11 @@ Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https:/
 
 Matt. 19:28 LSB
 And Jesus said to them, “Truly I say to you, that you who have followed Me, in the regeneration when the Son of Man will sit on His glorious throne, you also shall sit upon twelve thrones, judging the twelve tribes of Israel.
+### Too many meanings assigned
+>Freely admitting that when this “regeneration” is experienced, that then, also, the new heavens and new earth appear, that Paradise is restored, that the Kingdom of heaven is outwardly manifested in glory, etc., it does not follow by any means that “regeneration” denotes all these things. Logically, it cannot.
+>Obs. 2
+#### Resurrection
+>The primary meaning of a second creation, renewal, restoration, necessarily, when considered in its relation to the future, embraces the idea of the resurrection.
+### Ever-continuing reality
+>The phrase “in the regeneration” does not simply allude to the time when the resurrection is experienced, but to the fact that it is an ever-continuing reality— an unchangeable state from the period of its happy realization.
+>Obs. 3
