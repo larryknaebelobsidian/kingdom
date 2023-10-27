@@ -2,7 +2,7 @@
 pagecount: 5
 observationcount: 4
 id: 184
-completion: 0
+completion: 1
 ---
 #toc
 
@@ -22,10 +22,10 @@ Obs. 1
 
 >It is a painful fact that we have large and small bodies of professing believers, who, discarding a common religious experience, make their own church or sect the exemplification of the Biblical idea of unity, and therefore either ignore the professions of all others, refusing to allow them to be also believers, or else, while theoretically conceding that they may be Christians, practically refuse them the title by debarring them from the Lord’s table, etc.
 >Obs. 2
-### Christianity is unreliable
+### Christianity is unreliable (infidel argument)
 >Obs. 3. Infidels may parade the differences, the antagonisms, and even the hostility of the various churches, and from this deduce the unreliability of Christianity, because a unity, which they assert is promised, is not manifested;
-
-
+### Union of Church and State
+>Obs. 4. The Theocracy, in the King and His co-rulers, must necessarily exhibit a oneness subsisting between them; but the Bible also speaks of, embraced even in the notion of a perfect Theocratic government a unity of the Kingdom resulting from a union of Church and State.
 
 
 
