@@ -16,7 +16,14 @@ Obs. 1
 >God now permits many things, which in themselves are not agreeable to Him, and which form a source of sorrow to pious souls. The history of the Church is the best commentary on this subject.
 >...
 >The union between Christ and His members is necessarily spiritual, invisible, until the day that He appears with them, and such union is openly revealed.
+### Unity does not require only 1 denomination
+>unity at present must be placed where the Word places it, not in any outward organization, but in a common union in and with Christ.
+>Obs. 2
 
+>It is a painful fact that we have large and small bodies of professing believers, who, discarding a common religious experience, make their own church or sect the exemplification of the Biblical idea of unity, and therefore either ignore the professions of all others, refusing to allow them to be also believers, or else, while theoretically conceding that they may be Christians, practically refuse them the title by debarring them from the Lord’s table, etc.
+>Obs. 2
+### Christianity is unreliable
+>Obs. 3. Infidels may parade the differences, the antagonisms, and even the hostility of the various churches, and from this deduce the unreliability of Christianity, because a unity, which they assert is promised, is not manifested;
 
 
 
