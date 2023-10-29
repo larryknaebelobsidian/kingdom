@@ -149,7 +149,7 @@ ISRAEL TO REAP THE FRUIT OF HER DISOBEDIENCE.
 ### 6
 Vers. 11-13. THE ELECT REMNANT THE GUARANTEE OF A NEW LIFE AND A NEW GLORIOUS FUTURE.
 [Isaiah 6:11 - 6:13 - Legacy Standard Bible](https://read.lsbible.org/?q=is6%3A11-13)
-### 8:9
+### 8
 Ver. 9. THE ENEMIES OF JUDAH TO BE BROKEN IN PIECES.
 [Isaiah 8:9 - Legacy Standard Bible](https://read.lsbible.org/?q=is8%3A9)
 ### 9
