@@ -190,16 +190,52 @@ none
 ## Haggai
 2:6-9,20-23
 ## Zechariah
-1:7-21
-2:1-13
-3:1-10
-4:1-14
-5
-6:1-15
-7
-8:1-23
-9
-10
+### 1
+Vers. 7-17. THE RIDER ON THE RED HORSE. THE FIRST OF TEN VISIONS IN ONE NIGHT.
+[Zechariah 1:7 - 1:17 - Legacy Standard Bible](https://read.lsbible.org/?q=zech1%3A7-17)
+### 2
+Vers. 1-13. THE VISION OF THE MAN WITH THE MEASURING LINE.
+[Zechariah 2:1 - 2:13 - Legacy Standard Bible](https://read.lsbible.org/?q=zech2%3A1-13)
+### 3
+Vers. 1-7. THE VISION OF JOSHUA THE HIGH PRIEST.
+[Zechariah 3:1 - 3:7 - Legacy Standard Bible](https://read.lsbible.org/?q=zech3%3A1-7)
+
+Vers. 8-10. THE VISION OF JEHOVAH'S SERVANT, THE BRANCH.
+[Zechariah 3:8 - 3:10 - Legacy Standard Bible](https://read.lsbible.org/?q=zech3%3A8-10)
+### 4
+Vers. 1-14. THE VISION OF THE GOLDEN CANDLESTICK AND THE TWO OLIVE TREES.
+[Zechariah 4:1 - 4:14 - Legacy Standard Bible](https://read.lsbible.org/?q=zech4%3A1-14)
+### 5
+Vers. 1-4. THE VISION OF THE FLYING ROLL.
+[Zechariah 5:1 - 5:4 - Legacy Standard Bible](https://read.lsbible.org/?q=zech5%3A1-4)
+
+Vers. 5-11. THE VISION OF THE WOMAN IN THE EPHAH.
+[Zechariah 5:5 - 5:11 - Legacy Standard Bible](https://read.lsbible.org/?q=zech5%3A5-11)
+### 6
+Vers. 1-8. THE VISION OF THE FOUR CHARIOTS.
+[Zechariah 6:1 - 6:8 - Legacy Standard Bible](https://read.lsbible.org/?q=zech6%3A1-8)
+
+Vers. 9-15. THE CROWN UPON JOSHUA'S HEAD.
+[Zechariah 6:9 - 6:15 - Legacy Standard Bible](https://read.lsbible.org/?q=zech6%3A9-15)
+### 7
+PAST RESULTS OF DISOBEDIENCE.
+### 8
+Vers. 1-8. PROMISE OF FUTURE BLESSINGS FOR OBEDIENCE
+[Zechariah 8:1 - 8:8 - Legacy Standard Bible](https://read.lsbible.org/?q=zech8%3A1-8)
+
+Vers. 9-19. THE RESTORATION PROPHETS ARE TO BE HEEDED.
+[Zechariah 8:9 - 8:19 - Legacy Standard Bible](https://read.lsbible.org/?q=zech8%3A9-19)
+### 9
+Chapters 9 to 14 were written thirty years later.
+
+Vers. 9-17. SAFETY AND PEACE BECAUSE OF THE COMING MESSIAH WHOSE DOMINION IS TO BE UNIVERSAL.
+[Zechariah 9:9 - 9:17 - Legacy Standard Bible](https://read.lsbible.org/?q=zech9%3A9-17)
+### 10
+Vers. 1-8. FORMER MERCIES RESTORED TO JUDAH AND ISRAEL.
+[Zechariah 10:1 - 10:8 - Legacy Standard Bible](https://read.lsbible.org/?q=zech10%3A1-8)
+
+Vers. 9-12. THE DISPERSION AND THE REGATHERING OF ISRAEL.
+[Zechariah 10:9 - 10:12 - Legacy Standard Bible](https://read.lsbible.org/?q=zech10%3A9-12)
 ### 11
 Vers. 1-6. THE WRATH AGAINST THE LAND.
 [Zechariah 11:1 - 11:6 - Legacy Standard Bible](https://read.lsbible.org/?q=zech11%3A1-6)
