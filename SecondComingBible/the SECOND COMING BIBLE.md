@@ -232,13 +232,38 @@ Vers. 12-13. ISRAEL RESTORED.
 ### 28
 Vers. 14-22. THE FATE OF EPHRAIM A WARNING TO JUDAH.
 [Isaiah 28:14 - 28:22 - Legacy Standard Bible](https://read.lsbible.org/?q=is28%3A14-22)
-29
-30
-31
-32
-33
-34
-35
+### 29
+Vers. 3-8. THE INVASION AND OVERTHROW OF THE ASSYRIAN HOST.
+[Isaiah 29:3 - 29:8 - Legacy Standard Bible](https://read.lsbible.org/?q=isa29%3A3-8)
+
+Vers. 17-24. THE BLESSING OF ISRAEL AFTER DELIVERANCE.
+[Isaiah 29:17 - 29:24 - Legacy Standard Bible](https://read.lsbible.org/?q=isa29%3A17-24)
+### 30
+Vers. 23-33. THE BLESSING WHICH ARE TO FOLLOW ISRAEL'S DEVASTATION.
+[Isaiah 30:23 - 30:33 - Legacy Standard Bible](https://read.lsbible.org/?q=isa30%3A23-33)
+### 31
+[Isaiah 31 - Legacy Standard Bible](https://read.lsbible.org/?q=isa31)
+### 32
+Vers. 1-8. THE PROMISE OF THE KING AND HIS RIGHTEOUS GOVERNMENT.
+[Isaiah 32:1 - 32:8 - Legacy Standard Bible](https://read.lsbible.org/?q=isa32%3A1-8)
+
+Vers. 14-20. THE FUTURE GLORY OF THE NATION.
+[Isaiah 32:14 - 32:20 - Legacy Standard Bible](https://read.lsbible.org/?q=isa32%3A14-20)
+### 33
+Vers. 1-24. THE WOE UPON ASSYRIA AND THE SALVATION OF JERUSALEM.
+[Isaiah 33:1 - 33:24 - Legacy Standard Bible](https://read.lsbible.org/?q=isa33%3A1-24)
+### 34
+Vers. 1-4. THE JUDGEMENT ON THE WHOLE WORLD.
+[Isaiah 34:1 - 34:4 - Legacy Standard Bible](https://read.lsbible.org/?q=isa34%3A1-4)
+
+Vers. 5-15. THE JUDGMENT ON EDOM AS REPRESENTING ALL HOSTILE WORLD-POWER.
+[Isaiah 34:5 - 34:15 - Legacy Standard Bible](https://read.lsbible.org/?q=isa34%3A5-15)
+
+Vers. 16,17. A SUMMONS TO COMPARE THE PROPHECY WITH ITS FULFILLMENT.
+[Isaiah 34:16 - 34:17 - Legacy Standard Bible](https://read.lsbible.org/?q=isa34%3A16-17)
+### 35
+Vers. 1-10. ISRAEL'S REDEMPTION AND REGATHERING.
+[Isaiah 35:1 - 35:10 - Legacy Standard Bible](https://read.lsbible.org/?q=isa35%3A1-10)
 36
 37
 38
@@ -252,7 +277,15 @@ Vers. 14-22. THE FATE OF EPHRAIM A WARNING TO JUDAH.
 46
 47
 48
-49
+### 49
+Ver. 6. THE RESTORATION OF ISRAEL AND THE CALLING OF THE GENTILES.
+[Isaiah 49:6 - Legacy Standard Bible](https://read.lsbible.org/?q=isa49%3A6)
+
+Ver. 8-12. THE PRESERVATION AND RESTORATION OF ISRAEL.
+[Isaiah 49:8 - 49:12 - Legacy Standard Bible](https://read.lsbible.org/?q=isa49%3A8-12)
+
+Vers. 17-26. DESOLATE ISRAEL BUILT AFRESH FROM THE GENTILES.
+[Isaiah 49:17 - 49:26 - Legacy Standard Bible](https://read.lsbible.org/?q=isa49%3A17-26)
 50
 51
 52
@@ -262,14 +295,47 @@ Vers. 14-22. THE FATE OF EPHRAIM A WARNING TO JUDAH.
 56
 57
 58
-59
-60
-61
-62
-63
-64
-65
-66
+### 59
+Vers. 15-21. THE PROMISE OF JEHOVAH'S INTERVENTION AND THE REDEEMER OUT OF ZION.
+[Isaiah 59:15 - 59:21 - Legacy Standard Bible](https://read.lsbible.org/?q=isa59%3A15-21)
+### 60
+Vers. 1-9. THE GATHERING OF THE NATIONS TO JERUSALEM.
+[Isaiah 60:1 - 60:9 - Legacy Standard Bible](https://read.lsbible.org/?q=isa60%3A1-9)
+
+Vers. 10-16. THE RESTORATION OF JERUSALEM TO GLORY.
+[Isaiah 60:10 - 60:16 - Legacy Standard Bible](https://read.lsbible.org/?q=isa60%3A10-16)
+
+Vers. 17-22. THE NEW LIFE OF JERUSALEM TO BE ENJOYED BY THE RESTORED.
+[Isaiah 60:17 - 60:22 - Legacy Standard Bible](https://read.lsbible.org/?q=isa60%3A17-22)
+### 61
+Vers. 1-11. THE GLORY OF THE OFFICE OF MESSIAH, THE SERVANT OF JEHOVAH.
+[Isaiah 61:1 - 61:11 - Legacy Standard Bible](https://read.lsbible.org/?q=isa61%3A1-11)
+### 62
+Vers. 1-12. THE FURTHER DEVELOPMENT OF THE GLORY OF JERUSALEM.
+[Isaiah 62:1 - 62:12 - Legacy Standard Bible](https://read.lsbible.org/?q=isa62%3A1-12)
+### 63
+Vers. 1-6. THE DAY OF VENGEANCE.
+[Isaiah 63:1 - 63:6 - Legacy Standard Bible](https://read.lsbible.org/?q=isa63%3A1-6)
+
+Vers. 7-19. THANKSGIVING, CONFESSION AND SUPPLICATION OF JEHOVAH'S PEOPLE.
+[Isaiah 63:7 - 63:19 - Legacy Standard Bible](https://read.lsbible.org/?q=isa63%3A7-19)
+### 64
+[Isaiah 64 - Legacy Standard Bible](https://read.lsbible.org/?q=isa64)
+### 65
+Vers. 1-7. NOT ALL ISRAEL SHALL BE SAVED.
+[Isaiah 65:1 - 65:7 - Legacy Standard Bible](https://read.lsbible.org/?q=isa65%3A1-7)
+
+Vers. 8-16. NOT ALL ISRAEL SHALL BE CAST OFF. THE REMNANT TO BE SAVED.
+[Isaiah 65:8 - 65:16 - Legacy Standard Bible](https://read.lsbible.org/?q=isa65%3A8-16)
+
+Vers. 17-25. THE ETERNAL BLESSING OF THE REMNANT IN THE NEW EARTH AND THE NEW HEAVENS.
+[Isaiah 65:17 - 65:25 - Legacy Standard Bible](https://read.lsbible.org/?q=isa65%3A17-25)
+### 66
+Vers. 1-14. EXCLUSION OF THE WICKED FROM END-TIME BLESSINGS.
+[Isaiah 66:1 - 66:14 - Legacy Standard Bible](https://read.lsbible.org/?q=isa66%3A1-14)
+
+Vers. 15-24. A GENERAL PICTURE OF THE TIME OF THE END.
+[Isaiah 66:15 - 66:24 - Legacy Standard Bible](https://read.lsbible.org/?q=isa66%3A15-24)
 ## Jeremiah
 ### 3
 Vers. 14-18. PROMISE OF FINAL RESTORATION AND BLESSING TO THE JEWS.
