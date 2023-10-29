@@ -139,10 +139,18 @@ Only those seen by me as directly related to the second coming are shown.
 49
 50
 ## Ezekiel
-11
-14
-16
-17
+### 11
+Vers. 17-21. ISRAEL PROMISED RESTORATION TO THEIR OWN LAND.
+[Ezekiel 11:17 - 11:21 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek11%3A17-21)
+### 14
+Vers. 21-23. THE JUDGEMENTS OF GOD JUSTIFIED BY THE DISOBEDIENCE OF THE PEOPLE.
+[Ezekiel 14:21 - 14:23 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek14%3A21-23)
+### 16
+Vers. 46,53,55,60-63. THE HARLOTRY OF JERUSALEM FORGIVEN.
+[Ezekiel 16:46 - 16:63 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek16%3A46-63)
+### 17
+Vers. 22-24. PLANTING OF THE TRUE TWIG OF THE STEM OF DAVID.
+[Ezekiel 17:22 - 17:24 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek17%3A22-24)
 20
 28
 29
