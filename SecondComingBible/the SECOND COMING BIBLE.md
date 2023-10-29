@@ -352,11 +352,11 @@ Vers. 1-8. THE FUTURE RESTORATION AND CONVERSION OF ISRAEL.
 
 Ver. 20. JEHOVAH'S UNALTERABLE PURPOSE AS TO ISRAEL AND HER ENEMIES.
 [Jeremiah 23:20 - Legacy Standard Bible](https://read.lsbible.org/?q=jer23%3A20)
-### 24:4-7
+### 24
 Vers. 4-7. THE PROMISE OF RESTORATION AND CONVERSION OF ISRAEL.
 [Jeremiah 24:4 - 24:7 - Legacy Standard Bible](https://read.lsbible.org/?q=jer24%3A4-7)
 ### 25
-
+[Jeremiah 25 - Legacy Standard Bible](https://read.lsbible.org/?q=jer25)
 ### 29
 Vers. 12-14. ISRAEL TO BE REGATHERED TO HER ORIGINAL INHERITANCE.
 [Jeremiah 29:12 - 29:14 - Legacy Standard Bible](https://read.lsbible.org/?q=jer29%3A12-14)
@@ -382,7 +382,7 @@ Vers. 1,27,28. THE JUDGEMENT OF THE GENTILES AND THE DELIVERANCE OF ISRAEL.
 Vers. 46,47. THE CONVERSION OF THE HEATHEN IN THE FINAL PERIOD.
 [Jeremiah 48:46 - 48:47 - Legacy Standard Bible](https://read.lsbible.org/?q=jer48%3A46-47)
 ### 49
-
+[Jeremiah 49 - Legacy Standard Bible](https://read.lsbible.org/?q=jer49)
 ### 50
 Vers. 4-7,19,20,33,34. THE CHOSEN PEOPLE RESTORED AND UNITED IN ETERNAL COVENANT WITH THEIR GOD.
 [Jeremiah 50:4 - 50:34 - Legacy Standard Bible](https://read.lsbible.org/?q=jer50%3A4-34)
@@ -515,7 +515,7 @@ Vers. 17-21. THE BLESSINGS OF THE COMING KINGDOM.
 Vers. 16-20. THE DAY OF JEHOVAH, A DAY OF RIGHTEOUS RETRIBUTION.
 [Amos 5:16 - 5:20 - Legacy Standard Bible](https://read.lsbible.org/?q=am5%3A16-20)
 ### 8
-
+[Amos 8 - Legacy Standard Bible](https://read.lsbible.org/?q=amos8)
 ### 9
 Vers. 1, 8-10. A VISION OF JEHOVAH EXECUTING JUDGEMENT.
 [Amos 9:1 - 9:10 - Legacy Standard Bible](https://read.lsbible.org/?q=am9%3A1-10)
