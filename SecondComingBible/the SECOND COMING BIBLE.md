@@ -201,12 +201,49 @@ none
 9
 10
 11
-12
-13
-14
+### 12
+[Zechariah 12:1 - 12:3 - Legacy Standard Bible](https://read.lsbible.org/?q=zech12%3A1-3)
+Vers. 1-3. JERUSALEM WHEN BESEIGED TO BECOME THE INSTRUMENT OF JUDGEMENT ON HER FOES.
+
+[Zechariah 12:4 - 12:10 - Legacy Standard Bible](https://read.lsbible.org/?q=zech12%3A4-10)
+Vers. 4-10. THE SEIGE ITSELF.
+
+[Zechariah 12:11 - 12:14 - Legacy Standard Bible](https://read.lsbible.org/?q=zech12%3A11-14)
+Vers. 11-14. THE REPENTANCE OF THE REMNANT.
+
+### 13
+Vers. 1-6. IDOLATRY AND FALSE PROPHESYING TO CEASE.
+[Zechariah 13:1 - 13:6 - Legacy Standard Bible](https://read.lsbible.org/?q=zech13%3A1-6)
+
+Vers. 7-9. THE SHEPHERD SMITTEN, THE FLOCK SCATTERED AND THE REMNANT REFINED AND SAVED.
+[Zechariah 13:7 - 13:9 - Legacy Standard Bible](https://read.lsbible.org/?q=zech13%3A7-9)
+
+### 14
+Vers. 1-3. THE GREAT BATTLE IN THE DAY OF JEHOVAH.
+[Zechariah 14:1 - 14:3 - Legacy Standard Bible](https://read.lsbible.org/?q=zech14%3A1-3)
+
+Vers. 4-8. THE RETURN OF THE MESSIAH TO THE MOUNT OF OLIVES. AND THE PHYSICAL CHANGES IN THE LAND.
+[Zechariah 14:4 - 14:8 - Legacy Standard Bible](https://read.lsbible.org/?q=zech14%3A4-8)
+
+Vers. 9-15. THE KINGDOM ESTABLISHED UPON THE EARTH.
+[Zechariah 14:9 - 14:15 - Legacy Standard Bible](https://read.lsbible.org/?q=zech14%3A9-15)
+
+Vers. 16-21. THE WORSHIP AND SPIRITUALITY OF THE NEW ORDER.
+[Zechariah 14:16 - 14:21 - Legacy Standard Bible](https://read.lsbible.org/?q=zech14%3A16-21)
 ## Malachi
-3
-4
+### 3
+Vers. 1-6. THE MISSION OF JOHN THE BAPTIST AND THE COMING OF THE LORD.
+[Malachi 3:1 - 3:6 - Legacy Standard Bible](https://read.lsbible.org/?q=mal3%3A1-6)
+
+Vers. 16-18. THE REWARD OF THE FAITHFUL REMNANT.
+[Malachi 3:16 - 3:18 - Legacy Standard Bible](https://read.lsbible.org/?q=mal3%3A16-18)
+
+### 4
+Vers. 1-4. THE DAY OF THE LORD AND THE SECOND COMING OF CHRIST.
+[Malachi 4:1 - 4:4 - Legacy Standard Bible](https://read.lsbible.org/?q=mal4%3A1-4)
+
+Vers. 5,6. ELIJAH TO COME BEFORE THE DAY OF THE LORD.
+[Malachi 4:5 - 4:6 - Legacy Standard Bible](https://read.lsbible.org/?q=mal4%3A5-6)
 
 
 
