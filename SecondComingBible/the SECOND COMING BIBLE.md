@@ -16,8 +16,7 @@ Only those seen by me as directly related to the second coming are shown.
 26
 28
 35
-## Exodus
-none
+
 ## Leviticus
 ## Numbers
 24:14-24
@@ -170,19 +169,59 @@ none
 13:14
 14:5-7
 ## Joel
-1:4,6,15
-2
-3
+### 1
+Vers. 4,6,15. THE BEGINNING OF THE DAY OF JEHOVAH.
+[Joel 1:4 - 1:15 - Legacy Standard Bible](https://read.lsbible.org/?q=joel1%3A4-15)
+### 2
+Vers. 1-11. THE INVADING ARMY FROM THE NORTH.
+[Joel 2:1 - 2:11 - Legacy Standard Bible](https://read.lsbible.org/?q=joel2%3A1-11)
+
+Vers. 12-17. A CALL TO REPENTANCE.
+[Joel 2:12 - 2:17 - Legacy Standard Bible](https://read.lsbible.org/?q=joel2%3A12-17)
+
+Vers. 18-27. THE LORD'S PROMISE OF DELIVERANCE.
+[Joel 2:18 - 2:27 - Legacy Standard Bible](https://read.lsbible.org/?q=joel2%3A18-27)
+
+Vers. 28-32. THE PROMISE OF SPIRITUAL GIFTS.
+[Joel 2:28 - 2:32 - Legacy Standard Bible](https://read.lsbible.org/?q=joel2%3A28-32)
+### 3
+Vers. 1-8. THE RESTORATION OF ISRAEL AND THE JUDGEMENT OF GENTILE NATIONS.
+[Joel 3:1 - 3:8 - Legacy Standard Bible](https://read.lsbible.org/?q=joel3%3A1-8)
+
+Vers. 9-16. THE DAY OF THE LORD IN RETROSPECT.
+[Joel 3:9 - 3:16 - Legacy Standard Bible](https://read.lsbible.org/?q=joel3%3A9-16)
+
+Vers. 17-21. THE BLESSINGS OF THE COMING KINGDOM.
+[Joel 3:17 - 3:21 - Legacy Standard Bible](https://read.lsbible.org/?q=joel3%3A17-21)
 ## Amos
-5:16-20
-8
-9
+### 5
+Vers. 16-20. THE DAY OF JEHOVAH, A DAY OF RIGHTEOUS RETRIBUTION.
+[Amos 5:16 - 5:20 - Legacy Standard Bible](https://read.lsbible.org/?q=am5%3A16-20)
+### 8
+
+### 9
+Vers. 1, 8-10. A VISION OF JEHOVAH EXECUTING JUDGEMENT.
+[Amos 9:1 - 9:10 - Legacy Standard Bible](https://read.lsbible.org/?q=am9%3A1-10)
 ## Obadiah
+### 1
+Vers. 15, 16. THE DAY OF JEHOVAH AND THE PUNISHMENT OF THE UNGODLY.
+[Obadiah 1:15 - 1:16 - Legacy Standard Bible](https://read.lsbible.org/?q=ob1%3A15-16)
+
+Vers. 17-21. THE RE-ESTABLISHMENT OF THE JEWS IN THEIR OWN POSSESSIONS.
+[Obadiah 1:17 - 1:21 - Legacy Standard Bible](https://read.lsbible.org/?q=ob1%3A17-21)
 ## Micah
-2:12,13
-4
-5
-7
+### 2
+Vers. 12,13. THE PROMISE TO THE REMNANT.
+[Micah 2:12 - 2:13 - Legacy Standard Bible](https://read.lsbible.org/?q=mic2%3A12-13)
+### 4
+Vers. 1-13. THE FUTURE KINGDOM AND THE REGATHERING OF ISRAEL.
+[Micah 4:1 - 4:13 - Legacy Standard Bible](https://read.lsbible.org/?q=mic4%3A1-13)
+### 5
+Vers. 1-15. THE BIRTH OF THE KING, THE DISPERSION OF ISRAEL, AND THE KINGDOM AGE.
+[Micah 5:1 - 5:15 - Legacy Standard Bible](https://read.lsbible.org/?q=mic5%3A1-15)
+### 7
+Vers. 1-20. THE VOICE OF THE REMNANT IN THE LAST DAYS.
+[Micah 7:1 - 7:20 - Legacy Standard Bible](https://read.lsbible.org/?q=mic7%3A1-20)
 ## Zephaniah
 ### 1
 Vers. 7, 14-16. JEHOVAH'S DAY OF WRATH COMING UPON JUDAH.
