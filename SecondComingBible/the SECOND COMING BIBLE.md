@@ -200,7 +200,15 @@ none
 8:1-23
 9
 10
-11
+### 11
+Vers. 1-6. THE WRATH AGAINST THE LAND.
+[Zechariah 11:1 - 11:6 - Legacy Standard Bible](https://read.lsbible.org/?q=zech11%3A1-6)
+
+Vers. 7-14. JEHOVAH'S WRATH CAUSED BY THE SALE AND REJECTION OF THE MESSIAH.
+[Zechariah 11:7 - 11:14 - Legacy Standard Bible](https://read.lsbible.org/?q=zech11%3A7-14)
+
+Vers. 15-17. THE JUDGEMENT OF THE WICKED SHEPHERD.
+[Zechariah 11:15 - 11:17 - Legacy Standard Bible](https://read.lsbible.org/?q=zech11%3A15-17)
 ### 12
 [Zechariah 12:1 - 12:3 - Legacy Standard Bible](https://read.lsbible.org/?q=zech12%3A1-3)
 Vers. 1-3. JERUSALEM WHEN BESEIGED TO BECOME THE INSTRUMENT OF JUDGEMENT ON HER FOES.
