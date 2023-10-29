@@ -30,14 +30,24 @@ Vers. 9-12. THE ABRAHAMIC COVENANT CONFIRMED AGAIN TO JACOB.
 [Genesis 35:9 - 35:12 - Legacy Standard Bible](https://read.lsbible.org/?q=gen35%3A9-12)
 ## Leviticus
 ## Numbers
-24:14-24
+### 24
+Vers. 14-19. THE VICTORIOUS SUPREMECY OF ISRAEL'S MESSIANIC DAYS FORETOLD.
+[Numbers 24:14 - 24:24 - Legacy Standard Bible](https://read.lsbible.org/?q=num24%3A14-24)
 ## Deuteronomy
-4:26-31
-28:64-68
-29
-30:1-10
+### 4
+Vers. 26-31. THE FUTURE DISPENSATION OF ISRAEL FORETOLD.
+[Deuteronomy 4:26 - 4:31 - Legacy Standard Bible](https://read.lsbible.org/?q=deut4%3A26-31)
+### 28
+Vers. 64-68. THE FUTURE DISPERSION OF ISRAEL FORETOLD.
+[Deuteronomy 28:64 - 28:68 - Legacy Standard Bible](https://read.lsbible.org/?q=deut28%3A64-68)
+### 29
+### 30:1-10
+Vers. 1-10. THE PROMISE OF RESTORATION DECLARED.
+[Deuteronomy 30:1 - 30:10 - Legacy Standard Bible](https://read.lsbible.org/?q=deut30%3A1-10)
 ## 2 Samuel
-7:8-29
+### 7
+Vers. 8-17,24,29. THE COVENANT WITH DAVID.
+[2 Samuel 7:8 - 7:29 - Legacy Standard Bible](https://read.lsbible.org/?q=2sam7%3A8-29)
 ## 1 Chronicles
 17:7-15
 ## Job
