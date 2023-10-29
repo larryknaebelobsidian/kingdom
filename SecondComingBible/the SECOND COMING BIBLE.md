@@ -152,13 +152,33 @@ Only those seen by me as directly related to the second coming are shown.
 39
 40-48
 ## Daniel
-2
-7
-8
-9
-10
-11
-12
+### 2
+Vers. 31-45. THE DREAM OF NEBUCHADNEZZAR AND ITS INTERPRETATION.
+[Daniel 2:31 - 2:45 - Legacy Standard Bible](https://read.lsbible.org/?q=dan2%3A31-45)
+### 7
+Vers. 1-28. THE VISION OF THE FOUR BEASTS AND ITS INTERPRETATION.
+[Daniel 7:1 - 7:28 - Legacy Standard Bible](https://read.lsbible.org/?q=dan7%3A1-28)
+### 8
+Vers. 1-26. VISION OF THE DESECRATING HORN AND ITS INTERPRETATION.
+[Daniel 8:1 - 8:26 - Legacy Standard Bible](https://read.lsbible.org/?q=dan8%3A1-26)
+### 9
+Vers. 20-27. THE VISION OF THE SEVENTY WEEKS OF YEARS AND ITS INTERPRETATION.
+[Daniel 9:20 - 9:27 - Legacy Standard Bible](https://read.lsbible.org/?q=dan9%3A20-27)
+### 10
+Ver. 14. THE PROPHECY OF THE END-TIME ANNOUNCED.
+[Daniel 10:14 - Legacy Standard Bible](https://read.lsbible.org/?q=dan10%3A14)
+### 11
+Vers. 31-35. THE "LITTLE HORN" OF DANIEL 8, ANTIOCHUS EPIPHANES, IN THE "GLORIOUS LAND" (PALESTINE).
+[Daniel 11:31 - 11:35 - Legacy Standard Bible](https://read.lsbible.org/?q=dan11%3A31-35)
+
+Vers. 36-39. THE WILFUL KING DESCRIBED.
+[Daniel 11:36 - 11:39 - Legacy Standard Bible](https://read.lsbible.org/?q=dan11%3A36-39)
+
+Vers. 40-45. THE MARTIAL CAREER OF THE WILFUL KING.
+[Daniel 11:40 - 11:45 - Legacy Standard Bible](https://read.lsbible.org/?q=dan11%3A40-45)
+### 12
+Vers. 1-13. TRIBULATION AND RESURRECTION.
+[Daniel 12:1 - 12:13 - Legacy Standard Bible](https://read.lsbible.org/?q=dan12%3A1-13)
 ## Hosea
 ### 1
 Vers. 10,11. THE FUTURE BLESSING AND RESTORATION OF ISRAEL.
