@@ -122,22 +122,55 @@ Only those seen by me as directly related to the second coming are shown.
 65
 66
 ## Jeremiah
-3:14-18
-12:14-17
-16:14-15
-23:1-8,20
-24:4-7
-25
-29:12-14
-### 30:1-24
+### 3
+Vers. 14-18. PROMISE OF FINAL RESTORATION AND BLESSING TO THE JEWS.
+[Jeremiah 3:14 - 3:18 - Legacy Standard Bible](https://read.lsbible.org/?q=jer3%3A14-18)
+### 12
+Vers. 14-17. OBEDIENCE REWARDED BY FINAL UNION IN JEHOVAH.
+[Jeremiah 12:14 - 12:17 - Legacy Standard Bible](https://read.lsbible.org/?q=jer12%3A14-17)
+### 16
+Vers. 14, 15. CONSOLATORY PROMISE OF FUTURE RESTORATION.
+[Jeremiah 16:14 - 16:15 - Legacy Standard Bible](https://read.lsbible.org/?q=jer16%3A14-15)
+### 23
+Vers. 1-8. THE FUTURE RESTORATION AND CONVERSION OF ISRAEL.
+[Jeremiah 23:1 - 23:8 - Legacy Standard Bible](https://read.lsbible.org/?q=jer23%3A1-8)
+
+Ver. 20. JEHOVAH'S UNALTERABLE PURPOSE AS TO ISRAEL AND HER ENEMIES.
+[Jeremiah 23:20 - Legacy Standard Bible](https://read.lsbible.org/?q=jer23%3A20)
+### 24:4-7
+Vers. 4-7. THE PROMISE OF RESTORATION AND CONVERSION OF ISRAEL.
+[Jeremiah 24:4 - 24:7 - Legacy Standard Bible](https://read.lsbible.org/?q=jer24%3A4-7)
+### 25
+
+### 29
+Vers. 12-14. ISRAEL TO BE REGATHERED TO HER ORIGINAL INHERITANCE.
+[Jeremiah 29:12 - 29:14 - Legacy Standard Bible](https://read.lsbible.org/?q=jer29%3A12-14)
+### 30
+Vers. 1-24. ISRAEL IN TRIBULATION AND THE PROMISED DELIVERANCE.
+[Jeremiah 30:1 - 30:24 - Legacy Standard Bible](https://read.lsbible.org/?q=jer30%3A1-24)
 ### 31
+Vers. 1-40. THE DECREE OF RESTORATION AND THE NEW COVENANT.
+[Jeremiah 31:1 - 31:40 - Legacy Standard Bible](https://read.lsbible.org/?q=jer31%3A1-40)
 ### 32
+Vers. 36-44. FURTHER PROPHECY OF ISRAEL'S RETURN AND RESTORATION.
+[Jeremiah 32:36 - 32:44 - Legacy Standard Bible](https://read.lsbible.org/?q=jer32%3A36-44)
 ### 33
-## 39:7 - Beginning of the times of the Gentiles
-46
-48
-49
-50
+Vers. 1-26. FURTHER PROMISE OF ISRAEL'S GLORIOUS FUTURE.
+[Jeremiah 33:1 - 33:26 - Legacy Standard Bible](https://read.lsbible.org/?q=jer33%3A1-26)
+## 39
+Ver. 7. THE BEGINNING OF THE TIMES OF THE GENTILES.
+[Jeremiah 33:1 - 33:26 - Legacy Standard Bible](https://read.lsbible.org/?q=jer33%3A1-26)
+### 46
+Vers. 1,27,28. THE JUDGEMENT OF THE GENTILES AND THE DELIVERANCE OF ISRAEL.
+[Jeremiah 46:1 - 46:28 - Legacy Standard Bible](https://read.lsbible.org/?q=jer46%3A1-28)
+### 48
+Vers. 46,47. THE CONVERSION OF THE HEATHEN IN THE FINAL PERIOD.
+[Jeremiah 48:46 - 48:47 - Legacy Standard Bible](https://read.lsbible.org/?q=jer48%3A46-47)
+### 49
+
+### 50
+Vers. 4-7,19,20,33,34. THE CHOSEN PEOPLE RESTORED AND UNITED IN ETERNAL COVENANT WITH THEIR GOD.
+[Jeremiah 50:4 - 50:34 - Legacy Standard Bible](https://read.lsbible.org/?q=jer50%3A4-34)
 ## Ezekiel
 ### 11
 Vers. 17-21. ISRAEL PROMISED RESTORATION TO THEIR OWN LAND.
@@ -151,14 +184,39 @@ Vers. 46,53,55,60-63. THE HARLOTRY OF JERUSALEM FORGIVEN.
 ### 17
 Vers. 22-24. PLANTING OF THE TRUE TWIG OF THE STEM OF DAVID.
 [Ezekiel 17:22 - 17:24 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek17%3A22-24)
-20
-28
-29
-30
-34
-38
-39
-40-48
+### 20
+Vers. 33-44. THE JUDGEMENT UPON AND THE FUTURE RESTORATION OF ISRAEL.
+[Ezekiel 20:33 - 20:44 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek20%3A33-44)
+### 28
+Vers. 25,26. RESTORATION TO THEIR OWN LAND PROMISED TO ISRAEL.
+[Ezekiel 28:25 - 28:26 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek28%3A25-26)
+### 29
+Ver. 21. ISRAEL'S ANCIENT GLORY TO BE REVIVED.
+[Ezekiel 29:21 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek29%3A21)
+### 30
+Ver. 3. THE DAY OF JEHOVAH DRAWING NIGH.
+[Ezekiel 30:3 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek30%3A3)
+### 34
+Vers. 11-31. ISRAEL RESTORED AND THE DAVIDIC KINGDOM SET UP.
+[Ezekiel 34:11 - 34:31 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek34%3A11-31)
+### 36
+Ver. 8. RESTORATION FORETOLD.
+[Ezekiel 36:8 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek36%3A8)
+
+Ver. 24-38. ISRAEL'S RESTORATION AND CONVERSION.
+[Ezekiel 36:24 - 36:38 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek36%3A24-38)
+### 37
+Vers. 11-14. THE VISION OF THE VALLEY OF DRY BONES EXPLAINED.
+[Ezekiel 37:11 - 37:14 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek37%3A11-14)
+
+Vers. 15-28. THE REUNITED TRIBES RESTORED TO THEIR LAND.
+[Ezekiel 37:15 - 37:28 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek37%3A15-28)
+### 38
+Vers. 1-23. THE DESTRUCTION OF GOG AND HIS GREAT ARMY OF NATIONS.
+[Ezekiel 38:1 - 38:23 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek38%3A1-23)
+### 39
+Vers. 1-29. THE JUDGMENT UPON GOG AND HIS HOSTS CONTINUED.
+[Ezekiel 39:1 - 39:29 - Legacy Standard Bible](https://read.lsbible.org/?q=ezek39%3A1-29)
 ## Daniel
 ### 2
 Vers. 31-45. THE DREAM OF NEBUCHADNEZZAR AND ITS INTERPRETATION.
