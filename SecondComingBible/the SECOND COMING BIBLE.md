@@ -126,33 +126,112 @@ Vers. 1-28. THE HUMILIATION AND THE COMING GLORY OF THE KING.
 Vers. 1-7. THE KINGDOM, WITH ITS POWER AND GLORY, GIVEN TO THE KING.
 [Psalm 110:1 - 110:7 - Legacy Standard Bible](https://read.lsbible.org/?q=ps110%3A1-7)
 ## Isaiah
-1
-2
-3:1-26
-4:2-6
-5
-6:11-13
-8:9
-9:1-7
-10
-11
-12
-13
-14
-15
-16
-17
-18
-19
-20
-21
-22
-23
+### 1
+Vers. 1-24. JEHOVAH'S CASE AGAINST HIS REBELLIOUS AND UNGRATEFUL PEOPLE.
+[Isaiah 1:1 - 1:24 - Legacy Standard Bible](https://read.lsbible.org/?q=is1%3A1-24)
+Vers. 25-31. ZION TO BE PURGED AND REDEEMED.
+[Isaiah 1:25 - 1:31 - Legacy Standard Bible](https://read.lsbible.org/?q=is1%3A25-31)
+### 2
+Vers. 1-5. THE PROMISE FOR THE LAST DAYS.
+[Isaiah 2:1 - 2:5 - Legacy Standard Bible](https://read.lsbible.org/?q=is2%3A1-5)
+
+Vers. 10-22. THE JUDGMENT OF THE COMING DAY OF JEHOVAH.
+[Isaiah 2:10 - 2:22 - Legacy Standard Bible](https://read.lsbible.org/?q=is2%3A10-22)
+### 3
+Vers. 1-26. THE DAY OF JEHOVAH UPON JERUSALEM AND JUDAH.
+[Isaiah 3:1 - 3:26 - Legacy Standard Bible](https://read.lsbible.org/?q=is3%3A1-26)
+### 4
+Vers. 2-6. THE GLORIOUS CONDITION OF THE FUTURE KINGDOM.
+[Isaiah 4:2 - 4:6 - Legacy Standard Bible](https://read.lsbible.org/?q=is4%3A2-6)
+### 5
+ISRAEL TO REAP THE FRUIT OF HER DISOBEDIENCE.
+[Isaiah 5 - Legacy Standard Bible](https://read.lsbible.org/?q=is5)
+### 6
+Vers. 11-13. THE ELECT REMNANT THE GUARANTEE OF A NEW LIFE AND A NEW GLORIOUS FUTURE.
+[Isaiah 6:11 - 6:13 - Legacy Standard Bible](https://read.lsbible.org/?q=is6%3A11-13)
+### 8:9
+Ver. 9. THE ENEMIES OF JUDAH TO BE BROKEN IN PIECES.
+[Isaiah 8:9 - Legacy Standard Bible](https://read.lsbible.org/?q=is8%3A9)
+### 9
+Vers. 1-7. THE BIRTH AND REIGN OF THE KING OF PEACE.
+[Isaiah 9:1 - 9:7 - Legacy Standard Bible](https://read.lsbible.org/?q=is9%3A1-7)
+### 10
+Vers. 20-23. THE BELIEVING REMNANT RESTORED.
+[Isaiah 10:20 - 10:23 - Legacy Standard Bible](https://read.lsbible.org/?q=is10%3A20-23)
+### 11
+Vers. 1-16. THE KINGDOM OF DAVID AND HOW IT WILL BE ESTABLISHED.
+[Isaiah 11:1 - 11:16 - Legacy Standard Bible](https://read.lsbible.org/?q=is11%3A1-16)
+### 12
+[Isaiah 12 - Legacy Standard Bible](https://read.lsbible.org/?q=is12)
+### 13
+Vers. 1-22. THE JUDGMENT PRONOUNCED ON THE BABYLONIAN EMPIRE AND THE FINAL OVERTHROW AND DESTRUCTION OF BABYLON HERSELF, THROUGH THE CONQUEST OF THE MEDES AND PERSIANS.
+[Isaiah 13:1 - 13:22 - Legacy Standard Bible](https://read.lsbible.org/?q=is13%3A1-22)
+### 14
+Ver. 1,2. BABYLON'S DESTRUCTION AND ISRAEL'S RESTORATION AND EXALTATION.
+[Isaiah 14:1 - 14:2 - Legacy Standard Bible](https://read.lsbible.org/?q=is14%3A1-2)
+
+Vers. 4-23. ISRAEL'S SONG OF TRIUMPH OVER HER FALLEN ENEMY.
+[Isaiah 14:4 - 14:23 - Legacy Standard Bible](https://read.lsbible.org/?q=is14%3A4-23)
+
+Vers. 24-27. A PROPHECY AGAINST THE ASSYRIAN HOST UNDER SENNACHERIB.
+[Isaiah 14:24 - 14:27 - Legacy Standard Bible](https://read.lsbible.org/?q=is14%3A24-27)
+
+Vers. 28-32. A PROPHECY AGAINST PHILISTIA.
+[Isaiah 14:28 - 14:32 - Legacy Standard Bible](https://read.lsbible.org/?q=is14%3A28-32)
+### 15
+[Isaiah 15 - Legacy Standard Bible](https://read.lsbible.org/?q=is15)
+### 16
+Vers. 1-5. THE DAVIDIC KINGDOM FORESEEN.
+[Isaiah 16:1 - 16:5 - Legacy Standard Bible](https://read.lsbible.org/?q=is16%3A1-5)
+### 17
+A PROPHECY OF DESOLATION TO THE KINGDOMS OF SYRIA AND EPHRAIM (verses 1-11), CLOSING WITH A GENERAL THREATENING AGAINST THE ENEMIES OF JUDAH (verses 12-14).
+[Isaiah 17 - Legacy Standard Bible](https://read.lsbible.org/?q=is17)
+### 18
+Vers. 1,2,7. THE DANGER AND DELIVERANCE OF ETHIOPIA.
+[Isaiah 18:1 - 18:7 - Legacy Standard Bible](https://read.lsbible.org/?q=is18%3A1-7)
+### 19
+[Isaiah 19 - Legacy Standard Bible](https://read.lsbible.org/?q=is19)
+### 20
+[Isaiah 20 - Legacy Standard Bible](https://read.lsbible.org/?q=is20)
+### 21
+[Isaiah 21 - Legacy Standard Bible](https://read.lsbible.org/?q=is21)
+### 22
+[Isaiah 22 - Legacy Standard Bible](https://read.lsbible.org/?q=is22)
+### 23
+[Isaiah 23 - Legacy Standard Bible](https://read.lsbible.org/?q=is23)
 ### 24
-25
+Vers. 1-12. THE BEGINNING OF THE JUDGMENT.
+[Isaiah 24:1 - 24:12 - Legacy Standard Bible](https://read.lsbible.org/?q=is24%3A1-12)
+
+Vers. 13-15. THE REMNANT AND THEIR SONG.
+[Isaiah 24:13 - 24:15 - Legacy Standard Bible](https://read.lsbible.org/?q=is24%3A13-15)
+
+Vers. 16-23. THE CONSUMMATION OF THE JUDGEMENT.
+[Isaiah 24:16 - 24:23 - Legacy Standard Bible](https://read.lsbible.org/?q=is24%3A16-23)
+### 25
+Vers. 1-5. THANKSGIVING FOR THE OVERTHROW OF THE OPPRESSORS.
+[Isaiah 25:1 - 25:5 - Legacy Standard Bible](https://read.lsbible.org/?q=is25%3A1-5)
+
+Vers. 6-9. THE FEAST IN ZION FOR ALL NATIONS.
+[Isaiah 25:6 - 25:9 - Legacy Standard Bible](https://read.lsbible.org/?q=is25%3A6-9)
+
+Vers. 10-12. THE DISGRACEFUL RUIN OF MOAB THREATENED.
+[Isaiah 25:10 - 25:12 - Legacy Standard Bible](https://read.lsbible.org/?q=is25%3A10-12)
 ### 26
-27
-28
+Vers. 1-19. THE WORSHIP AND TESTIMONY OF RESTORED ISRAEL.
+[Isaiah 26:1 - 26:19 - Legacy Standard Bible](https://read.lsbible.org/?q=is26%3A1-19)
+
+Vers. 20-21. THE PUNISHMENT OF THE GOD-OPPOSED POWERS OF THE WORLD.
+[Isaiah 26:20 - 26:21 - Legacy Standard Bible](https://read.lsbible.org/?q=is26%3A20-21)
+### 27
+Vers. 1-11. THE JUDGMENT UPON JEHOVAH'S ENEMIES CONTINUED.
+[Isaiah 27:1 - 27:11 - Legacy Standard Bible](https://read.lsbible.org/?q=is27%3A1-11)
+
+Vers. 12-13. ISRAEL RESTORED.
+[Isaiah 27:12 - 27:13 - Legacy Standard Bible](https://read.lsbible.org/?q=is27%3A12-13)
+### 28
+Vers. 14-22. THE FATE OF EPHRAIM A WARNING TO JUDAH.
+[Isaiah 28:14 - 28:22 - Legacy Standard Bible](https://read.lsbible.org/?q=is28%3A14-22)
 29
 30
 31
