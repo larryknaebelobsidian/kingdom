@@ -10,13 +10,24 @@ Below is a selective list of passages found in the book.
 Only those seen by me as directly related to the second coming are shown.
 ## Genesis
 12:1-3
-13:14-18
-22:15-18
-24
-26
-28
-35
-
+Vers. 1-3. THE ABRAHAMIC COVENANT FORMED.
+[Genesis 12:1 - 12:3 - Legacy Standard Bible](https://read.lsbible.org/?q=gen12%3A1-3)
+### 13:14-18
+Vers. 14-18. THE ABRAHAMIC COVENANT CONFIRMED.
+[Genesis 13:14 - 13:18 - Legacy Standard Bible](https://read.lsbible.org/?q=gen13%3A14-18)
+### 22:15-18
+Vers. 15-18. THE ABRAHAMIC COVENANT AGAIN CONFIRMED.
+[Genesis 22:15 - 22:18 - Legacy Standard Bible](https://read.lsbible.org/?q=gen22%3A15-18)
+### 24
+### 26
+Vers. 3,4,23,24. THE ABRAHAMIC COVENANT CONFIRMED TO ISAAC.
+[Genesis 26:3 - 26:24 - Legacy Standard Bible](https://read.lsbible.org/?q=gen26%3A3-24)
+### 28
+Vers. 13,14. THE ABRAHAMIC COVENANT CONFIRMED TO JACOB.
+[Genesis 28:13 - 28:14 - Legacy Standard Bible](https://read.lsbible.org/?q=gen28%3A13-14)
+### 35
+Vers. 9-12. THE ABRAHAMIC COVENANT CONFIRMED AGAIN TO JACOB.
+[Genesis 35:9 - 35:12 - Legacy Standard Bible](https://read.lsbible.org/?q=gen35%3A9-12)
 ## Leviticus
 ## Numbers
 24:14-24
