@@ -160,14 +160,30 @@ Only those seen by me as directly related to the second coming are shown.
 11
 12
 ## Hosea
-1:10,11
-2:14-23
-3:5
-6:2
-11:8-11
-12:9
-13:14
-14:5-7
+### 1
+Vers. 10,11. THE FUTURE BLESSING AND RESTORATION OF ISRAEL.
+[Hosea 1:10 - 1:11 - Legacy Standard Bible](https://read.lsbible.org/?q=hos1%3A10-11)
+### 2
+Vers. 14-23. ISRAEL'S CONVERSION AND THE RENEWAL OF THE COVENANT.
+[Hosea 2:14 - 2:23 - Legacy Standard Bible](https://read.lsbible.org/?q=hos2%3A14-23)
+### 3
+Ver. 5. THE FUTURE KINGDOM
+[Hosea 3:5 - Legacy Standard Bible](https://read.lsbible.org/?q=hos3%3A5)
+### 6
+Ver. 2. THE CERTAINTY OF ISRAEL'S RESTORATION
+[Hosea 6:2 - Legacy Standard Bible](https://read.lsbible.org/?q=hos6%3A2)
+### 11
+Vers. 8-11. JEHOVAH'S PURPOSE TO RESTORE ISRAEL.
+[Hosea 11:8 - 11:11 - Legacy Standard Bible](https://read.lsbible.org/?q=hos11%3A8-11)
+### 12
+Ver. 9. FUTURE BLESSING AND RESTORATION AGAIN PROMISED.
+[Hosea 12:9 - Legacy Standard Bible](https://read.lsbible.org/?q=hos12%3A9)
+### 13
+Ver. 14. THE BLESSING OF ISRAEL IN THE FUTURE KINGDOM.
+[Hosea 13:14 - Legacy Standard Bible](https://read.lsbible.org/?q=hos13%3A14)
+### 14
+Vers. 5-7. THE EFFECTS OF THE LORD'S LOVE RICH IN BLESSING ON ISRAEL.
+[Hosea 14:5 - 14:7 - Legacy Standard Bible](https://read.lsbible.org/?q=hos14%3A5-7)
 ## Joel
 ### 1
 Vers. 4,6,15. THE BEGINNING OF THE DAY OF JEHOVAH.
