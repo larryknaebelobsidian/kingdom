@@ -9,16 +9,17 @@ entitled *The Millennium Bible*
 Below is a selective list of passages found in the book. 
 Only those seen by me as directly related to the second coming are shown.
 ## Genesis
-12:1-3
+### 12
 Vers. 1-3. THE ABRAHAMIC COVENANT FORMED.
 [Genesis 12:1 - 12:3 - Legacy Standard Bible](https://read.lsbible.org/?q=gen12%3A1-3)
-### 13:14-18
+### 13
 Vers. 14-18. THE ABRAHAMIC COVENANT CONFIRMED.
 [Genesis 13:14 - 13:18 - Legacy Standard Bible](https://read.lsbible.org/?q=gen13%3A14-18)
-### 22:15-18
+### 22
 Vers. 15-18. THE ABRAHAMIC COVENANT AGAIN CONFIRMED.
 [Genesis 22:15 - 22:18 - Legacy Standard Bible](https://read.lsbible.org/?q=gen22%3A15-18)
 ### 24
+[Genesis 24 - Legacy Standard Bible](https://read.lsbible.org/?q=gen24)
 ### 26
 Vers. 3,4,23,24. THE ABRAHAMIC COVENANT CONFIRMED TO ISAAC.
 [Genesis 26:3 - 26:24 - Legacy Standard Bible](https://read.lsbible.org/?q=gen26%3A3-24)
@@ -41,7 +42,8 @@ Vers. 26-31. THE FUTURE DISPENSATION OF ISRAEL FORETOLD.
 Vers. 64-68. THE FUTURE DISPERSION OF ISRAEL FORETOLD.
 [Deuteronomy 28:64 - 28:68 - Legacy Standard Bible](https://read.lsbible.org/?q=deut28%3A64-68)
 ### 29
-### 30:1-10
+[Deuteronomy 29 - Legacy Standard Bible](https://read.lsbible.org/?q=deut29)
+### 30
 Vers. 1-10. THE PROMISE OF RESTORATION DECLARED.
 [Deuteronomy 30:1 - 30:10 - Legacy Standard Bible](https://read.lsbible.org/?q=deut30%3A1-10)
 ## 2 Samuel
@@ -49,33 +51,80 @@ Vers. 1-10. THE PROMISE OF RESTORATION DECLARED.
 Vers. 8-17,24,29. THE COVENANT WITH DAVID.
 [2 Samuel 7:8 - 7:29 - Legacy Standard Bible](https://read.lsbible.org/?q=2sam7%3A8-29)
 ## 1 Chronicles
-17:7-15
+### 17
+Vers. 7-15. THE DAVIDIC COVENANT.
+[1 Chronicles 17:7 - 17:15 - Legacy Standard Bible](https://read.lsbible.org/?q=1chron17%3A7-15)
 ## Job
-19:25-26
+### 19
+Ver. 25-26. JOB'S FAITH IN HIS FUTURE VINDICATION.
+[Job 19:25 - Legacy Standard Bible](https://read.lsbible.org/?q=job19%3A25-25)
 ## Psalms
-2
-8
-16:9-10
-22
-24:7-10
-40
-41
-45:1-17
-48
-68:21-35
-69:35-36
-72:1-20
-85
-89:1-52
+### 1
+Ver. 5. THE WICKED AND THE RIGHTEOUS IN JUDGEMENT-TIME.
+[Psalm 1:5 - Legacy Standard Bible](https://read.lsbible.org/?q=ps1%3A5)
+### 2
+Vers. 1-12. THE REIGN OF JEHOVAH'S ANNOINTED.
+[Psalm 2:1 - 2:12 - Legacy Standard Bible](https://read.lsbible.org/?q=ps2%3A1-12)
+### 8
+Vers. 4-8. CHRIST'S FUTURE DOMINION FORETOLD.
+[Psalm 8:4 - 8:8 - Legacy Standard Bible](https://read.lsbible.org/?q=ps8%3A4-8)
+### 16
+Vers. 9, 10. CHRIST'S RESURRECTION FORETOLD.
+[Psalm 16:9 - 16:10 - Legacy Standard Bible](https://read.lsbible.org/?q=ps16%3A9-10)
+### 22
+Vers. 28-31. THE LORD SHALL RULE THE NATIONS OF THE EARTH.
+[Psalm 22:28 - 22:31 - Legacy Standard Bible](https://read.lsbible.org/?q=ps22%3A28-31)
+### 24
+Vers. 7-10. THE THRONE GIVEN TO THE KING OF GLORY.
+[Psalm 24:7 - 24:10 - Legacy Standard Bible](https://read.lsbible.org/?q=ps24%3A7-10)
+### 40
+[Psalm 40 - Legacy Standard Bible](https://read.lsbible.org/?q=ps40)
+### 41
+[Psalm 41 - Legacy Standard Bible](https://read.lsbible.org/?q=ps41)
+### 45
+Vers. 1-17. THE UNION AND GLORY OF CHRIST AND HIS TRIUMPHANT CHURCH DESCRIBED.
+[Psalm 45:1 - 45:17 - Legacy Standard Bible](https://read.lsbible.org/?q=ps45%3A1-17)
+### 48
+THE BEAUTY AND THE GLORY OF ZION.
+[Psalm 48 - Legacy Standard Bible](https://read.lsbible.org/?q=ps48)
+### 68
+THE KING IN TRIUMPHANT ASCENSION AND UNIVERSAL DOMINION.
+[Psalm 68:21 - 68:35 - Legacy Standard Bible](https://read.lsbible.org/?q=ps68%3A21-35)
+### 69
+THE KING IN HUMILIATION.
+Vers. 35,36. JEHOVAH'S SERVANTS TO DWELL IN THE CITIES OF JUDAH.
+[Psalm 69:35 - 69:36 - Legacy Standard Bible](https://read.lsbible.org/?q=ps69%3A35-36)
+### 72
+Vers. 1-20. THE REIGN OF THE RIGHTEOUS KING.
+[Psalm 72:1 - 72:20 - Legacy Standard Bible](https://read.lsbible.org/?q=ps72%3A1-20)
+### 85
+JEHOVAH'S RETURNING FAVOR UPON THE NATION.
+[Psalm 85 - Legacy Standard Bible](https://read.lsbible.org/?q=ps85)
+### 89
+Vers. 1-52. THE COVENANT WITH DAVID CONFIRMED.
+[Psalm 89:1 - 89:52 - Legacy Standard Bible](https://read.lsbible.org/?q=ps89%3A1-52)
+
+### THE RULE OF JEHOVAH AND THE DESTRUCTION OF THE UNBELIEVING NATIONS. 93-99.
 93
+[Psalm 93 - Legacy Standard Bible](https://read.lsbible.org/?q=ps93)
 94
+[Psalm 94 - Legacy Standard Bible](https://read.lsbible.org/?q=ps94)
 95
+[Psalm 95 - Legacy Standard Bible](https://read.lsbible.org/?q=ps95)
 96
+[Psalm 96 - Legacy Standard Bible](https://read.lsbible.org/?q=ps96)
 97
+[Psalm 97 - Legacy Standard Bible](https://read.lsbible.org/?q=ps97)
 98
+[Psalm 98 - Legacy Standard Bible](https://read.lsbible.org/?q=ps98)
 99
-102:1-28
-110:1-7
+[Psalm 99 - Legacy Standard Bible](https://read.lsbible.org/?q=ps99)
+### 102
+Vers. 1-28. THE HUMILIATION AND THE COMING GLORY OF THE KING.
+[Psalm 102:1 - 102:28 - Legacy Standard Bible](https://read.lsbible.org/?q=ps102%3A1-28)
+### 110
+Vers. 1-7. THE KINGDOM, WITH ITS POWER AND GLORY, GIVEN TO THE KING.
+[Psalm 110:1 - 110:7 - Legacy Standard Bible](https://read.lsbible.org/?q=ps110%3A1-7)
 ## Isaiah
 1
 2
