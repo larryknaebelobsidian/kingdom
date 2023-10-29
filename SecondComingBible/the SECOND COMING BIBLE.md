@@ -184,11 +184,22 @@ none
 5
 7
 ## Zephaniah
-1:14-16
-2
-3:8-20
+### 1
+Vers. 7, 14-16. JEHOVAH'S DAY OF WRATH COMING UPON JUDAH.
+[Zephaniah 1:7 - 1:16 - Legacy Standard Bible](https://read.lsbible.org/?q=zeph1%3A7-16)
+### 2
+Vers. 1-3,6,7,11. REPENTANCE COMMANDED AND RESTORATION PROMISED.
+[Zephaniah 2:1 - 2:11 - Legacy Standard Bible](https://read.lsbible.org/?q=zeph2%3A1-11)
+### 3
+Vers. 8-20. JERUSALEM DENOUNCED BUT HER JOYFUL RE-ESTABLISHMENT PROMISED.
+[Zephaniah 3:8 - 3:20 - Legacy Standard Bible](https://read.lsbible.org/?q=zeph3%3A8-20)
 ## Haggai
-2:6-9,20-23
+### 2
+Vers.  6-9. THE GLORY OF THE FUTURE TEMPLE.
+[Haggai 2:6 - 2:9 - Legacy Standard Bible](https://read.lsbible.org/?q=hag2%3A6-9)
+
+Vers. 20-23. THE FUTURE DESTRUCTION OF GENTILE POWER.
+[Haggai 2:20 - 2:23 - Legacy Standard Bible](https://read.lsbible.org/?q=hag2%3A20-23)
 ## Zechariah
 ### 1
 Vers. 7-17. THE RIDER ON THE RED HORSE. THE FIRST OF TEN VISIONS IN ONE NIGHT.
