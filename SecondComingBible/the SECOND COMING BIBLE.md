@@ -656,6 +656,163 @@ Vers. 1-4. THE DAY OF THE LORD AND THE SECOND COMING OF CHRIST.
 Vers. 5,6. ELIJAH TO COME BEFORE THE DAY OF THE LORD.
 [Malachi 4:5 - 4:6 - Legacy Standard Bible](https://read.lsbible.org/?q=mal4%3A5-6)
 
+## Matthew
+### 10
+Ver. 23. THE COMING OF THE LORD IN THE DESTRUCTION OF JERUSALEM.
+[Matthew 10:23 - Legacy Standard Bible](https://read.lsbible.org/?q=matt10%3A23)
+### 12
+Vers. 18-20. THE END-TIME JUDGEMENT UPON THE GENTILES.
+[Matthew 12:18 - 12:20 - Legacy Standard Bible](https://read.lsbible.org/?q=matt12%3A18-20)
+### 13
+Vers. 31,32. THE KINGDOM OF HEAVEN LIKE UNTO A MUSTARD SEED.
+[Matthew 13:31 - 13:32 - Legacy Standard Bible](https://read.lsbible.org/?q=matt13%3A31-32)
+
+Ver. 33. THE KINGDOM OF HEAVEN LIKE UNTO LEAVEN.
+[Matthew 13:33 - Legacy Standard Bible](https://read.lsbible.org/?q=matt13%3A33)
+
+Vers. 37-43. THE KINGDOM AND THE TARES.
+[Matthew 13:37 - 13:43 - Legacy Standard Bible](https://read.lsbible.org/?q=matt13%3A37-43)
+
+Ver. 44. THE KINGDOM LIKE A TREASURE HID IN A FIELD.
+[Matthew 13:44 - Legacy Standard Bible](https://read.lsbible.org/?q=matt13%3A44)
+
+Vers. 45,46. THE KINGDOM LIKE A MAN SEEKING PEARLS.
+[Matthew 13:45 - 13:46 - Legacy Standard Bible](https://read.lsbible.org/?q=matt13%3A45-46)
+
+Vers. 47-50. THE KINGDOM LIKE A DRAG-NET.
+[Matthew 13:47 - 13:50 - Legacy Standard Bible](https://read.lsbible.org/?q=matt13%3A47-50)
+### 16
+Vers. 27, 28. THE COMING OF THE LORD IN THE DESTRUCTION OF JERUSALEM.
+[Matthew 16:27 - 16:28 - Legacy Standard Bible](https://read.lsbible.org/?q=matt16%3A27-28)
+### 20
+Ver. 21. THE KINGDOM MISINTERPRETED.
+[Matthew 20:21 - Legacy Standard Bible](https://read.lsbible.org/?q=matt20%3A21)
+### 21
+Vers. 43, 44. THE REJECTION OF THE JEWISH NATION.
+[Matthew 21:43 - 21:44 - Legacy Standard Bible](https://read.lsbible.org/?q=matt21%3A43-44)
+### 23
+Ver. 39. THE GLAD WELCOME OF OUR LORD AT HIS SECOND COMING.
+[Matthew 23:39 - Legacy Standard Bible](https://read.lsbible.org/?q=matt23%3A39)
+### 24
+Vers. 1-14. THE COURSE OF THIS PRESENT AGE.
+[Matthew 24:1 - 24:14 - Legacy Standard Bible](https://read.lsbible.org/?q=matt24%3A1-14)
+
+Vers. 15-22. THE GREAT TRIBULATION.
+[Matthew 24:15 - 24:22 - Legacy Standard Bible](https://read.lsbible.org/?q=matt24%3A15-22)
+
+Vers. 23-26. PREDICTION CONCERNING THE FALSE CHRISTS.
+[Matthew 24:23 - 24:26 - Legacy Standard Bible](https://read.lsbible.org/?q=matt24%3A23-26)
+
+Vers. 29-31. THE RETURN OF THE KING IN GLORY.
+[Matthew 24:29 - 24:31 - Legacy Standard Bible](https://read.lsbible.org/?q=matt24%3A29-31)
+
+Vers. 32-34. THE SECOND COMING TO BE SUDDEN AND UNEXPECTED.
+[Matthew 24:32 - 24:34 - Legacy Standard Bible](https://read.lsbible.org/?q=matt24%3A32-34)
+
+Vers. 45-51. THE WATCHFUL AND THE CARELESS SERVANTS.
+[Matthew 24:45 - 24:51 - Legacy Standard Bible](https://read.lsbible.org/?q=matt24%3A45-51)
+### 25
+Vers. 1-13. THE FIVE WISE AND THE FIVE FOOLISH VIRGINS.
+[Matthew 25:1 - 25:13 - Legacy Standard Bible](https://read.lsbible.org/?q=matt25%3A1-13)
+
+Vers. 14-30. THE PARABLE OF THE TALENTS.
+[Matthew 25:14 - 25:30 - Legacy Standard Bible](https://read.lsbible.org/?q=matt25%3A14-30)
+
+Vers. 31-46. THE JUDGMENT BASED UPON WORKS.
+[Matthew 25:31 - 25:46 - Legacy Standard Bible](https://read.lsbible.org/?q=matt25%3A31-46)
+### 26
+Ver. 64. THE SECOND COMING IN A FIGURATIVE AND EVER PRESENT SENSE.
+[Matthew 26:64 - Legacy Standard Bible](https://read.lsbible.org/?q=matt26%3A64)
+## Mark
+### 4
+Vers. 26-30. THE KINGDOM OF GOD FROM SEED-TIME TO HARVEST.
+[Mark 4:26 - 4:30 - Legacy Standard Bible](https://read.lsbible.org/?q=mk4%3A26-30)
+
+Vers. 30-32. PARABLE OF THE MUSTARD SEED.
+[Mark 4:30 - 4:32 - Legacy Standard Bible](https://read.lsbible.org/?q=mk4%3A30-32)
+### 8
+Ver. 38. THE DISOWNER OF CHRIST DISOWNED AT HIS COMING.
+[Mark 8:38 - Legacy Standard Bible](https://read.lsbible.org/?q=mk8%3A38)
+### 9
+Ver. 1. THE COMING OF THE LORD IN THE DESTRUCTION OF JERUSALEM.
+[Mark 9:1 - Legacy Standard Bible](https://read.lsbible.org/?q=mk9%3A1)
+### 11
+Ver. 10. THE KINGDOM MISINTERPRETED.
+[Mark 11:10 - Legacy Standard Bible](https://read.lsbible.org/?q=mk11%3A10)
+### 13
+Ver. 10. A CONDITION OF HIS COMING.
+[Mark 13:10 - Legacy Standard Bible](https://read.lsbible.org/?q=mk13%3A10)
+
+Ver. 13. REDEMPTION THROUGH ENDURANCE.
+[Mark 13:13 - Legacy Standard Bible](https://read.lsbible.org/?q=mk13%3A13)
+
+Vers. 33-37. WATCHFULNESS IN VIEW OF THE RETURN OF THE LORD.
+[Mark 13:33 - 13:37 - Legacy Standard Bible](https://read.lsbible.org/?q=mk13%3A33-37)
+### 14
+[Mark 14:25 - Legacy Standard Bible](https://read.lsbible.org/?q=mk14%3A25)
+
+[Mark 14:62 - Legacy Standard Bible](https://read.lsbible.org/?q=mk14%3A62)
+## Luke
+### 1
+Vers. 32,33. CHRIST TO BE KING FOREVER ON DAVID'S THRONE.
+[Luke 1:32 - 1:33 - Legacy Standard Bible](https://read.lsbible.org/?q=lk1%3A32-33)
+### 4
+Vers. 16-20. THE SECOND COMING SET FORTH BY IMPLICATION.
+[Luke 4:16 - 4:20 - Legacy Standard Bible](https://read.lsbible.org/?q=lk4%3A16-20)
+### 9
+Ver. 26. THE DISOWNER OF CHRIST DISOWNED AT HIS COMING.
+[Luke 9:26 - Legacy Standard Bible](https://read.lsbible.org/?q=lk9%3A26)
+
+Ver. 27. THE COMING OF THE LORD IN THE DESTRUCTION OF JERUSALEM.
+[Luke 9:27 - Legacy Standard Bible](https://read.lsbible.org/?q=lk9%3A27)
+### 10
+Vers. 8-12. PARTICIPATION IN THE COMING KINGDOM THE REWARD OF CHRISTIAN HOSPITALITY.
+[Luke 10:8 - 10:12 - Legacy Standard Bible](https://read.lsbible.org/?q=lk10%3A8-12)
+### 12
+Vers. 35-40. CONSTANT EXPECTATION OF AND PREPARATION FOR THE LORD'S COMING.
+[Luke 12:35 - 12:40 - Legacy Standard Bible](https://read.lsbible.org/?q=lk12%3A35-40)
+### 13
+Ver. 35. THE GLAD WELCOME OF OUR LORD AT HIS SECOND COMING.
+[Luke 13:35 - Legacy Standard Bible](https://read.lsbible.org/?q=lk13%3A35)
+### 14
+Ver. 15. THE KINGDOM MISUNDERSTOOD.
+[Luke 14:15 - Legacy Standard Bible](https://read.lsbible.org/?q=lk14%3A15)
+### 17
+Vers. 20,21. THE KINGDOM IN THE SENSE OF A PRESENT REALITY.
+[Luke 17:20 - 17:21 - Legacy Standard Bible](https://read.lsbible.org/?q=lk17%3A20-21)
+
+Vers. 22-37. THE SECOND COMING TO BE SUDDEN AND UNEXPECTED.
+[Luke 17:22 - 17:37 - Legacy Standard Bible](https://read.lsbible.org/?q=lk17%3A22-37)
+### 18
+Vers. 1-8. THE LOSS OF FAITH THROUGH THE DELAY OF THE LORD'S COMING.
+[Luke 18:1 - 18:8 - Legacy Standard Bible](https://read.lsbible.org/?q=lk18%3A1-8)
+### 19
+Vers. 11-27. THE PARABLE OF THE POUNDS AND THE POSTPONED KINGDOM.
+[Luke 19:11 - 19:27 - Legacy Standard Bible](https://read.lsbible.org/?q=lk19%3A11-27)
+### 21
+Vers. 5-36. THE DESTRUCTION OF JERUSALEM FORETOLD.
+[Luke 21:5 - 21:36 - Legacy Standard Bible](https://read.lsbible.org/?q=lk21%3A5-36)
+### 22
+Vers. 16,18. THE LORD'S KINGDOM, AT HIS RETURN, UNDER THE IMAGE OF A FEAST.
+[Luke 22:16 - 22:18 - Legacy Standard Bible](https://read.lsbible.org/?q=lk22%3A16-18)
+
+Vers. 28-30, 69. THE DISCIPLES TO JUDGE ISRAEL AT THE LORD'S RETURN.
+[Luke 22:28 - 22:69 - Legacy Standard Bible](https://read.lsbible.org/?q=lk22%3A28-69)
+### 24
+Ver. 21. THE KINGDOM AGAIN MISINTERPRETED.
+[Luke 24:21 - Legacy Standard Bible](https://read.lsbible.org/?q=lk24%3A21)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
