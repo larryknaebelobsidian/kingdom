@@ -839,6 +839,234 @@ Vers. 9-11. THE ASCENSION AND THE PROMISED RETURN.
 Vers. 17-21. THE EFFUSION OF THE HOLY SPIRIT IN THE LAST DAYS.
 [Acts 2:17 - 2:21 - Legacy Standard Bible](https://read.lsbible.org/?q=acts2%3A17-21)
 
+Vers. 29-36. THE HEIR TO DAVID'S THRONE.
+[Acts 2:29 - 2:36 - Legacy Standard Bible](https://read.lsbible.org/?q=acts2%3A29-36)
+### 3
+Vers. 19-21. THE SEASONS OF REFRESHING AND THE RESTORATION OF ALL THINGS.
+[Acts 3:19 - 3:21 - Legacy Standard Bible](https://read.lsbible.org/?q=acts3%3A19-21)
+### 10
+Ver. 42. CHRIST AS JUDGE OF THE QUICK AND THE DEAD.
+[Acts 10:42 - Legacy Standard Bible](https://read.lsbible.org/?q=acts10%3A42)
+### 14
+Ver. 22. THE KINGDOM OF GOD ENTERED THROUGH TRIBULATION.
+[Acts 14:22 - Legacy Standard Bible](https://read.lsbible.org/?q=acts14%3A22)
+### 15
+Vers. 14-18. THE RESTORATION OF THE KINGDOM OF DAVID AND THE CALLING OF THE GENTILES.
+[Acts 15:14 - 15:18 - Legacy Standard Bible](https://read.lsbible.org/?q=acts15%3A14-18)
+## Romans
+### 8
+Vers. 16-25. THE WHOLE CREATION AWAITS THE COMING OF CHRIST.
+[Romans 8:16 - 8:25 - Legacy Standard Bible](https://read.lsbible.org/?q=rom8%3A16-25)
+### 9
+Vers. 27-29. THE ELECT REMNANT OF ISRAEL.
+[Romans 9:27 - 9:29 - Legacy Standard Bible](https://read.lsbible.org/?q=rom9%3A27-29)
+### 11
+Vers. 5,11-15. THE ELECT REMNANT OF ISRAEL ACCORDING TO GRACE.
+[Romans 11:5 - 11:15 - Legacy Standard Bible](https://read.lsbible.org/?q=rom11%3A5-15)
+
+Vers. 25,26. ALL ISRAEL YET TO BE SAVED.
+[Romans 11:25 - 11:26 - Legacy Standard Bible](https://read.lsbible.org/?q=rom11%3A25-26)
+### 13
+Vers. 11,12. THE COMING OF THE LORD DRAWING NEAR.
+[Romans 13:11 - 13:12 - Legacy Standard Bible](https://read.lsbible.org/?q=rom13%3A11-12)
+### 16
+Ver. 20. GOD'S SUMMARY DEALING WITH THE EVIL ONE.
+[Romans 16:20 - Legacy Standard Bible](https://read.lsbible.org/?q=rom16%3A20)
+## 1 Corinthians
+### 1
+Vers. 7,8. WAITING THE COMING OF CHRIST AN EVIDENCE OF CHRISTIAN MATURITY.
+[1 Corinthians 1:7 - 1:8 - Legacy Standard Bible](https://read.lsbible.org/?q=1cor1%3A7-8)
+### 3
+Ver. 13. EVERY MAN'S MINISTRY MADE MANIFEST AT THE COMING OF THE LORD.
+[1 Corinthians 3:13 - Legacy Standard Bible](https://read.lsbible.org/?q=1cor3%3A13)
+### 4
+Ver. 5. JUDGMENT OF CHRIST'S SERVANTS TO AWAIT HIS COMING.
+[1 Corinthians 4:5 - Legacy Standard Bible](https://read.lsbible.org/?q=1cor4%3A5)
+### 5
+Ver. 5. REDEMPTION OF THE SPIRIT IN THE DAY OF THE LORD'S COMING.
+[1 Corinthians 5:5 - Legacy Standard Bible](https://read.lsbible.org/?q=1cor5%3A5)
+### 6
+Vers. 2,3.  THE SAINTS TO SIT IN JUDGMENT ON THE WORLD.
+[1 Corinthians 6:2 - 6:3 - Legacy Standard Bible](https://read.lsbible.org/?q=1cor6%3A2-3)
+### 7
+Vers. 29-31. SUNDRY EXHORTATIONS BASED ON THE NEAR APPROACH OF THE LORD'S RETURN.
+[1 Corinthians 7:29 - 7:31 - Legacy Standard Bible](https://read.lsbible.org/?q=1cor7%3A29-31)
+### 10
+Ver. 11. THE ENDS OF THE AGES COINCIDENT WITH THE PRESENT DISPENSATION.
+[1 Corinthians 10:11 - Legacy Standard Bible](https://read.lsbible.org/?q=1cor10%3A11)
+### 11
+Ver. 26. THE LORD'S SUPPER A PLEDGE OF HIS COMING AGAIN.
+[1 Corinthians 11:26 - Legacy Standard Bible](https://read.lsbible.org/?q=1cor11%3A26)
+### 15
+Vers. 20-26. THE ORDER OF THE RESURRECTION.
+[1 Corinthians 15:20 - 15:26 - Legacy Standard Bible](https://read.lsbible.org/?q=1cor15%3A20-26)
+
+Vers. 50-58. SOME BELIEVERS NEVER TO TASTE DEATH.
+[1 Corinthians 15:50 - 15:58 - Legacy Standard Bible](https://read.lsbible.org/?q=1cor15%3A50-58)
+## 2 Corinthians
+### 4
+Ver. 14. THE JOYFUL PRESENTATION OF BELIEVERS BEFORE THE THRONE OF CHRIST.
+[2 Corinthians 4:14 - Legacy Standard Bible](https://read.lsbible.org/?q=2cor4%3A14)
+### 5
+Vers. 1-10. WHY DEATH HAS NO TERROR FOR THE BELIEVER.
+[2 Corinthians 5:1 - 5:10 - Legacy Standard Bible](https://read.lsbible.org/?q=2cor5%3A1-10)
+## Ephesians
+### 1
+Ver. 10. THE PRESENT AGE THE DISPENSATION OF THE FULLNESS OF THE TIMES.
+[Ephesians 1:10 - Legacy Standard Bible](https://read.lsbible.org/?q=eph1%3A10)
+### 2
+Ver. 7. POST-PAROUSIA BLESSEDNESS FOR THE BELIEVER.
+[Ephesians 2:7 - Legacy Standard Bible](https://read.lsbible.org/?q=eph2%3A7)
+### 4
+Ver. 30. REDEMPTION FULLY REALIZED IN THE DAY OF CHRIST'S COMING.
+[Ephesians 4:30 - Legacy Standard Bible](https://read.lsbible.org/?q=eph4%3A30)
+### 5
+Ver. 5. THE KINGDOM OF CHRIST THE INHERITANCE OF THE PURE IN HEART.
+[Ephesians 5:5 - Legacy Standard Bible](https://read.lsbible.org/?q=eph5%3A5)
+
+Ver. 27. THE JOYFUL PRESENTATION OF THE SAINTS BEFORE CHRIST'S THRONE AT HIS COMING.
+[Ephesians 5:27 - Legacy Standard Bible](https://read.lsbible.org/?q=eph5%3A27)
+### 6
+Ver. 13. THE CHRISTIAN'S ARMOR FOR THE EVIL DAY.
+[Ephesians 6:13 - Legacy Standard Bible](https://read.lsbible.org/?q=eph6%3A13)
+## Philippians
+### 1
+Vers. 6,10. THE CHURCH PRESENTED IN PERFECT HOLINESS AT THE DAY OF CHRIST.
+[Philippians 1:6 - 1:10 - Legacy Standard Bible](https://read.lsbible.org/?q=phil1%3A6-10)
+### 2
+[Philippians 2:16 - Legacy Standard Bible](https://read.lsbible.org/?q=phil2%3A16)
+### 3
+Vers. 9,10,11. THE RESURRECTION OUT FROM AMONG THE DEAD.
+[Philippians 3:9 - 3:11 - Legacy Standard Bible](https://read.lsbible.org/?q=phil3%3A9-11)
+### 4
+Ver. 5. THE SECOND COMING OF THE LORD NOT TO BE LONG DELAYED.
+[Philippians 4:5 - Legacy Standard Bible](https://read.lsbible.org/?q=phil4%3A5)
+## Colossians
+### 1
+Ver. 13. THE KINGDOM HERE AND NOW.
+[Colossians 1:13 - Legacy Standard Bible](https://read.lsbible.org/?q=col1%3A13)
+### 3
+Ver. 4. CHRIST'S MANIFESTATION THE TIME OF THE HOLY PERFECTION.
+[Colossians 3:4 - Legacy Standard Bible](https://read.lsbible.org/?q=col3%3A4)
+### 4
+[Colossians 4:5 - Legacy Standard Bible](https://read.lsbible.org/?q=col4%3A5)
+## 1 Thessalonians
+### 1
+Ver. 10.  WAITING FOR THE SECOND COMING A COMMENDABLE CHARACTERISTIC OF THE CHRISTIAN'S LIFE.
+[1 Thessalonians 1:10 - Legacy Standard Bible](https://read.lsbible.org/?q=1th1%3A10)
+### 2
+Vers. 12,19,20. THE LORD'S COMING THE TIME OF REWARD FOR THE FAITHFUL SERVANT.
+[1 Thessalonians 2:12 - 2:20 - Legacy Standard Bible](https://read.lsbible.org/?q=1th2%3A12-20)
+### 3
+Vers. 12,13. THE BELIEVER UNREPROACHABLE AT THE COMING OF THE LORD.
+[1 Thessalonians 3:12 - 3:13 - Legacy Standard Bible](https://read.lsbible.org/?q=1th3%3A12-13)
+### 4
+Ver. 13-18. THE RAPTURE AT HIS COMING, THE BELIEVER'S BLESSED HOPE.
+[1 Thessalonians 4:13 - 4:18 - Legacy Standard Bible](https://read.lsbible.org/?q=1th4%3A13-18)
+### 5
+Vers.1-6. THE SUDDEN AND UNEXPECTED COMING OF THE DAY OF THE LORD.
+[1 Thessalonians 5:1 - 5:6 - Legacy Standard Bible](https://read.lsbible.org/?q=1th5%3A1-6)
+
+Ver. 23. THE BELIEVER PRESENTED IN PERFECT HOLINESS BEFORE THE LORD AT HIS COMING.
+[1 Thessalonians 5:23 - Legacy Standard Bible](https://read.lsbible.org/?q=1th5%3A23)
+## 2 Thessalonians
+### 1
+Vers. 4-10. THE PERSECUTED BELIEVER'S REST AT THE REVELATION OF CHRIST.
+[2 Thessalonians 1:4 - 1:10 - Legacy Standard Bible](https://read.lsbible.org/?q=2th1%3A4-10)
+### 2
+Vers. 1-13. THE DAY OF THE LORD AND THE MAN OF SIN.
+[2 Thessalonians 2:1 - 2:13 - Legacy Standard Bible](https://read.lsbible.org/?q=2th2%3A1-13)
+## 1 Timothy
+### 4
+Ver. 1. THE APOSTACY OF THE LATTER TIMES.
+[1 Timothy 4:1 - Legacy Standard Bible](https://read.lsbible.org/?q=1tim4%3A1)
+### 6
+Vers. 14,15. THE APPEARANCE OF JESUS IN GOD'S OWN TIME.
+[1 Timothy 6:14 - 6:15 - Legacy Standard Bible](https://read.lsbible.org/?q=1tim6%3A14-15)
+## 2 Timothy
+### 1
+Vers. 10,12,18. PAUL'S CONFIDENCE AS TO HIS SECURITY IN THE DAY OF HIS LORD'S COMING.
+[2 Timothy 1:10 - 1:18 - Legacy Standard Bible](https://read.lsbible.org/?q=2tim1%3A10-18)
+### 2
+Ver. 12. THE BELIEVER SHALL REIGN WITH HIS COMING KING.
+[2 Timothy 2:12 - Legacy Standard Bible](https://read.lsbible.org/?q=2tim2%3A12)
+### 3
+Vers. 1,9,13. THE LAST DAYS ARE TO BE TIMES OF DISTRESS.
+[2 Timothy 3:1 - 3:13 - Legacy Standard Bible](https://read.lsbible.org/?q=2tim3%3A1-13)
+### 4
+Vers. 1,3. THE APPEARING OF CHRIST AN INCENTIVE TO MINISTRIAL FIDELITY.
+[2 Timothy 4:1 - 4:3 - Legacy Standard Bible](https://read.lsbible.org/?q=2tim4%3A1-3)
+
+Ver. 8. THE HOPE OF HIS COMING IS INCONSISTENT WITH UNRIGHTEOUS LIVING.
+[2 Timothy 4:8 - Legacy Standard Bible](https://read.lsbible.org/?q=2tim4%3A8)
+
+Ver. 18. THE KINGDOM AWAITING THE BELIEVER IMMEDIATELY UPON DEATH.
+[2 Timothy 4:18 - Legacy Standard Bible](https://read.lsbible.org/?q=2tim4%3A18)
+## Titus
+### 2
+Ver. 13. THE BELIEVER'S BLESSED HOPE.
+[Titus 2:13 - Legacy Standard Bible](https://read.lsbible.org/?q=titus2%3A13)
+## Hebrews
+### 1
+Vers. 2,8. THE END OF THESE DAYS AND THE EVERLASTING KINGDOM OF CHRIST.
+[Hebrews 1:2 - 1:8 - Legacy Standard Bible](https://read.lsbible.org/?q=heb1%3A2-8)
+### 3
+[Hebrews 3:7 - 3:15 - Legacy Standard Bible](https://read.lsbible.org/?q=heb3%3A7-15)
+### 4
+[Hebrews 4:7 - 4:8 - Legacy Standard Bible](https://read.lsbible.org/?q=heb4%3A7-8)
+### 8
+Vers. 7-12. THE NEW COVENANT IN CHRIST.
+[Hebrews 8:7 - 8:12 - Legacy Standard Bible](https://read.lsbible.org/?q=heb8%3A7-12)
+### 9
+Vers. 25-28. CHRIST'S APPEARING THE SECOND TIME UNTO THEM THAT LOOK FOR HIM.
+[Hebrews 9:25 - 9:28 - Legacy Standard Bible](https://read.lsbible.org/?q=heb9%3A25-28)
+### 10
+Ver. 13. PATIENT WAITING FOR THE LORD'S RETURN.
+[Hebrews 10:13 - Legacy Standard Bible](https://read.lsbible.org/?q=heb10%3A13)
+
+Ver. 25. THE LORD'S RETURN AN INCENTIVE TO FIDELITY.
+[Hebrews 10:25 - Legacy Standard Bible](https://read.lsbible.org/?q=heb10%3A25)
+
+Ver. 37. THE SECOND COMING OF JESUS NOT TO BE LONG DELAYED.
+[Hebrews 10:37 - Legacy Standard Bible](https://read.lsbible.org/?q=heb10%3A37)
+### 11
+Ver. 35. TORTURE NOT WORTHY TO BE COMPARED WITH THE RESURRECTION OF THE JUST.
+[Hebrews 11:35 - Legacy Standard Bible](https://read.lsbible.org/?q=heb11%3A35)
+### 12
+Vers. 26,27. THE OLD EARTH AND HEAVENS GIVING WAY TO THE NEW.
+[Hebrews 12:26 - 12:27 - Legacy Standard Bible](https://read.lsbible.org/?q=heb12%3A26-27)
+## James
+### 5
+Vers. 3,7,8,9. EXHORTATIONS IN VIEW OF THE COMING OF THE LORD.
+[James 5:3 - 5:9 - Legacy Standard Bible](https://read.lsbible.org/?q=james5%3A3-9)
+
+## 1 Peter
+### 1
+Vers. 5,7,13,20. THE REVELATION OF CHRIST THE TIME OF FULL SALVATION.
+[1 Peter 1:5 - 1:20 - Legacy Standard Bible](https://read.lsbible.org/?q=1pet1%3A5-20)
+### 4
+Vers. 5,7,13. THE RETURN OF CHRIST AN INSPIRATION TO SOBER MINDEDNESS AND PATIENT ENDURANCE.
+[1 Peter 4:5 - 4:13 - Legacy Standard Bible](https://read.lsbible.org/?q=1pet4%3A5-13)
+### 5
+Vers. 1,4. THE BELIEVER'S GLORY AT THE MANIFESTATION OF THE LORD.
+[1 Peter 5:1 - 5:4 - Legacy Standard Bible](https://read.lsbible.org/?q=1pet5%3A1-4)
+## 2 Peter
+### 1
+Vers. 11,16,19. THE RETURN OF THE LORD, THE DAY-DAWN OF THE HEART.
+[2 Peter 1:11 - 1:19 - Legacy Standard Bible](https://read.lsbible.org/?q=2pet1%3A11-19)
+### 2
+Vers. 4,9. THE INTERMEDIATE STATE OF JUDGMENT.
+[2 Peter 2:4 - 2:9 - Legacy Standard Bible](https://read.lsbible.org/?q=2pet2%3A4-9)
+### 3
+Vers. 3-10. MOCKERS OF HIS COMING AND THEIR DESTINY.
+[2 Peter 3:3 - 3:10 - Legacy Standard Bible](https://read.lsbible.org/?q=2pet3%3A3-10)
+
+
+
+
+
+
+
 
 
 
