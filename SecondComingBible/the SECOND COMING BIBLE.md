@@ -802,6 +802,44 @@ Vers. 28-30, 69. THE DISCIPLES TO JUDGE ISRAEL AT THE LORD'S RETURN.
 Ver. 21. THE KINGDOM AGAIN MISINTERPRETED.
 [Luke 24:21 - Legacy Standard Bible](https://read.lsbible.org/?q=lk24%3A21)
 
+## John
+### 5
+Vers. 21-29. CHRIST, THE AUTHOR OF RESURRECTION BOTH FOR THE RIGHTEOUS AND THE WICKED.
+[John 5:21 - 5:29 - Legacy Standard Bible](https://read.lsbible.org/?q=john5%3A21-29)
+### 6
+Vers. 39,40,44,54. THE BELIEVER'S RESURRECTION AT THE LAST DAY.
+[John 6:39 - 6:54 - Legacy Standard Bible](https://read.lsbible.org/?q=john6%3A39-54)
+### 11
+Vers. 23-26. THE LAST-DAY RESURRECTION AND THE ETERNAL LIFE OF BELIEVERS.
+[John 11:23 - 11:26 - Legacy Standard Bible](https://read.lsbible.org/?q=john11%3A23-26)
+### 14
+Vers. 3,18,21,23,28.29. HOW THE LORD IS TO COME AGAIN.
+[John 14:3 - 14:29 - Legacy Standard Bible](https://read.lsbible.org/?q=john14%3A3-29)
+### 16
+Ver. 13. THE REVEALER OF THINGS TO COME.
+[John 16:13 - Legacy Standard Bible](https://read.lsbible.org/?q=john16%3A13)
+
+Vers. 16,20,22. THE COMING OF CHRIST THROUGH THE HOLY SPIRIT.
+[John 16:16 - 16:22 - Legacy Standard Bible](https://read.lsbible.org/?q=john16%3A16-22)
+### 18
+Ver. 36. CHRIST'S KINGDOM NOT A WORLDLY ONE.
+[John 18:36 - Legacy Standard Bible](https://read.lsbible.org/?q=john18%3A36)
+### 21
+Vers. 21-23. THE SECOND COMING AND THE DEATH OF JOHN.
+[John 21:21 - 21:23 - Legacy Standard Bible](https://read.lsbible.org/?q=john21%3A21-23)
+
+## Acts
+### 1
+Vers. 6-8. THE KINGDOM CONFUSED.
+[Acts 1:6 - 1:8 - Legacy Standard Bible](https://read.lsbible.org/?q=acts1%3A6-8)
+
+Vers. 9-11. THE ASCENSION AND THE PROMISED RETURN.
+[Acts 1:9 - 1:11 - Legacy Standard Bible](https://read.lsbible.org/?q=acts1%3A9-11)
+### 2
+Vers. 17-21. THE EFFUSION OF THE HOLY SPIRIT IN THE LAST DAYS.
+[Acts 2:17 - 2:21 - Legacy Standard Bible](https://read.lsbible.org/?q=acts2%3A17-21)
+
+
 
 
 
