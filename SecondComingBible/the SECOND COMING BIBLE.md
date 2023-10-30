@@ -11,7 +11,7 @@ Only those seen by me as directly related to the second coming are shown.
 ## Genesis
 ### 12
 #### Vers. 1-3. THE ABRAHAMIC COVENANT FORMED.
-<br>[Genesis 12:1 - 12:3 - Legacy Standard Bible](https://read.lsbible.org/?q=gen12%3A1-3)
+[Genesis 12:1 - 12:3 - Legacy Standard Bible](https://read.lsbible.org/?q=gen12%3A1-3)
 ### 13
 #### Vers. 14-18. THE ABRAHAMIC COVENANT CONFIRMED.
 [Genesis 13:14 - 13:18 - Legacy Standard Bible](https://read.lsbible.org/?q=gen13%3A14-18)
