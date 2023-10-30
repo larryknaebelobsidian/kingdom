@@ -1156,15 +1156,90 @@ Vers. 19-21. THE SEASONS OF REFRESHING AND THE RESTORATION OF ALL THINGS.
 #### Vers. 1-11. THE STRONG ANGEL AND THE LITTLE BOOK.
 [Revelation 10:1 - 10:11 - Legacy Standard Bible](https://read.lsbible.org/?q=rev10%3A1-11)
 ### 11
-Vers. 1,2. THE SAINTS SET APART FOR DELIVERANCE.
+#### Vers. 1,2. THE SAINTS SET APART FOR DELIVERANCE.
+[Revelation 11:1 - 11:2 - Legacy Standard Bible](https://read.lsbible.org/?q=rev11%3A1-2)
 
+#### Vers. 3-12. THE TWO WITNESSES.
+[Revelation 11:3 - 11:12 - Legacy Standard Bible](https://read.lsbible.org/?q=rev11%3A3-12)
 
+#### Vers. 13,14. THE SECOND WOE.
+[Revelation 11:13 - 11:14 - Legacy Standard Bible](https://read.lsbible.org/?q=rev11%3A13-14)
 
+#### Vers. 15-19. THE SEVENTH TRUMPET JUDGMENT.
+[Revelation 11:15 - 11:19 - Legacy Standard Bible](https://read.lsbible.org/?q=rev11%3A15-19)
+### 12
+#### Vers. 1-17. THE SUN-CLOTHED WOMAN AND THE MAN-CHILD.
+[Revelation 12:1 - 12:17 - Legacy Standard Bible](https://read.lsbible.org/?q=rev12%3A1-17)
 
+### 13
+#### Vers. 1-10. THE BEAST OUT OF THE SEA.
+[Revelation 13:1 - 13:10 - Legacy Standard Bible](https://read.lsbible.org/?q=rev13%3A1-10)
 
+#### Vers. 11-18. THE BEAST OUT OF THE EARTH.
+[Revelation 13:11 - 13:18 - Legacy Standard Bible](https://read.lsbible.org/?q=rev13%3A11-18)
+### 14
+#### Vers. 1-5. THE LAMB AND THE 144,000 ON MOUNT ZION.
+[Revelation 14:1 - 14:5 - Legacy Standard Bible](https://read.lsbible.org/?q=rev14%3A1-5)
 
+#### Vers. 6,7. THE ANGEL WITH THE EVERLASTING GOSPEL.
+[Revelation 14:6 - 14:7 - Legacy Standard Bible](https://read.lsbible.org/?q=rev14%3A6-7)
 
+#### Ver. 8. THE JUDGMENT OF BABYLON ANNOUNCED.
+[Revelation 14:8 - Legacy Standard Bible](https://read.lsbible.org/?q=rev14%3A8)
 
+#### Vers. 9-12. THE JUDGMENT OF THE BEAST-WORSHIPPERS ANNOUNCED.
+[Revelation 14:9 - 14:12 - Legacy Standard Bible](https://read.lsbible.org/?q=rev14%3A9-12)
+
+#### Ver. 13. THE BLESSEDNESS OF THE HOLY WHO DIE HENCEFORTH.
+[Revelation 14:13 - Legacy Standard Bible](https://read.lsbible.org/?q=rev14%3A13)
+
+#### Vers. 14-20. CHRIST'S PAROUSIA AND THE VISION OF ARMAGEDDON.
+[Revelation 14:14 - 14:20 - Legacy Standard Bible](https://read.lsbible.org/?q=rev14%3A14-20)
+### 15
+#### Vers. 1-8. THE SEVEN LAST PLAGUES AND THE BOWLS OF GOD'S WRATH.
+[Revelation 15:1 - 15:8 - Legacy Standard Bible](https://read.lsbible.org/?q=rev15%3A1-8)
+### 16
+Vers. 1-21. THE JUDGMENT OF THE SEVEN BOWLS OF GOD'S WRATH.
+[Revelation 16:1 - 16:21 - Legacy Standard Bible](https://read.lsbible.org/?q=rev16%3A1-21)
+### 17
+#### Vers. 1-6. THE MYSTERY OF THE SCARLET WOMAN AND THE BEAST, THE DIVINE VIEW OF "BABYLON"
+[Revelation 17:1 - 17:6 - Legacy Standard Bible](https://read.lsbible.org/?q=rev17%3A1-6)
+
+#### Vers. 7-18. THE LAST FORM OF GENTILE WORLD-POWER.
+[Revelation 17:7 - 17:18 - Legacy Standard Bible](https://read.lsbible.org/?q=rev17%3A7-18)
+### 18
+#### Vers. 1-8. GOD'S PEOPLE WARNED TO COME OUT OF BABYLON.
+[Revelation 18:1 - 18:8 - Legacy Standard Bible](https://read.lsbible.org/?q=rev18%3A1-8)
+
+#### Vers. 9-19. THE EARTHLY LAMENTATION OVER THE DESOLATION OF BABYLON.
+[Revelation 18:9 - 18:19 - Legacy Standard Bible](https://read.lsbible.org/?q=rev18%3A9-19)
+
+#### Vers. 20-24. THE HEAVENLY REJOICING OVER THE DESOLATION OF BABYLON.
+[Revelation 18:20 - 18:24 - Legacy Standard Bible](https://read.lsbible.org/?q=rev18%3A20-24)
+### 19
+#### Vers. 1-6. THE FOURFOLD HALLELUJAH OF THE HEAVENLY MULTITUDE.
+[Revelation 19:1 - 19:6 - Legacy Standard Bible](https://read.lsbible.org/?q=rev19%3A1-6)
+
+#### Vers. 7-10. THE MARRIAGE OF THE LAMB.
+[Revelation 19:7 - 19:10 - Legacy Standard Bible](https://read.lsbible.org/?q=rev19%3A7-10)
+
+#### Vers. 11-16. THE VISION OF THE SECOND COMING OF CHRIST IN GLORY.
+[Revelation 19:11 - 19:16 - Legacy Standard Bible](https://read.lsbible.org/?q=rev19%3A11-16)
+
+#### Vers. 17-21. THE BATTLE OF ARMAGEDDON.
+[Revelation 19:17 - 19:21 - Legacy Standard Bible](https://read.lsbible.org/?q=rev19%3A17-21)
+### 20
+#### Vers. 1-3. SATAN BOUND FOR ONE THOUSAND YEARS.
+[Revelation 20:1 - 20:3 - Legacy Standard Bible](https://read.lsbible.org/?q=rev20%3A1-3)
+
+#### Vers. 4-6. THE FIRST RESURRECTION AND THE ONE THOUSAND YEAR REIGN OF THE SAINTS.
+[Revelation 20:4 - 20:6 - Legacy Standard Bible](https://read.lsbible.org/?q=rev20%3A4-6)
+
+#### Vers. 7-10. THE LOOSING AND THE DOOM OF SATAN.
+[Revelation 20:7 - 20:10 - Legacy Standard Bible](https://read.lsbible.org/?q=rev20%3A7-10)
+
+#### Vers. 11-15. THE LAST JUDGMENT; THE DOOM OF THE UNBELIEVERS.
+[Revelation 20:11 - 20:15 - Legacy Standard Bible](https://read.lsbible.org/?q=rev20%3A11-15)
 
 
 
