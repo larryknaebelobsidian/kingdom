@@ -1240,7 +1240,18 @@ Vers. 1-21. THE JUDGMENT OF THE SEVEN BOWLS OF GOD'S WRATH.
 
 #### Vers. 11-15. THE LAST JUDGMENT; THE DOOM OF THE UNBELIEVERS.
 [Revelation 20:11 - 20:15 - Legacy Standard Bible](https://read.lsbible.org/?q=rev20%3A11-15)
+### 21
+#### Vers. 1-8. THE NEW HEAVEN AND THE NEW EARTH.
+[Revelation 21:1 - 21:8 - Legacy Standard Bible](https://read.lsbible.org/?q=rev21%3A1-8)
 
+#### Vers. 9-27. THE BRIDE OF THE LAMB; THE NEW JERUSALEM COMING DOWN OUT OF HEAVEN.
+[Revelation 21:9 - 21:27 - Legacy Standard Bible](https://read.lsbible.org/?q=rev21%3A9-27)
+### 22
+#### Vers. 1-5. THE RIVER AND THE TREE OF LIFE IN THE NEW JERUSALEM.
+[Revelation 22:1 - 22:5 - Legacy Standard Bible](https://read.lsbible.org/?q=rev22%3A1-5)
+
+#### Vers. 6-21. FINAL TESTIMONY, INVITATION, WARNING, PROMISE AND BENEDICTION.
+[Revelation 22:6 - 22:21 - Legacy Standard Bible](https://read.lsbible.org/?q=rev22%3A6-21)
 
 
 
