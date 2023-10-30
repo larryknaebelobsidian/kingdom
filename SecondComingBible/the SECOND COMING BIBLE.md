@@ -11,6 +11,7 @@ Only those seen by me as directly related to the second coming are shown.
 ## Genesis
 ### 12
 #### Vers. 1-3. THE ABRAHAMIC COVENANT FORMED.
+
 [Genesis 12:1 - 12:3 - Legacy Standard Bible](https://read.lsbible.org/?q=gen12%3A1-3)
 ### 13
 #### Vers. 14-18. THE ABRAHAMIC COVENANT CONFIRMED.
@@ -373,7 +374,7 @@ Vers. 14-17. OBEDIENCE REWARDED BY FINAL UNION IN JEHOVAH.
 ### 33
 #### Vers. 1-26. FURTHER PROMISE OF ISRAEL'S GLORIOUS FUTURE.
 [Jeremiah 33:1 - 33:26 - Legacy Standard Bible](https://read.lsbible.org/?q=jer33%3A1-26)
-## 39
+### 39
 #### Ver. 7. THE BEGINNING OF THE TIMES OF THE GENTILES.
 [Jeremiah 33:1 - 33:26 - Legacy Standard Bible](https://read.lsbible.org/?q=jer33%3A1-26)
 ### 46
