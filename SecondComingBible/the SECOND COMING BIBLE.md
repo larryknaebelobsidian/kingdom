@@ -1061,6 +1061,63 @@ Vers. 4,9. THE INTERMEDIATE STATE OF JUDGMENT.
 Vers. 3-10. MOCKERS OF HIS COMING AND THEIR DESTINY.
 [2 Peter 3:3 - 3:10 - Legacy Standard Bible](https://read.lsbible.org/?q=2pet3%3A3-10)
 
+Vers. 11-18. HASTENING THE COMING OF THE DAY OF THE LORD.
+[2 Peter 3:11 - 3:18 - Legacy Standard Bible](https://read.lsbible.org/?q=2pet3%3A11-18)
+## 1 John
+### 2
+Vers. 18,22,28. THE SPIRIT OF THE ANTICHRIST DEFINED.
+[1 John 2:18 - 2:28 - Legacy Standard Bible](https://read.lsbible.org/?q=1jn2%3A18-28)
+### 3
+Vers. 2,3. PRACTICAL EFFECTS OF THE BELIEVER'S BLESSED HOPE.
+[1 John 3:2 - 3:3 - Legacy Standard Bible](https://read.lsbible.org/?q=1jn3%3A2-3)
+### 4
+Vers. 2,3. THE SPIRIT OF THE ANTICHRIST ALREADY IN THE WORLD.
+[1 John 4:2 - 4:3 - Legacy Standard Bible](https://read.lsbible.org/?q=1jn4%3A2-3)
+## 2 John
+### 1
+Ver. 7. THE FIRST COMING OF CHRIST DENIED.
+[2 John 1:7 - Legacy Standard Bible](https://read.lsbible.org/?q=2jn1%3A7)
+## Jude
+### 1
+Ver. 6. THE FALLEN ANGELS RESERVED UNTO THE DAY OF FINAL JUDGMENT.
+[Jude 1:6 - Legacy Standard Bible](https://read.lsbible.org/?q=jude1%3A6)
+
+Vers. 14-21. JUDGMENT UPON APOSTATE TEACHERS AT THE COMING OF THE LORD.
+[Jude 1:14 - 1:21 - Legacy Standard Bible](https://read.lsbible.org/?q=jude1%3A14-21)
+
+Ver. 24. THE JOYFUL PRESENTATION OF THE BELIEVER BEFORE THE THRONE OF CHRIST AT HIS COMING.
+[Jude 1:24 - Legacy Standard Bible](https://read.lsbible.org/?q=jude1%3A24)
+## The Revelation of John
+### 1
+Vers. 1-10. THE COMING OF THE LORD THE THEME OF THE REVELATION.
+[Revelation 1:1 - 1:10 - Legacy Standard Bible](https://read.lsbible.org/?q=rev1%3A1-10)
+
+Ver. 19. THE THREEFOLD NATURAL DIVISION OF THE BOOK OF REVELATION.
+[Revelation 1:1 - 1:10 - Legacy Standard Bible](https://read.lsbible.org/?q=rev1%3A1-10)
+### 2
+Vers. 25-28. THE SAINTS TO REIGN AND RULE WITH CHRIST.
+[Revelation 2:25 - 2:28 - Legacy Standard Bible](https://read.lsbible.org/?q=rev2%3A25-28)
+### 3
+Vers. 10-12. THE FAITHFUL TO BE KEPT FROM THE HOUR OF TRIAL.
+[Revelation 3:10 - 3:12 - Legacy Standard Bible](https://read.lsbible.org/?q=rev3%3A10-12)
+### 4
+Vers. 1-11. THE VISION OF THE THRONE.
+[Revelation 4:1 - 4:11 - Legacy Standard Bible](https://read.lsbible.org/?q=rev4%3A1-11)
+### 5
+Vers. 1-14. THE SEVEN-SEALED BOOK WHICH CHRIST ALONE IS WORTHY TO OPEN.
+[Revelation 5:1 - 5:14 - Legacy Standard Bible](https://read.lsbible.org/?q=rev5%3A1-14)
+### 6
+Vers. 1,2. THE FIRST SEAL.
+[Revelation 6:1 - 6:2 - Legacy Standard Bible](https://read.lsbible.org/?q=rev6%3A1-2)
+
+Vers. 3,4. THE SECOND SEAL: PEACE TAKEN FROM THE EARTH.
+[Revelation 6:3 - 6:4 - Legacy Standard Bible](https://read.lsbible.org/?q=rev6%3A3-4)
+
+Vers. 5,6. THE THIRD SEAL.
+[Revelation 6:5 - 6:6 - Legacy Standard Bible](https://read.lsbible.org/?q=rev6%3A5-6)
+
+
+
 
 
 
