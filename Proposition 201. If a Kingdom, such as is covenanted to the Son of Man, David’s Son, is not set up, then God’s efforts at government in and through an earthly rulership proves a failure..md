@@ -3,8 +3,9 @@ pagecount: 4
 observationcount: 6
 id: 201
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ### Previous arguments support the certainty of the plan
 >Obs. 1. Our argument proves that the covenants, the prophecies, the continued incarnate relationship of Jesus—in brief, all that has been thus far advanced—clearly show that God will not fail in His Theocratic Plan —His proposed Theocratic-Davidic Kingdom.
 ### Is God unable to finish the job?

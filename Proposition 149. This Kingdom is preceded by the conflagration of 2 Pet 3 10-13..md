@@ -6,9 +6,9 @@ completion: 1
 subjects:
   - new heavens new earth
   - conflagration
+tags:
+  - toc
 ---
-#toc
-
 LSB
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)

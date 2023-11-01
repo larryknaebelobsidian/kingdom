@@ -3,9 +3,9 @@ pagecount: 20
 observationcount: 7
 id: 192
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >This results from the fact that being a leading doctrine of the Bible and embracing the great end contemplated, it must necessarily serve to interpret passages that are indistinct, obscure, and ambiguous. And this it does without straining such passages into a forced compatibility with the general tenor of Revelation concerning the Kingdom, but by simply allowing the plain grammatical sense to connect itself naturally with the comprehensive knowledge respecting the ordering of the Messianic Kingdom.
 
 ### Simple promises are clarified

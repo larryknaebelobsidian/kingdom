@@ -3,9 +3,9 @@ pagecount: 9
 observationcount: 7
 id: 142
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >Obs. 2. The declaration of Jesus, Matt. 5:5, that the meek shall inherit the earth, ought to be decisive. But men under the influence of a plastic system of interpretation, urged on by a preconceived notion, leave the plain meaning of the promise and explain it away.
 
 >Let the reader turn to Psalm 37, where this same promise is repeated five times, and he will find it in vs. 9, 11, 22, 29, 34,

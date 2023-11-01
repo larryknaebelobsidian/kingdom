@@ -3,8 +3,9 @@ pagecount: 6
 observationcount: 7
 id: 116
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ### Divine political dominion
 >Obs. 1. The Kingdom embraces not merely visibility but a divine-political dominion (Prop. 117) superseding all other Kingdoms, as e.g., Dan. 2:44; Rev. 11:15; Dan. 7:13, 14, 18-27; Zech. 14:9, etc.
 

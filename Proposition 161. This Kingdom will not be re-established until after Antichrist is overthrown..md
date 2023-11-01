@@ -7,8 +7,9 @@ subjects:
   - apostasy
 id: 161
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ## Props Mentioned
 [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.|123]] [[Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.|160]] [[Proposition 130. The Kingdom is preceded by a translation of the living saints.|130]] [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.|166]] [[Proposition 174. This Kingdom of the Messiah is preceded by signs.|174]] 
 

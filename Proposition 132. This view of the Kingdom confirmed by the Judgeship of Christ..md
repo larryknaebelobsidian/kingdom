@@ -5,9 +5,9 @@ subjects:
   - judgement
 id: 132
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >The Judgeship of Jesus establishes our doctrine of the Kingdom, the Pre-Mill. Advent, and His continued personal presence as the King. Intending to show that Judgeship and Kingship are in Scripture *equivalent* terms, it follows that if they are such, then, since the Kingship is specifically promised to Jesus Christ as the Son of Man, made thus necessary by the covenant, *so also the Judgeship ought to be expressed*. This is done. He is the Judge because He is “*the man ordained*,” Acts 17:31. Some theologians tell us that the reason why the Father thus constituted Jesus the Judge is (Knapp’s *Ch. Theol*., p. 542) “because He is man and knows from His own experience all the sufferings and infirmities to which our nature is exposed, and can therefore be compassionate and indulgent.” But the reader can see a far deeper reason, *grounded on the Covenant*. It is said, “*The Father judgeth no man, but hath committed all judgment unto the Son; that all men should honor the Son even as they honor the Father*,” John 5:22, 23, and in verse 27 it is added: “*and hath given Him authority to execute judgment also, because He is the Son of Man*.” Why the Son of Man? Because to this Son of Man as David’s Son *is promised* the Kingdom, and Judgeship being *included* in the promised Theocratic-Davidic government, the Father only judges through this Son. The promises based on the covenant *require* such authority to be given to and to be manifested through *the Covenanted Seed*. Hence, as the second Adam recovering the dominion lost by the first Adam; as the woman’s “seed who is to crush the serpent’s head; as the promised seed of Abraham who is to inherit the land, possess the gate of His enemies, and make all nations blessed; as the Son of David who is to reign so gloriously over the earth; as the God-man who perfects salvation through a Theocratic ordering—it is *indispensably necessary* for Him to occupy such a position to meet the predetermined plan of Redemption.
 >p. 352 Vol. 2 Prop. 132
 

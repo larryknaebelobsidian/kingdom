@@ -6,9 +6,9 @@ subjects:
   - judgement
 id: 135
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >The Theocratic Kingdom contemplating for its rulers, associated with the Christ, the saints, must necessarily make provision for the same by a ‘present and future judgment of believers. By this method the requisite qualifications for future kingship and priesthood are made manifest.
 >p. 385 Vol. 2 Prop. 135
 

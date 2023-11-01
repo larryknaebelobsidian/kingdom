@@ -5,9 +5,9 @@ subjects:
   - postponement
 id: 109
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 Scripture from the LSB
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)

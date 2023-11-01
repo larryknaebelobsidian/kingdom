@@ -3,11 +3,10 @@ pagecount: 7
 observationcount: 10
 id: 197
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >While a purely material, naturalistic Kingdom, without spirituality, is unscriptural, so likewise an entire spiritual Kingdom, without the sanctified union of the material or natural, is utterly opposed to the Word of God.
-
 ### Visible, external, world-dominion
 >Obs. 1. Any reader that has followed the scriptural line of argument can see for himself that we are logically and irresistibly driven to the conclusion that the future Messianic Kingdom is a visible, external, world-dominion.
 

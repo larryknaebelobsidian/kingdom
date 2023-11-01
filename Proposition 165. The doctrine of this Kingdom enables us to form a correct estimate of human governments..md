@@ -3,9 +3,9 @@ pagecount: 6
 observationcount: 5
 id: 165
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >Obs. 1. In the consideration of this subject men have been apt to rush to extremes, presenting conclusions which are not warranted by Scripture.
 
 >Obs. 2. This doctrine enables us to detect the fallacy in the writings of some devoted men (Fulton, etc.) when they assume the existence of Christ’s kingdom as already established, believers being its subjects, etc., and then reason from this assumption that believers being already the subjects of an instituted kingdom, they must stand aloof from all human government.

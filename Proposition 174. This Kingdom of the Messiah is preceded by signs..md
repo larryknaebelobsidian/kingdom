@@ -8,9 +8,9 @@ subjects:
   - advent stages
 id: 174
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 ## Signs preceeding First Stage (secret resurrection and secret translation) of the Advent
 
 Observation 3 discusses 38 signs. 

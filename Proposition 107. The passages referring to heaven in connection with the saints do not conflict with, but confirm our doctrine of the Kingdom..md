@@ -3,9 +3,9 @@ pagecount: 5
 observationcount: 4
 id: 107
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >In urging this Kingdom it is said that such promises as Matt. 5:12, Matt. 19:21, etc., refer to the third heaven, and from thence it is inferred that the Kingdom is the state of the saved, triumphant Church in heaven. But we have already shown (Prop. 108, etc.) that Covenant and prophecy describe a Kingdom here on the earth “under the whole heaven”; that for wise purposes the Kingdom has been postponed; that Christ now remains in heaven until the period of manifestation arrives; that He comes from, heaven and the Kingdom is inherited—these and other reasons indicate that there is no conflict between the two, but that, as specifically announced (as e.g. Zech. 14:5) the saints come with Him, and then follows the reign over the earth (as e.g. Zech. 14:9)—hence such passages must not be understood as embracing or inferring the Kingdom, itself.
 ### Many writers concede to earthly promises
 >Obs. 1. That large class of writers who concede the renewal of the earth and its occupancy by the saints, etc., do not, of coarse, press these passages to an eternal inheritance and Kingdom in the third heaven. The concessions that they make are all that are requisite for our view (Props. 140-152).

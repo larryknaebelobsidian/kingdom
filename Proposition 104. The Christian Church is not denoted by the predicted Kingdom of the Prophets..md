@@ -3,9 +3,9 @@ pagecount: 18
 observationcount: 8
 id: 104
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >Obs. 1. Taking the establishment of the Kingdom for granted, and overlooking the postponement, has led to a wholesale appropriation by the church of predictions relating exclusively to the Kingdom still future.
 
 >the church cannot be meant by the Kingdom, for the prophecy locates the appearance of the Ancient of Days and the bestowment of the Kingdom after the horns have appeared.

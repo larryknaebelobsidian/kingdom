@@ -3,9 +3,9 @@ pagecount: 5
 observationcount: 6
 id: 188
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >They all agree 
 >1. (1) in expressing faith and hope in the covenants and prophecies; 
 >2. (2) in Jesus as the Messiah; 

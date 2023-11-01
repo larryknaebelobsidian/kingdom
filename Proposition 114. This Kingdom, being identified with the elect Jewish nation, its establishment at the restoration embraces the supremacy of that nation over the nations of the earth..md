@@ -6,9 +6,9 @@ subjects:
   - elect nation
 id: 114
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >This follows legitimately in view of the mutual and inseparable relationship. The Theocratic-Davidic Kingdom committed to, and organized in, that nation, makes it the special depository of the trust of the Kingdom itself. It is covenanted to the nation, and only in and through the nation, by the power of David’s Son, will it be re-established, and from this establishment extend its sway over the nations of the earth. The result is, that the nation, so highly favored and honored, must, in virtue of so distinguished a relationship, sustain a certain well-defined pre-eminence among and over the other nations. It is the natural outgrowth of Covenant and promise; the result of Theocratic ordering.
 
 >Obs. 1. This is abundantly confirmed by the direct teaching of the prophets.

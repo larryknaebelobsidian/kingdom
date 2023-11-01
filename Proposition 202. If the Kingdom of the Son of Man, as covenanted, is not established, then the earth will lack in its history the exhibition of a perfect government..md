@@ -3,8 +3,9 @@ pagecount: 4
 observationcount: 6
 id: 202
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ### Bible teaches a literal, earthly kingdom
 >Obs. 1. The Bible emphatically teaches, in its Millennial descriptions, a Kingdom here on the earth over man in the flesh, which shall exhibit in a striking administration the principles, laws, results, etc., of a government beyond all others, and adapted in every respect to meet all the requisites to secure stability, happiness, etc. (comp. e.g. Isa. chs. 60, 54, 61, etc.).
 >...

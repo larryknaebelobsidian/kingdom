@@ -3,8 +3,9 @@ pagecount: 6
 observationcount: 5
 id: 186
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ### Analogy of Scripture
 >Obs. 1. In relation to the analogy of Scripture, which exhibits a general connection and agreement subsisting between the truths contained in Holy Scripture, such connection and correspondence is strikingly manifested. Thus we have 
 >1. first the covenant with its promises; 

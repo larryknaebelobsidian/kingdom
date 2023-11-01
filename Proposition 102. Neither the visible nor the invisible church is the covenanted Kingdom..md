@@ -3,8 +3,9 @@ pagecount: 6
 observationcount: 6
 id: 102
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ### Combination of visible and invisible church is not the kingdom
 >Having shown that neither one nor the other is the predicted Kingdom, it follows, from the reasons given, that a combination of both cannot transform them into such a Kingdom.
 >Obs. 1

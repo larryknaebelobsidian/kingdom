@@ -3,9 +3,9 @@ pagecount: 25
 observationcount: 10
 id: 199
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 ## What think ye of Christ?
 
 >It has been justly remarked by many writers that the question that Jesus asked (Matt. 22:42) the assembled Pharisees: “What think ye of Christ?” is the great question of the day, seeing that the attack upon and the defence of Christianity, for the last twenty or more years, has centered upon the Person of Jesus Christ.

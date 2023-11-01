@@ -5,9 +5,9 @@ subject:
   - nations
 id: 152
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 ## Props Mentioned
 [[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.|154]] [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.|156]] 
 

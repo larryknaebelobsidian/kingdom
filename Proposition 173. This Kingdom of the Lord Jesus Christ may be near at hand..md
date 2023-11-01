@@ -3,8 +3,9 @@ pagecount: 17
 observationcount: 9
 id: 173
 completion: 1
+tags:
+  - toc
 ---
-#toc
 >Obs. 1. The precise time for the Kingdom to be established is not given.
 
 >Obs. 2. The postponement of the Kingdom is indefinite as to time, for where it is specifically stated it is always in connection with phraseology (such as “the times of the Gentiles,” or until he comes again, etc.) which gives no regular chronological date or succession.

@@ -3,8 +3,9 @@ pagecount: 8
 observationcount: 6
 id: 158
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ### Not in the past
 >Obs. 1. Hence the doctrine of the Kingdom refutes the theory of those who locate the Mill, era in the past.
 ### Not this dispensation

@@ -3,9 +3,9 @@ pagecount: 15
 observationcount: 13
 id: 205
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >That “Christ” and “Messiah” are titular ascriptions, and not merely doctrinal words, has been already presented under Props. 153, Obs. 2 and 70, Obs. 11, and especially 199, Obs. 2.
 
 >the title will only become practically realized when, in “the day of the Lord Jesus the Christ this Christ manifests the title in the actual Theocratic position occupied. When the Theocracy is re-established in power and glory, then the Messiah, the Christ, shines forth as the Anointed, the King in Israel, having obtained His appointed inheritance.

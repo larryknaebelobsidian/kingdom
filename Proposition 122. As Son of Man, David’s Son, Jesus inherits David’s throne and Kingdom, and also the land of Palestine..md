@@ -3,9 +3,9 @@ pagecount: 9
 observationcount: 8
 id: 122
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >Obs. 1. Writers by confining themselves to the Divine Sovereignty and overlooking the specific promises to David’s Son, have Christ now in the enjoyment of the promised inheritance.
 
 >This Kingdom is declared to be 

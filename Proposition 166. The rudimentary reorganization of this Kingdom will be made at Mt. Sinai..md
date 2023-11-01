@@ -5,8 +5,9 @@ subjects:
   - advent stages
 id: 166
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ## Props Mentioned
 [[Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ.|121]] [[Proposition 130. The Kingdom is preceded by a translation of the living saints.|130]] 
 

@@ -3,9 +3,9 @@ pagecount: 14
 observationcount: 4
 id: 169
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >Our object under this heading is merely to show who the Bride is, and to explain what is meant by the marriage relation.
 
 >Obs. 1. The Bride is the city New Jerusalem, for a city is in prophetical language, (as well as in that of other writers), personified by a woman or virgin.

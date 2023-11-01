@@ -5,9 +5,9 @@ id: 171
 completion: 1
 subjects:
   - judgement
+tags:
+  - toc
 ---
-#toc
-
 >That, at the time this Kingdom is established and during its continuance, the saints will be under the special influence and power of the Spirit, is clearly taught in many predictions. Even many of our opponents frankly admit that the Millennial descriptions can never be realized without a remarkable, astounding and even miraculous outpouring of the Spirit, exceeding everything that the world has ever witnessed.
 
 >we cordially adopt the doctrine that the Holy Spirit is the renewer and sanctifier, through the truth, of all who are redeemed, and that such renewing influences are necessary unto salvation.

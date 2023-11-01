@@ -7,9 +7,9 @@ subjects:
   - harvest
 id: 108
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 ### Obs 3
 
 #### Tares and Wheat 

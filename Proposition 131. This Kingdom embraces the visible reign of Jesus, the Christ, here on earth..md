@@ -3,9 +3,9 @@ pagecount: 12
 observationcount: 8
 id: 131
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >the entire analogy of prediction demands a visible reign.
 
 >Obs. 1. So distinctly is this taught that no Jew, no Christian believer, no one who read the Scriptures doubted this, until the Alexandrian system evolved a series of doctrines, under the notion of exalting the truth and the Son, in which the throne promised to David’s Son was transformed into a throne in the third heaven.

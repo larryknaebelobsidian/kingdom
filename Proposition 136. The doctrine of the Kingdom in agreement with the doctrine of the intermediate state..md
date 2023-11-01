@@ -5,9 +5,9 @@ subjects:
   - intermediate state
 id: 136
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >. . . the Scripture statements clearly and unmistakably teach a *detention* of the saints from the promised inheritance and reward.
 >p. 394 Vol. 2 Prop. 136
 

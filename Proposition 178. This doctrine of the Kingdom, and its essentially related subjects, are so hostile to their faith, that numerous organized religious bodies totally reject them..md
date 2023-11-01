@@ -3,9 +3,9 @@ pagecount: 12
 observationcount: 12
 id: 178
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >Obs. 1. While in the aggregate Pre-Millenarians form a respectable body, and are found (as e.g. evidenced in the Proph. Conferences in England and America) in various denominations, yet in comparison with the immense body which rejects our doctrine they form a small minority, thus according with the Spirit’s prediction.
 
 >Obs. 3. Ecclesiastical bodies in their general meetings totally ignore the commanded posture of watching.

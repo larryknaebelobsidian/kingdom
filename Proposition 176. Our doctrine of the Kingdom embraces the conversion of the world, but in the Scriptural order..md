@@ -5,8 +5,9 @@ subjects:
   - nations
 id: 176
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ## Props Mentioned
 [[Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned.|18]] [[Proposition 86. The object or design of this dispensation is to gather out these elects to whom, as heirs with Abraham and his seed, Christ, this Kingdom is to be given.|86]] [[Proposition 87. The postponement of the Kingdom is the key to the understanding of the meaning of this dispensation.|87]] [[Proposition 78. The early church doctrine was revived after the Reformation.|78]] [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.|183]] [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.|171]] [[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.|154]] [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.|156]] 
 

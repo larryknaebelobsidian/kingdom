@@ -5,9 +5,9 @@ subjects:
   - 144,000
 id: 179
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >It is a sad fact that many persons not being able to discriminate between truth and error, reject both because they happen to be thus connected in the faith of some denomination or sect.
 
 ### Christadelphians

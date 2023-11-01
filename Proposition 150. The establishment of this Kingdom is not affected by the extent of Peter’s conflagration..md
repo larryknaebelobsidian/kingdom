@@ -6,9 +6,9 @@ subjects:
   - new heavens new earth
 id: 150
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >Obs. 1. As stated in preceding Proposition, the language of Peter was in accordance with the views of the Jews.
 
 >The proof is, that all the Jewish converts and churches, as far as we know, never supposed that this passage controverted such an opinion. Instead of being a stumbling-block in the way, this passage was thought to be confirmatory of their belief of the dreadful fire which should devour the adversaries (Dan. 7:10, 11, “fiery stream,” “the burning flame”), when the Messiah would come.

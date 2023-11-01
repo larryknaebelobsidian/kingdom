@@ -3,8 +3,9 @@ pagecount: 4
 observationcount: 7
 id: 106
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ### The force of the temptation
 >the force of the temptation: 
 >1. the first temptation is based on the actual existence of hunger and of real power lodged in the Christ; 

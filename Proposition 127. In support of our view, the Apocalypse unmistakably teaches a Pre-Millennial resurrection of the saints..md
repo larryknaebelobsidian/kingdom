@@ -6,9 +6,9 @@ subjects:
   - advent stages
 id: 127
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 ## Props Mentioned
 [[Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.|75]] [[Proposition 77. The doctrine of the Kingdom, as held by the early church was finally almost exterminated under the teaching and power of the Papacy.|77]] [[Proposition 78. The early church doctrine was revived after the Reformation.|78]] [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.|134]] 
 

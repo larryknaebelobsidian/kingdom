@@ -3,8 +3,9 @@ pagecount: 7
 observationcount: 5
 id: 140
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ### A Jewish idea
 >Obs. 1. The student will notice how the Jewish idea is presented in Matt. 24:3, where the disciples asked concerning “the end of the world.” (1) Almost every commentator frankly admits that the word translated “world” is in the original “age” or “dispensation.” To the critic or the Biblical investigator, there is no question respecting its reference to “the ending of the age.” For, as is well known, the Jews expected under the Messiah (who should abide forever John 12:34) such great changes that they looked for a termination of the present, and the introduction of a new order or arrangement of things under Him. Hence the pertinency of the disciples’ question, being in accord with the current views on the subject. (2) This is made decisive by their uniting, just as the Jews did, with the ending of the age the coming of the Messiah. The coming and the ending of the age were inseparably connected in the Jewish mind. The reader will also notice that Jesus in His reply gives not the slightest hint of their being mistaken, but proceeds to answer the questions as legitimate. This Jewish usage is also seen in Heb. 9:26, where Christ is said to have come, to make a sacrifice for sin, at the conclusion, ending of the preceding dispensation or age, then called “The end of the world,” or ages. (Comp. 1 Cor. 10:11.) The same is found in the promise of Christ, Matt. 28:20, to be with His people “unto the end of the world” or age—that is, down to the very close of this dispensation. Some have confined this to the Jewish age ending at the destruction of Jerusalem, but united as it is with the gospel preaching, etc., it seems rather to apply to the present dispensation. The ending of the age, to usher in another and more glorious Messianic one, is a Jewish conception which has Scriptural foundation and inspired warrant for its adoption.
 ### Jesus taught the end of the age

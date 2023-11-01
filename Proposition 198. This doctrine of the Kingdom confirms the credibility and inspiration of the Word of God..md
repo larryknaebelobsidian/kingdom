@@ -5,10 +5,9 @@ subjects:
   - inspiration
 id: 198
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
-
 >Notice: 
 >(1) the Abrahamic covenant out of which arises the Kingdom; 
 >(2) the Theocracy in its initiatory form; 

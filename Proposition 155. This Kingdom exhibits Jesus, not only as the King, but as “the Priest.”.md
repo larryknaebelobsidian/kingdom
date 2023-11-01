@@ -3,9 +3,9 @@ pagecount: 6
 observationcount: 16
 id: 155
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >In the restored Theocracy this priesthood is represented differently from that one once connected with it. The High-Priest and the king were separate personages, but to preserve unity in the coming Theocracy, the priesthood and kingship are united in the same Person. Hence, the Messiah is designated a Priest as well as a King in His official relationship as the Theocratic Head.
 
 >Obs. 1. The High-Priest was God’s representative on earth.

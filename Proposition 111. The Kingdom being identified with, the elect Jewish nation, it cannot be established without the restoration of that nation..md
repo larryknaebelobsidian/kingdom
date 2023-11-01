@@ -3,8 +3,9 @@ pagecount: 7
 observationcount: 6
 id: 111
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ### Unconditional promises of restoration
 >Obs. 1. The only objection of force that can be urged against our view is, that these promises of restoration are conditional, but this has been met under Props. 18 and 46-52.
 >...

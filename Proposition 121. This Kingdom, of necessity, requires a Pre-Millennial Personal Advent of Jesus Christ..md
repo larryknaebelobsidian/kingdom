@@ -3,9 +3,9 @@ pagecount: 38
 observationcount: 14
 id: 121
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 ## Props Mentioned
 [[Proposition 120. This Kingdom with its Millennial blessings can only be introduced through the power of God in Christ Jesus.|120]] 
 ### Notice A few considerations

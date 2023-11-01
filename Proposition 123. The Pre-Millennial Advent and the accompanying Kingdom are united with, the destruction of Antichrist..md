@@ -5,8 +5,9 @@ id: 123
 completion: 1
 subjects:
   - antichrist
+tags:
+  - toc
 ---
-#toc
 Legacy Standard Bible 
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)

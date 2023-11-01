@@ -3,9 +3,9 @@ pagecount: 7
 observationcount: 11
 id: 200
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >When the Theocracy was first established, the earthly Ruler (i.e., God acting as such) was separate (i.e. in personality) from the subordinate human ruler (as e.g. God was separate and distinct from the subordinate ruler David), but in this revived form it is God’s Purpose to have both joined, firmly united in the same person. This wonderful Plan proposes that there shall be a real Son of David united and identified with the Godhead, thus constituting Him just such a Ruler as a ‘perfected Theocratic Kingdom on earth should possess to make it powerful and absolute, related both to God and man.
 
 >Obs. 1. This again brings out prominently the doctrine respecting the Person of Christ—a significant one too as the day is approaching.

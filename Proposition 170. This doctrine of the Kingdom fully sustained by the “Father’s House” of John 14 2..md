@@ -3,9 +3,9 @@ pagecount: 11
 observationcount: 7
 id: 170
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >It is important to consider this Scripture referred to, since it is supposed by many to form an objection to our doctrine of the Kingdom; whereas correctly apprehended according to the analogy of Holy Writ, it forms an additional proof in behalf of our position.
 
 ### Extravagant interpretations

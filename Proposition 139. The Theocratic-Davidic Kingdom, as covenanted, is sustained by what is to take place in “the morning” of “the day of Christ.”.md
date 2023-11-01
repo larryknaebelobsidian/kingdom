@@ -3,13 +3,11 @@ pagecount: 6
 observationcount: 5
 id: 139
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >We now come to one of those beautiful, most forcible evidences of the truthfulness of our position, which *no other theory* can present. For, the Divine Spirit, taking *part* of the phrase “the day of the Lord,” etc., viz., *the morning* or introductory of that day, allies with it such events, identified fully with the Millennial era, that the student can be at *no loss* to distinguish and locate the period of time intended. “*The morning*” is so widely different in blessing, judgment, etc., from the beginning of this present dispensation, that *no comparison* can be instituted between them. The fact, too, that this figure of “*the morning*?’ is employed by writers separated by ages; that they coincide in attributing to it the same results; that they preserve a wonderful unity in the use of it, establishes us the *more firmly* in a doctrine universally received by the Early Church.
 >p. 414 Vol. 2 Prop. 139
-
-
 
 >The Millennial day is introduced by the personal coming of Jesus. To perfect this figure of “*the morning*,” if it alludes to the beginning of the same period of time, it would be highly appropriate, if thus dependent on Christ’s Coming, to designate Him either as *the Morning Star* or as *the Sun* ushering in this day. This also is done to prove to us, if we will but accept of it, that this coming is *the real, veritable coming of the person* called “*the Star*” and “*the Sun*,” who shines forth, not through others, but, in His own proper effulgence. It is therefore *with pleasure* that we read in “the last words of David,” that (2 Sam. 23:1-4) “there shall be a Just One ruling over men, ruling in the fear of God; *as the light of the morning shall He arise, the Sun of an unclouded morning*, shining after rain upon the tender grass of the earth.” Night disappears when the sun comes, so this “night” shall fade away when “the Sun of an unclouded morning” arises, ushering in *a glorious day*. Hence Jesus is styled also “*the bright and morning star*,” “*the Day Star*,” because His coming shall be the sure sign of *the dawning* of the foretold morning. He is not merely called such owing to the glory of His person or the splendor of His appearing, but because He reveals Himself *in the early morning*. For, Hos. 6:3,“*His going forth is prepared as the morning*”
 >p. 414-415 Vol. 2 Prop. 139 Obs. 2

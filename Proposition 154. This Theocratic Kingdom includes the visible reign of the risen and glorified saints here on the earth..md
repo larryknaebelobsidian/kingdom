@@ -6,8 +6,9 @@ subjects:
   - translation
 id: 154
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ## Props Mentioned
 [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.|171]] 
 

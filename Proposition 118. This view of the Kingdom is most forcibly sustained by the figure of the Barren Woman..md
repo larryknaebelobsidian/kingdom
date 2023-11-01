@@ -3,9 +3,9 @@ pagecount: 11
 observationcount: 16
 id: 118
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >Who is this “*barren woman*”? The definite answer is given by the entire scope and order of the prediction. For the present, we reply: It is the Jewish nation as the covenanted elect nation, or, if the reader chooses, Jerusalem as the type of the nation, its chief representative, the nation itself being thus designated.
 >p. 131 Vol. 2 Prop. 118 Obs. 2
 

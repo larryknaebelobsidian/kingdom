@@ -3,8 +3,9 @@ pagecount: 7
 observationcount: 14
 id: 117
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ### God's perfect government - fully consummated
 >Obs. 1. This is a Theocracy in deed and in truth, for in this reorganized Kingdom we find the Theocratic idea—God’s idea of a perfect government —fully consummated.
 ### Fulfills all the details of the prophets

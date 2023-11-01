@@ -6,9 +6,9 @@ subjects:
   - resurrection
 id: 153
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 ### Transfiguration is a representation of the Kingdom in some of its aspects
 >The transfiguration is thus regarded as a type of the Saviour’s future glory in His Kingdom.”
 >Obs. 1

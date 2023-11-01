@@ -5,9 +5,9 @@ id: 181
 completion: 1
 subjects:
   - advent stages
+tags:
+  - toc
 ---
-#toc
-
 >illustrative of the attitude of the Church at the Sec. Advent.
 >Obs. 1
 

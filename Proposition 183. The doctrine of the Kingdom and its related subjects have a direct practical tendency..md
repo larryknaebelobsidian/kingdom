@@ -3,8 +3,9 @@ pagecount: 15
 observationcount: 12
 id: 183
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ### Affects interpretation of the Bible
 >Obs. 2. Its decisive and far-reaching influence is seen in the fact that it materially affects the interpretations of the Bible
 ### Eschatology

@@ -7,9 +7,9 @@ subjects:
   - tribulation
 id: 163
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 ## Props Mentioned
 [[Proposition 115. The Kingdom is not established without a period of violence or war.|115]] [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.|123]] [[Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth.|147]] [[Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.|160]] [[Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown.|161]] [[Proposition 162. This Kingdom will be preceded by a fearful time of trouble both in the Church and the World.|162]] [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.|166]] 
 
