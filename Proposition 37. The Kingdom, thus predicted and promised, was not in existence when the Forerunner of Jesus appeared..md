@@ -3,9 +3,9 @@ pagecount: 3
 observationcount: 12
 id: 37
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >Many books positively assert that the covenanted Kingdom of God continuously existed, subject only to some changes. Eminent men (whom we shall largely quote) declare the same, and make the church (after the overthrow or the Theocratic-Davidic Kingdom) its continuation. They, however, have not adduced a single direct passage of Scripture in.support of their theory; and the facts, as already stated, all clearly prove the contrary.
 
 >Obs. 1. The Theocratic-Davidic Kingdom is the Kingdom of God; this has been proven. Now this Kingdom was fallen, and it continued thus down to John the Baptist.

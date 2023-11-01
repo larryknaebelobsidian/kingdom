@@ -3,9 +3,9 @@ pagecount: 2
 observationcount: 2
 id: 28
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >According to Samuel’s statement, God pardons the nation on the conditions that it still, with the king included, acknowledges him as the continuous Supreme Monarch, and that the king chosen shall enforce the laws given by his superior in authority. In this entire transaction God’s theocratic rule is preserved intact. The earthly king was under certain imposed restrictions, and was threatened, in case of disobedience, with the displeasure of, and punishment from, the still recognized Civil Head of the nation. This was felt and freely confessed by Saul (1 Sam. 13:12, and 28:15), David (1 Sam. O: 20, and 7:23-26, etc.), Solomon (1 Kings 3:8, 9, and O:12-14, also ch. 8, etc.), and others.
 >p. 228 Vol. 1 Prop. 28
 

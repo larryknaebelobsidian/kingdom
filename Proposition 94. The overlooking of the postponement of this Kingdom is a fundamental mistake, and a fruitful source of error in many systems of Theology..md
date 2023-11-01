@@ -5,10 +5,12 @@ subjects:
   - postponement
 id: 94
 completion: 1
+tags:
+  - toc
 ---
 
 Proposition 94. The overlooking of the [[postponement]] of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.
-#toc
+
 
 >Obs. 1. This doctrine, noticed by, and influencing the faith and hope of the Primitive Church, is now, under spiritualizing and mystical ascendency, passed by
 

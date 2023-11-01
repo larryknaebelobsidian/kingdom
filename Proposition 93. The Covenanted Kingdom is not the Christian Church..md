@@ -3,9 +3,9 @@ pagecount: 12
 observationcount: 15
 id: 93
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 ### What is the church?
 >Obs. 1. The Christian Church is an association of believers in Christ, who, led by the same consciousness of God, truth and spirit, accept of the terms of salvation, repentance and faith, and continue in the use of the means of grace appointed by the Redeemer. It is an association exclusively for religious purposes, separate and distinct from civil or secular interests.
 

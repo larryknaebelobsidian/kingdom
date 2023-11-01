@@ -3,9 +3,9 @@ pagecount: 8
 observationcount: 11
 id: 100
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >The covenant forbids the idea to be entertained, for the Davidic covenant and the promises based on it, as we have shown, remain ‘unfulfilled, unrealized in the church. This Proposition is advanced in this form only to direct attention to the fact, that many writers affirm that the visible church itself is the kingdom. The arguments already advanced refute this notion, but leaving these to speak for themselves, we give some additional observations.
 
 >Obs. 2. The reader will notice, that the visibility of the Kingdom in the church is a matter fully admitted by a host of our opponents.

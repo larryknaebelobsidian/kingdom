@@ -6,9 +6,9 @@ subjects:
   - postponement
 id: 61
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >It has been shown that this kingdom belongs by promise and covenant to *the seed* of Abraham (Props. 29, 49); now, as the promises of God are sure (Props. 47, 52), this people, this very nation, *must be engrafted or incorporated* with this *elected seed* of Abraham. This is indispensable, for otherwise God’s *oath-bound* word would *fail* in its fulfilment. Bather than have so precious a word to fail, God is able, as we have seen, to raise up children unto Abraham even, if necessary, from the stones (Matt. 3:9); but instead of resorting to miraculous intervention to produce such a result, God raises up a seed unto Abraham *out of* the Gentiles by engrafting them through faith in the Christ, and *accounting them* as the children of Abraham by virtue of their Abrahamic justifying faith.
 >p. 396 Vol. 1 Prop 61
 ### Adoption

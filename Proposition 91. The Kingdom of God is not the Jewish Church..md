@@ -3,9 +3,9 @@ pagecount: 3
 observationcount: 8
 id: 91
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >Whatever churchly or religious organization existed among the Jews after the overthrow of the Kingdom, they themselves, as we have shown, did not regard the Kingdom of God as existing just prior to the First Advent.
 ### Jews did not realize they were living in the kingdom
 >Obs. 1. This Proposition in this form is the more necessary, since many writers spiritualizing this reign into “God’s reign in the heart,” “piety,” etc., endeavor to make out that the Kingdom was actually realized without the cognizance of the Jews, and in opposition to the first preaching.

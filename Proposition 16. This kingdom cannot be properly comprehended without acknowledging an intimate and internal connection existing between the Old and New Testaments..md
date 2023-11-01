@@ -3,9 +3,9 @@ pagecount: 6
 observationcount: 6
 id: 16
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >The doctrine of the kingdom is first taught by covenant, theocratic ordering, and prophecy in the Old Testament, and it is taken for granted in the New Testament as a subject derived from the Old Testament and well understood; for the Kingdom is preached without any appended explanation.
 ### Some authors depreciate the value of the OT
 >Obs. 1. This Proposition is the more needed, since some recent works (as e.g. Fairbairn On Prophecy p. 164, etc.) have made efforts to depreciate the value of the Old Test, as an instructor, telling us that it is far inferior to the New Test., that its light is dim and its utterances indistinct in comparison with the New, etc.

@@ -3,8 +3,9 @@ pagecount: 9
 observationcount: 7
 id: 23
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ### Accommodation Theory
 >Obs. 1. The attacks of Rationalistic criticism has induced the advocacy, by many, of the accommodation theory.
 ### Development Theory

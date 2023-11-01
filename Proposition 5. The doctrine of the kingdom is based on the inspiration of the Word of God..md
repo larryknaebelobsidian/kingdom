@@ -5,8 +5,9 @@ subjects:
   - inspiration
 completion: 1
 id: 5
+tags:
+  - toc
 ---
-#toc
 ## Props Mentioned
 [[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.|2]] 
 

@@ -3,9 +3,9 @@ pagecount: 13
 observationcount: 9
 id: 17
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 ### Obs. 6
 The ***note*** on observation 6 enumerates 43 ***reasons why the study of Prophecy is important***.
 p. 170 Vol. 1 Prop. 17 Obs. 6 note

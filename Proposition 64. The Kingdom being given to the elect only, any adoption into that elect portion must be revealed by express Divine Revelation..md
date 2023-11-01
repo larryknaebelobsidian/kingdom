@@ -5,9 +5,9 @@ id: 64
 completion: 1
 subjects:
   - postponement
+tags:
+  - toc
 ---
-#toc
-
 >No addition to, or continuation of, that elect portion to whom the Kingdom is alone promised (by way of inheritance), can be made without direction from God Himself.
 ### "Keys of the kingdom"
 >Obs. 1. It has already been shown (Prop. 30), how God, in order to vindicate His foreknowledge and purpose, revealed that Gentiles should participate in the blessings of the Kingdom. But the manner in which they should be introduced, was left unexplained. The indefinite nature of the predictions (as e.g. by Moses in Deut. 32) are now, in the light of fulfilment, become definite. But it was not so in the days of Jesus and His disciples; something was to be added to show how this incorporation could be effected, for with the special election of the one nation, it would have been presumptuous for any one to have joined others with it without due authority from God. Hence we find Jesus before His death promising the keys of the Kingdom of heaven to Peter, i.e. the authoritative knowledge by which that Kingdom could be gained. Owing to the excessive sinfulness of the nation in rejecting and killing the Messiah, the one key concerning the Jews (Acts 2:38), was given to Peter on the day of Pentecost, while the other key pertaining to the Gentiles was given to him later by special revelation (Acts 10:1-48).

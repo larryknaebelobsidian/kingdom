@@ -3,9 +3,9 @@ pagecount: 4
 observationcount: 6
 id: 39
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >The prevailing view, indorsed by a multitude of eminent theologians, is that John was ignorant of i.e., did not understand the nature of, the Kingdom he proclaimed.
 ### Any theory denying John's understanding of the kingdom is unworthy
 >Obs. 1. Any theory of the Kingdom which makes the first great preacher of the Kingdom—a preacher specially prepared, sent, and inspired—ignorant of the leading subject that he was delegated, specifically commissioned to announce, is not only open to the gravest suspicion, but ought to be rejected as unworthy of God.

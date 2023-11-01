@@ -3,9 +3,9 @@ pagecount: 19
 observationcount: 9
 id: 10
 completion: 1
+tags:
+  - toc
 ---
-
-#toc
 ### Undue reverence for human authority
 >Obs. 1. This Proposition in its definite statement is the more needed, since at the present day multitudes find themselves so fettered by an undue reverence for human authority, as presented in and through the church, that it is scarcely possible to get them to consider any subject in its true scriptural aspect.
 

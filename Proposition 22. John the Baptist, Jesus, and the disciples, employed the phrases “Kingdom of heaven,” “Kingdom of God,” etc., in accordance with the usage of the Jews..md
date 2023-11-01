@@ -3,9 +3,9 @@ pagecount: 3
 observationcount: 5
 id: 22
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >It is admitted by all authorities that this phraseology was current among the Jews, and was adopted by the first preachers of the Kingdom.
 ### From Daniel 7:13, 14
 >Obs. 1. The Prop, needs no proof, for the fact is self-evident. First is to be found the well-known expectations of the Jews based on a literal interpretation of the prophecies; next, these are summed up in the expressive phrases “Kingdom of heaven,” etc., taken, as numerous writers inform us, from Dan. 7:13, 14; finally, John, Jesus, and others take the very phraseology adopted by the Jews to designate a certain definite Kingdom, and use it without the slightest intimation or explanation of a change in its meaning; and this employment of the phrases, with a correspondent Jewish meaning attached, continued (as admitted by our opponents, e.g. Prop. 20, Obs. 3, n. 1) at least down (Acts 1:6) to the ascension of Christ.

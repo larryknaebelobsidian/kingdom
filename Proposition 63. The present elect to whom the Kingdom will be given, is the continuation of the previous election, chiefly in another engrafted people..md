@@ -6,9 +6,9 @@ subjects:
   - postponement
 id: 63
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >This follows from what has preceded, and is thus thrown into a Proposition to impress it upon the mind. The previous, and the present, election *is founded on the promises and oath* to Abraham.
 >p. 404 Vol. 1 Prop 63
 ### Similarities of the elect (Previous and Present)

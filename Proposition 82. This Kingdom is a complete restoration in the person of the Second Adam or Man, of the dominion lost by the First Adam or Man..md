@@ -3,8 +3,9 @@ pagecount: 5
 observationcount: 7
 id: 82
 completion: 1
+tags:
+  - toc
 ---
-#toc
 ### Announced by Psalmist and Paul
 >Obs. 1. What the dominion forfeited by sin was to be, is clearly announced, e.g. by the Psalmist and Paul.
 >...

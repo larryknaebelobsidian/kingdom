@@ -3,8 +3,9 @@ pagecount: 8
 observationcount: 5
 completion: 1
 id: 6
+tags:
+  - toc
 ---
-#toc
 >The whole Bible, whose leading theme is the kingdom, is grounded on the supernatural. Remove this, and you destroy, if not the book itself, the chief characteristic, the distinguishing excellency of the Scriptures.
 ### The Bible begins with the supernatural and natural in harmony
 >Obs. 1. The Word begins with the supernatural (the presence of God) and the natural in harmony.

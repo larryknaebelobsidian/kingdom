@@ -5,12 +5,12 @@ subjects:
   - covenant
 id: 49
 completion: 1
+tags:
+  - toc
+  - keyproposition
 ---
-#toc
-#keyproposition 
 [[Abrahamic Covenant]]
 [[Davidic Covenant]]
-
 ## I. THE ABRAHAMIC COVENANT
 There are 24 observations by Peters in this section.
 

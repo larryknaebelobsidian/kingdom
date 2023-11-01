@@ -7,9 +7,9 @@ subjects:
   - postponement
 id: 65
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >The nature of the Kingdom as covenanted, and the rejection of the Kingdom by the chosen nation (making such a gathering requisite), requires such an arrangement. The introduction of the faith principle, by which Abraham was justified before circumcision took place, to raise up children to Abraham, merely produces “the heirs,” who inherit the Kingdom. The elect are “the guests,” who are first all invited and furnished before the marriage feast takes place. The Kingdom is not given—in the sense of being actually realized—to them one by one as gathered, but when all are gathered.
 
 >Obs. 1. This final gathering of all the elect “from one end of heaven to the other,” at the period of inheriting the Kingdom, is mentioned, e.g. Matt. 24:31; Mark 13:27; 2 Thess. 2:1, etc.

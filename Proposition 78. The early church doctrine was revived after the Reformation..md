@@ -3,9 +3,9 @@ pagecount: 32
 observationcount: 36
 id: 78
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 ### Four various views of Chiliasts
 Obs. 1
 

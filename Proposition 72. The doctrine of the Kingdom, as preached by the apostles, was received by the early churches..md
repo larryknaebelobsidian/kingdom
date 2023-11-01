@@ -5,9 +5,9 @@ id: 72
 completion: 1
 subjects:
   - postponement
+tags:
+  - toc
 ---
-#toc
-
 >This is not only reasonable, but shown to be a fact, from the apostles having no occasion during their entire ministry to censure any orthodox believers or churches for misapprehending, or holding to a false view of, the Kingdom. The decided and convincing impression is made by the apostolic writings that these first Christian churches were not ignorant of—but correctly understood—the important and cardinal subject of the Kingdom.
 
 >Obs. 1. Let the student candidly consult the faith.of the early churches and see for himself what it was, viz.: that the intimations of Scripture, the statements of the Fathers, the concessions of Neander, Mosheim, and a host of others, and, in brief, all that we have on record of that period, conclusively proves that the doctrine held, both in Jewish and Gentile regions, was at first (during the First, Second, and greater part of the Third, Century,) that which we have defended.

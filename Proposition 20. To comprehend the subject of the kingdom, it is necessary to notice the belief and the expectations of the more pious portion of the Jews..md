@@ -3,8 +3,8 @@ pagecount: 7
 observationcount: 10
 id: 20
 completion: 1
+tags:
 ---
-#toc
 >This is a rule, covering doctrine, laid down by the ablest of writers;
 
 >Obs. 1. It is universally admitted by writers of prominence (e.g. Neander, Hagenbach, Schaff, Kurtz, etc.), whatever their respective views concerning the Kingdom itself, that the Jews, including the pious, held to a personal coming of the Messiah, the literal restoration of the Davidic throne and kingdom, the personal reign of Messiah on David’s throne, the resultant exaltation of Jerusalem and the Jewish nation, and the fulfilment of the Millennial descriptions in that reign.

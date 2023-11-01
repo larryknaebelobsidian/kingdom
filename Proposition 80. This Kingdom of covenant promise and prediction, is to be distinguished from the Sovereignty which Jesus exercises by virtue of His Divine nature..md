@@ -3,9 +3,9 @@ pagecount: 6
 observationcount: 8
 id: 80
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >This is distinctively shown by a simple fact (overlooked by the multitude) that the Kingdom is never promised to Him as “the Son of God” but as (the covenants and predictions demand it) “the Son of Man" or “the Son of David".
 ### Jesus is Lord over all in his divine nature
 >Obs. 1. It may be premised, in order to avoid misconception, that Jesus now in His Divine nature, in His Oneness with the Father, does exercise a dominion over all things. According to this nature He is Lord over all, and this is, in our estimation, most unequivocally taught in such passages as John 1:8; Col. 1:15, 19; Phil.’ 2:9,11; 1 Cor. 8:6; Rom. 11:36; Rev. 1:5-6, etc.

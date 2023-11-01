@@ -5,10 +5,11 @@ subjects:
   - covenant
 id: 46
 completion: 0.8
+tags:
+  - toc
 ---
 [[Abrahamic Covenant]]
 [[Davidic Covenant]]
-#toc
 
 NOTE: Scripture quotes from LSB  
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  

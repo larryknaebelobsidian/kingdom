@@ -3,9 +3,9 @@ pagecount: 14
 observationcount: 4
 id: 7
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >Miracles are not to be regarded simply as evidences of the truth —this it indeed subserves—but as necessary parts of revelation itself, evincing with a fulness, stronger than language can impress, that the supernatural is indispensable for the establishment of the kingdom, and that it will be exerted in miraculous power whenever required.
 ### Assurances that the kingdom will come as predicted
 

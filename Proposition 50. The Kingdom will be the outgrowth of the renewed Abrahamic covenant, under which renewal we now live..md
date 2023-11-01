@@ -5,9 +5,10 @@ subjects:
   - covenant
 id: 50
 completion: 1
+tags:
+  - toc
 ---
 [[Abrahamic Covenant]]
-#toc 
 
 There are 24 observations in this proposition.
 

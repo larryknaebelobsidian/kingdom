@@ -3,9 +3,9 @@ pagecount: 7
 observationcount: 8
 id: 81
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 >The kingdom, therefore, is pointedly in harmony with covenant and promise, predicted as bestowed upon “the Son of Man,” as e.g. Dan. 7:13.
 
 >The Infinite and the Finite, the God and the Man, the Absolute and the Relative, are united in this the most astonishing of all unions. We dare not separate what God has joined, and we declare, (1) that such a union is perpetual, and (2) that its foundation—overlooked by many writers—is in the Theocratic Plan as purposed (comp. Prop. 199). But while this is so, our argument, in accord with the expressed Divine Purpose, makes much of the human nature and the important part it is yet to take in Redemption.

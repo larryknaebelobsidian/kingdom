@@ -3,9 +3,8 @@ pagecount: 3
 observationcount: 5
 id: 13
 completion: 1
+tags:
 ---
-#toc
-
 ### Obs. 1
 
 > . . . God makes long and secret preparations for important events; . . .

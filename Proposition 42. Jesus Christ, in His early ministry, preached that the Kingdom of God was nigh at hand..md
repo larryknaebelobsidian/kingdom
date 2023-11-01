@@ -3,9 +3,9 @@ pagecount: 8
 observationcount: 13
 id: 42
 completion: 1
+tags:
+  - toc
 ---
-#toc
-
 ### Obs. 5
 >The simple, unvarnished narrative, as firmly held by the Primitive churches, tells us that the Kingdom preached as nigh *was postponed* to the Sec. Advent.
 >p. 268 Vol. 1 Prop. 42 Obs. 5
