@@ -4,6 +4,7 @@ observationcount: 10
 id: 20
 completion: 1
 tags:
+  - toc
 ---
 >This is a rule, covering doctrine, laid down by the ablest of writers;
 
