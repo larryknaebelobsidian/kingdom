@@ -1,3 +1,7 @@
+---
+title: the SECOND COMING BIBLE
+author: William F. Biederwolf
+---
 
 William F. Biederwolf
 
