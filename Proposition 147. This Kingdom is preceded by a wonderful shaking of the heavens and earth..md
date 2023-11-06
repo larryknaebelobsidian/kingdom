@@ -4,7 +4,7 @@ observationcount: 3
 subjects:
   - shaking
 id: 147
-completion: 0.1
+completion: 1
 tags:
   - toc
 ---
@@ -16,3 +16,13 @@ tags:
 >The re-established Theocracy under David’s Son introduces the Desire of all nations, bestows peace and prosperity, brings a glory to the Davidic and Lord’s house transcendently greater than the world has ever yet witnessed. But this can never be realized without the most extraordinary revolutions, the most unprecedented changes and convulsions, which are characterized as “a shaking of the heavens and earth” Jesus (Matt. 24:29; Mark 13:25; Luke 21:26), in accord with the general tenor of prophecy, predicts that “the powers of the heavens shall be shaken” which is linked with “distress of nations” “mourning of the tribes of the earthy” “men’s hearts failing them for fear, and for looking after those things which are coming on the earth” and “the Coming of the Son of man in the clouds of heaven.”
 >...
 >This shaking, too, as the connection shows, is for purposes of overthrow, utter destruction, and radical change; it is preliminary to the setting up of a Kingdom that cannot be moved, i.e. everlasting, ever-enduring.
+### Dr. Owen's sermon - dissolution of heaven and earth
+>Obs. 2. One of the best dissertations on this subject is that given by Dr. Owen in a sermon.
+>...
+>he then refers to the view of Paraeus, Grotius, etc., that this has reference to the dissolution of the heavens and earth at the last day, but argues that the things shaken are to be removed that the Kingdom of Jesus may be established, and pertinently inquires, taking such a sense as the ending of all sublunary things, what hindrance the material earth and heaven are to such an establishment, and concludes that the Kingdom will not be brought in until after the Sec. Advent or the judgment. He then enters into an interesting discussion, appealing to Hag. 2:6, 7, saying that “I will shake the heavens and the earth” and “I will shake all nations” is a pleonasm for 4 “will shake the heavens and the earth of all nations—making the “heavens of the nations” the political heights and glory, forms of government, etc., while the nations’ earth is the multitude of their people, their strength and power, whereby the heavens are supported.
+### Including physical marvels
+>Obs. 3. But while fully endorsing this view, that the great, important meaning of such phraseology is the subversion, overturning, and destruction of Kingdoms, etc., yet this does not forbid our entertaining the firm belief that these things will be accompanied by physical marvels, earthquakes, etc., which shall cause “men’s hearts failing them for fear,” etc.
+>...
+>when the most solemn crisis for the world comes, God will cause His Almighty energy to be displayed in an unusual manner in the material nature which is to be a participant in the glory following.
+>...
+>While it may be difficult, and even impossible (owing to this figurative use of language just designated), to tell in each individual case whether the fulfilment embraces a literal, physical, or moral, or civil, or political sign, yet such is the variety of expression, the attitude of man himself, the actual participation of the material heavens and earth (as will be shown in following propositions) in the changes then introduced, that the wisest and most profound students of the Word have unhesitatingly given their adhesion (see Prop. 174) to such a belief.
