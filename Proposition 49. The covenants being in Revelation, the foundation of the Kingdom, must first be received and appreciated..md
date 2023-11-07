@@ -12,7 +12,7 @@ tags:
 [[Abrahamic Covenant]]
 [[Davidic Covenant]]
 ## I. THE ABRAHAMIC COVENANT
-There are 24 observations by Peters in this section.
+### There are 24 observations by Peters in this section.
 
 >The covenant (see good remarks on the meaning of the word “covenant” by Barnes, Notes on Heb. 8:8, and 9:16) made with Abraham is found in Gen. 12:1-3, 7; 13:14-17; 15:4-21; 17:4-16; 22:15-18. 
 >
@@ -51,12 +51,12 @@ There are 24 observations by Peters in this section.
 p. 305 Vol. 1 Prop 49 Obs. 15
 
 ## II. THE SINAITIC COVENANT, MADE WITH ISRAEL AT MOUNT SINAI
-There are 2 observations by Peters in this section
+### There are 2 observations by Peters in this section
 
 ## III. THE DAVIDIC COVENANT
 There are 8 observations by Peters in this section
 
-### Obs. 1
+### The passage
 
 >Having already shown and proven (Props. 28, 31, 32) how the Theocratic element was incorporated with the Davidic line, which God (as the chief Ruler and so acknowledged) chose, attention is now called to the distinguishing covenant with David by which this union is made forever inseparable; and by which this union is to be specially manifested in the sight of, and for the blessings of, the world through a descendant of David’s. The covenant is found in 2 Sam, 7:10-16 (1 Chron. 17:11-14), “*The Lord telleth thee that He will make thee a house. And when thy days be fulfilled, and thou shalt sleep with thy fathers, I will set up thy seed after thee which shall proceed out of thy bowels, and I will establish His Kingdom. He shall build a house for my name, and I will establish the throne of His Kingdom forever. I will be His Father and He shall be my Son. If he commit iniquity I will chasten Him with the rod of men and with the strives of the children of men.’ But my mercy shall not depart away from Him, as I took it from Saul whom I put away before thee. And thine house and thy Kingdom shall be established forever before thee; thy throne shall be established forever.*"
 >p. 313 Vol. 1 Prop. 49 Obs. 1
@@ -64,17 +64,17 @@ There are 8 observations by Peters in this section
 > When we come to this Davidic covenant, this perpetuation of the Theocratic relationship with the house of David, how much we regret the lost books of Samuel, Gad, and Nathan on the life of David.
 > p. 313 Vol. 1 Prop. 49 Obs. 1 Note 2
 
-### Obs. 2
+### Not any descendent, only Christ
 
 >Learned and able men, forsaking the Primitive view and overlooking *the perpetuity* of this covenant, gravely tell us that Solomon and other descendants were here denoted; but we vastly prefer to let God explain His own language and the meaning intended. Thus, e.g. Acts 2:30, “*David being a prophet, and knowing that God had sworn with an oath to him, that of the fruit of his loins, according to the flesh, He would raise up Christ to sit on his throne;*” and Paul, directly quoting this covenant (Heb. 1:5), applies it to Christ Jesus, asking, “*Unto which of the angels said He at any time.” . . . “I will be to Him a Father and He shall be to me a Son*.” The announcing angel (Luke 1:30-33) gives the same testimony that the covenant truly refers to Christ.
 >p. 313 Vol. 1 Prop. 49 Obs. 2
 
-### Obs. 3
+### David's understanding
 
 >How did David himself understand this covenant? This is best stated in his own language. Read e.g. Ps. 72, which describes a Son *infinitely superior* to Solomon; reflect over Ps. 132, and after noticing that “*the Lord hath sworn in truth unto David, He will not turn from it; of the fruit of thy body will I set upon thy throne*” (which Peter, Acts 2:30, 31, *expressly* refers to Jesus); consider the numerous Messianic allusions in this and other Psalms (89th, 110th, 72d, 48th, 45th, 21st, 2d, etc.), so regarded and *explicitly* quoted in the New Test, by inspired men; ponder the fact that David calls Him “*my Lord*,” “*higher than the kings of the earth*,” and gives Him a position, power, dominion, immortality, and perpetuity, that *no mortal King* can possibly attain to, and most certainly we are not wrong in believing that David himself, according to the tenor of the covenant “*thy Kingdom shall be established forever before thee*” expected to be in this Kingdom of his Son and Lord both to witness and experience its blessedness (so Storrs, *Diss. on Kingdom*, and many others).
 >p. 314 Vol. 1 Prop. 49 Obs. 3
 
-### Obs. 4
+### Divine-human
 
 >The Prophets following, had a similar understanding of this divine-human disposition or ordering, by which David’s Son would *personally, through David’s Kingdom*, bestow the blessings of perfected Redemption. Thus e.g. Isa. 9:7, Jer. 23:5, 6, and 30:9, and 33:15-26, etc. (comp. Props. 21, 31, 33, 68, 122, etc.).
 >p. 314 Vol. 1 Prop. 49 Obs. 4
@@ -102,7 +102,7 @@ But they shall be a slave to Yahweh their God and David their king, whom I will 
 Jeremiah 33:15-26
 15 In those days and at that time I will cause a righteous Branch of David to branch forth; and He shall do justice and righteousness on the earth. 16 In those days Judah will be saved, and Jerusalem will dwell in security; and this is _the name_ by which she will be called: Yahweh is our righteousness.’ 17 For thus says Yahweh, ‘David shall not have a man cut off from sitting on the throne of the house of Israel; 18 and the Levitical priests shall not have a man cut off from before Me who is to offer burnt offerings, to offer up grain offerings in smoke, and to perform sacrifices continually.’” 19 Then the word of Yahweh came to Jeremiah, saying, 20 “Thus says Yahweh, ‘If you can break My covenant for the day and My covenant for the night, so that day and night will not be at their appointed time, 21 then My covenant may also be broken with David My servant so that he will not have a son to reign on his throne, and with the Levitical priests, My ministers. 22 As the host of heaven cannot be counted and the sand of the sea cannot be measured, so I will multiply the seed of David My servant and the Levites who minister to Me.’” 23 And the word of Yahweh came to Jeremiah, saying, 24 “Have you not seen what this people have spoken, saying, ‘The two families which Yahweh chose, He has rejected them’? Thus they have spurned My people from being a nation any longer in their sight. 25 Thus says Yahweh, ‘If My covenant _for_ day and night _stand_ not, _and_ the statutes for heaven and earth I have not established, 26 then I would reject the seed of Jacob and David My servant, not taking from his seed rulers over the seed of Abraham, Isaac, and Jacob. But I will return their fortunes and will have compassion on them.’”
 
-### Obs. 5
+### Language of the covenant
 
 >Before censuring the Jews, as many do, for believing that Jesus would *literally restore* the Davidic throne and Kingdom, we must consider, in fairness, that they *were justified* in so doing by *the very language (Props. 4, 21, and 48) of the covenant*. It is incredible that God should in the most important matters, affecting the interests and the happiness of man and nearly touching His own veracity, clothe them in words, which, *if not true* in their obvious and common sense, *would deceive* the pious and God-fearing of many ages. We cannot, dare not (however upheld by many eminent names) entertain an opinion *so dishonoring both to God and His ancient believing children*. The Jews are abundantly defended in their faith by the covenant itself; the correctness and justness of their fondly entertained hopes appear from the particulars incorporated with it. 
 >(1) The words and sentences in their plain grammatical acceptation, do *expressly* teach their belief. This is denied by no one, not even by those who then proceed to spiritualize the language. Therefore already the Jews are excusable in believing what God so definitely declares (comp. Prop. 48).  
@@ -112,16 +112,16 @@ Jeremiah 33:15-26
 >(5) To leave no doubt whatever, and to render unbelief utterly inexcusable, God concisely and most forcibly presents His determination (Psl. 89:34): *“My covenant will I not break, nor alter the thing that is gone out of my lips.”* It would have been sheer presumption and blindness in the Jews to have altered (under the plea— modern—of spirituality) the covenant, and to have refused to accept of *the obvious sense* conveyed by the words; and there is *a heavy responsibility* resting upon those, who, even under the most pious intentions, *deliberately alter* the covenant words and attach to them *a foreign* meaning.
 >p. 315-316 Vol. 1 Prop. 49 Obs. 5
 
-### Obs. 6
+### Language of the apostles
 
 >The language of the apostles is eminently calculated to confirm the Jewish belief in *the literal fulfilment of the Davidic covenant*. Thus e.g. let any unprejudiced reader take the first sermons that were delivered after the day of Pentecost, addressed to Jews, and he cannot fail to see this feature. Peter (Acts 2:14-36), referring to the covenant promise that *Jesus Christ would sit on David’s throne*, correctly argues that the performance of this requires the resurrection of Jesus, which David also foretold as a prerequisite. He then informs the Jews that He did thus arise, that He ascended to heaven where He is exalted as Lord and Christ, waiting for the time when His foes shall be made His footstool, “whom (Acts 3:12-26) the heaven must receive *until the times of restitution of all things*” (keeping in mind the Jewish idea of restitution as *always associated* with the restored Davidic Kingdom) shall come, and then “He (God) shall send Jesus Christ” through whom this is effected. He exhorts them on the ground that they “*are children of the covenant which God made with our fathers*” to repent that they may become worthy participants in “*the times of refreshing*” (Jewish expression), which “*shall come from the presence of the Lord*.” Let any one read the covenant and prophecies directly bearing on it, and then place himself in the position (Prop. 20) of a Jewish hearer of Peter, with Jewish faith, expectations, and covenant relationship, and the decided impression will be made that the covenant is not altered but remains unchanged, that the death of Jesus combined with resurrection and exaltation only qualities Him the better to meet the conditions .Of the covenant, and that through this resurrected Jesus, when *the time appointed* by the Father arrives, *this covenant will be verified*.
 >p. 317-318 Vol. 1 Prop. 49 Obs. 6
 
-### Obs. 7
+### Early church view
 
 >This is confirmed by the fully admitted early church view on the subject. Let the reader pause and reflect, *how it comes*, if the prevalent modern notion of the covenant is correct, that the early Christians (who had the advantages of apostolic, inspired teaching, or were close to it) *held to the grammatical sense of the covenant* and fully believed with the Jews that *the Messiah would come* (again, as to Jesus) *to restore the Davidic throne and Kingdom*? Upon what supposition can it be satisfactorily explained, excepting the one that they were *correct*.
 >p. 318 Vol. 1 Prop. 49 Obs. 7
-
+### Order of fulfillment
 >Having called attention to the covenant and its literal fulfilment, it may be suitable to present the order of fulfilment as given by David himself. Necessarily brief and abrupt, so as not to conflict with the free agency of man, it is a sublime vindication of David’s inspiration, the perpetuity of the covenant, and its ultimate literal realization.
 >p. 318-319 Vol. 1 Prop. 49 Obs. 8
 
