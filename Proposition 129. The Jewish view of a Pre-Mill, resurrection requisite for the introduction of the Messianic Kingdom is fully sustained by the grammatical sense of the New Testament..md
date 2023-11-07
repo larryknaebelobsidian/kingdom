@@ -4,7 +4,7 @@ observationcount: 4
 subjects:
   - resurrection
 id: 129
-completion: 0
+completion: 1
 tags:
   - toc
 ---
