@@ -93,7 +93,7 @@ tags:
 #### The Death of Jesus
 #### The Resurrection of Jesus
 
-### Obs. 6 - Jesus failed to setup the Kingdom as promised in the OT
+### Jesus failed to setup the Kingdom as promised in the OT
 #### Postponement
 >The longer the postponement the more cumulative the evidence, seeing that eighteen centuries of continuous fulfilment of introduced change *only increases* the display of Christ’s wonderful foreknowledge.
 >p. 485 Vol. 3 Prop. 198 Obs. 6 

@@ -86,9 +86,6 @@ My view, before reading Peters, is that the Bible word "rapture" only applies to
 >Again, critical writers in investigating 2 Thess. 2:2 have shown that the word translated “is at hand” (in the phrase “the day of Christ (or Lord) is at hand”) means, correctly rendered, “is come or “has come,” i.e. is something already present, and not something still future. This correctly explains the trouble and alarm of the Thessalonian brethren, who were certainly not afraid of “the blessed hope,” which Paul says they waited for (1 Thess. 1:10), and for which they were prepared (1 Thess. 2:19 and 3:13, and 5:4, 5), but apprehending that “the day of Christ” had already come, and they not having experienced the promised translation, and their pious dead being still with them without an experienced resurrection, they were troubled and distressed at the thought. Those brethren with hearts full of love for the Saviour were not so fearful that they would desire and pray (as multitudes now) that the blessed Lord should delay His Coming, but, in some way misapprehending the real state of affairs, they believed that the initiatory proceedings belonging to the day of Christ had already commenced, and that they and their pious dead were left without realizing the exceeding precious promises given to them. This simple change in a single word, supported too by the strongest of evidence, explains not only the cause of the Thessalonians’ trouble (which Paul proceeds to remove by showing that an apostasy must first come to develop into the predicted Antichrist, implying that such an apostasy with its result necessarily required time, still in the future, before “the day of Christ” came), but throws much light, corroborative, on the subject of the resurrection and the translation of the saints. For, to cause such trouble they must have believed that” the day of Christ” would be inaugurated by preliminaries unseen by the world, and that the resurrection and translation would both be invisible, and they, not participating were doomed to terrible tribulation, or that the predictions were false.
 >p. 316-317 Vol 2 Prop. 130 Obs. 1
 
-
-
-### Obs. 2
 ### FOR and WITH
 Jesus coming "for or in behalf" of His saints (1 Thess. 3:14-17; 1 Cor. 15:51,52) and Jesus coming "with all" His saints (Zech. 14:5; Rev. 19:14; 1 Thess. 3:13; Jude 14,15)
 
@@ -100,32 +97,28 @@ peaceful Lk. 17:26-30; Mt. 24:36-39; 1 Th. 5:3||war,distress Zech. 14; Rev. 19, 
 first-fruits||general harvest
 
 
-### Obs. 3
+### Vultures
 Luke 17:34-37 - Translation
 
 eagles/vultures - saints
 body - followers of the antichrist
 
-### Obs. 4
+### Partial
 ### ***One class of believers kept from the great tribulation and another class goes into it.***
 
 Rev 7 - 144,000 - note: Peters says this 144,000 is a different group than the 144,000 of chapter 14
 
 Rev 7 - great multitude from every nation
 
-### Obs. 5
+### Hiding
 > "hiding of the saints when this time of trouble, this storm of persecution and fury bursts upon the Church and world" (p. 325 Vol 2)
 
-### Obs. 6
 ### Translation will be unwitnessed but known to the nations.
 
 > "It is likely, however, from the consultation of the wicked against them, that while the removal is allowed it will be attributed to natural causes, or to a concerted movement, and that all reference to its supernatural occurrence will be stoutly denied" (p. 327 Vol 2)
 
 > "In all probability, "the sign of the Son of Man" (Matt. 24:30) will be something connected with this translation" (p. 327 Vol 2)
 
-
-
-### Obs. 7
 ### Multiple Translations
 
 > "the astonishing [[removal of certain chosen ones]], accounted worthy, owing to their distinctive faith in God's promises, to escape" (p. 327 Vol 2)
@@ -136,15 +129,13 @@ Rev 7 - great multitude from every nation
 
 > "The Church, then starting up with Abrahamic faith will recognize its chronological position, will see what is before it, and, energetically infused by fear and hope, prepare itself for the fearful ordeal through which it must pass. And we are assured that the Church in this contest, overpowered as she will be, will sustain the persecution with triumphant faith, feeling convinced from the events occurring and the time elapsed, that the Son of Man is even already present, waiting for the moment of direct interference." (p. 327-328 Vol 2)
 
-### ***Peters believes that the majority of Christians (but not all) will be [[left behind]] to experience the tribulation***
+***Peters believes that the majority of Christians (but not all) will be [[left behind]] to experience the tribulation***
 
 ### Restrainer
-### Obs. 8
 The Restrainer 2 Thess 2:6,7
 
 Peters suggests Theodoret's opinion is perhaps correct: "the decree of God's Providence"
 
-### Obs. 9
 ### Two Translations
 Peters believes there will be 2 translations: before ("[[the first-fruits]]") and after ("[[the harvest]]") the great tribulation (p. 329 Vol 2 )
 

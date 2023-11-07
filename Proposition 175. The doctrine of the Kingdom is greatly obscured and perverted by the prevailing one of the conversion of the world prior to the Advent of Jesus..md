@@ -38,9 +38,11 @@ The church is "a preparatory stage" to the ushering in of the glorious Messianic
 >It is remarkable that for the complete success of our argument *not one link*, essential to its perfection, is missing in the Scriptures.
 >p. 181 Vol. 3 Prop. 175 Obs. 5
 
-### Obs. 7 is a rebuttal against some key Scripture passages used by Whitbyans
+### Rebuttal against some key Scripture passages used by Whitbyans
+Obs. 7
 
-### Obs. 8 considers a few other anti-Whitbyan statements
+### A few other anti-Whitbyan statements
+Obs. 8
 - The Latter Confession of Helvitia(1566)
 - Olshausen
 - Nissen (*Lectures on Luther's Smaller Catechism*)
@@ -48,8 +50,10 @@ The church is "a preparatory stage" to the ushering in of the glorious Messianic
 - Dr. Marsh (*Mem.* by his daughter)
 - . . . other scholars
 
-### Obs. 9 presents 17 arguments against the Whitbyan theory
+### 17 arguments against the Whitbyan theory
+Obs. 9
 
-### Obs. 10 discusses other systems that adhere to the "conversion of the world" or similar.
+### Other systems that adhere to the "conversion of the world" or similar.
+Obs. 10
 
 

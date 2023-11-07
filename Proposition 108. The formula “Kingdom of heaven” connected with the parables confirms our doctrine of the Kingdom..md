@@ -10,8 +10,6 @@ completion: 1
 tags:
   - toc
 ---
-### Obs 3
-
 #### Tares and Wheat 
 [Matt. 13:24-30](https://read.lsbible.org/?q=matt+13%3A24-30)
 - the Kingdom that the Jews expected is to be introduced as follows; or the Kingdom of heaven that you anticipate requires the following
