@@ -4,7 +4,7 @@ observationcount: 4
 subjects:
   - covenant
 id: 47
-completion: 0.7
+completion: 1
 tags:
   - toc
 ---
@@ -39,3 +39,17 @@ Nor will I rebuke you.
 But My lovingkindness will not be removed from you,
 And My covenant of peace will not be shaken,”
 Says Yahweh who has compassion on you. - LSB
+### Jews were correct
+>Obs. 1. Hence it follows: that the Jews were not so grossly ignorant as many Gentiles now think; that they were correct in their apprehensions concerning the Messiah’s Kingdom being identified with the restored Davidic.
+>...
+>God will perform the promises made to Abraham, Isaac, Jacob, David, and the Prophets, respecting the Jewish nation.
+### View of the pre-First Advent pious
+>Obs. 2. Let the reader place himself in the period before the First Advent, with the Old Test, in his hands. Now what would be his belief in the Kingdom, with those covenants and prophecies, confirmed by oath and most expressive assurances? Surely it would be identical with that of the Jews themselves; it could not be otherwise, if there was faith in God’s Word and God’s oath.
+### In spite of the unbelief of some modern Jews
+>Obs. 3. The attitude of a portion of the modern Jews is to be regretted. Leavened with infidelity, they have lost all faith in the most precise and determinate utterances that can indicate the determination of God to verify His promises to the nation, and yet they profess to believe in this same God, in His veracity, etc.
+>...
+>(Lev. 26:44), “Yet for all that, when they be in the land of their enemies, I will not cast them away, neither will I abhor them, to destroy them utterly, and to break my covenant with them: for I am the Lord their God.” Whether they believe it or not, mercy follows them for the sake of the covenant, and mercy will yet verify that covenant in the history of the nation, for “their God” has sworn it.
+### Some writers push false "historical criticism"
+>Obs. 4. A class of writers has arisen, who, professing to be very critical, tell us that Abraham’s life, and indeed the whole Bible, must be subjected to “Historical Criticism.”
+>...
+>To this class, the solemnly covenanted promises of God and the assurances respecting the Kingdom are all idle dreams; men who believe and trust in them are self-deceived and fanatical; history that corroborates prophetic announcements is merely a coincidence; the faith of ages, sustained by personal experience and Providence, is nothing but a mistaken belief.
