@@ -13,7 +13,7 @@ tags:
 >- Hagenbach (*His. of Doctrines*, Vol. 1, sec. 212)
 >p. 110 Vol. 1 Prop. 9
 
-### Obs. 3
+### Scripture reveals truth
 
 > Increase of doctrinal knowledge does not consist in altering *the form* of doctrine, but in obtaining a clearer, more enlarged apprehension of *the unaltered* doctrine.
 > p. 113 Vol. 1 Prop. 9 Obs. 3
@@ -22,7 +22,7 @@ tags:
 >- Rev. Bernard (*Bampton Lectures,* "The Progress of Doctrine in the New Testament", Lec. 1)
 >p. 113 Vol. 1 Prop. 9 Obs. 3
 
-### Obs. 5
+### Scripture produces fruit
 
 > Prayerful study of the Scriptures will evidence itself, *not in profession, but in fruits.
 > p. 117 Vol. 1 Prop. 9 Obs. 5

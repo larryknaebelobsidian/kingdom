@@ -8,7 +8,7 @@ tags:
 ---
 ## Props Mentioned
 [[Proposition 70. The apostles, after Christ’s ascension, did not preach, either to Jews or Gentiles, that the Kingdom was established.|70]] [[Proposition 71. The language of the Apostles confirmed the Jews in their Messianic hopes of the Kingdom.|71]] [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.|72]] [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.|73]] [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.|74]] [[Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.|75]] [[Proposition 76. The doctrine of the Kingdom was changed under the Gnostic and Alexandrian influence.|76]] [[Proposition 77. The doctrine of the Kingdom, as held by the early church was finally almost exterminated under the teaching and power of the Papacy.|77]] [[Proposition 78. The early church doctrine was revived after the Reformation.|78]] [[Proposition 16. This kingdom cannot be properly comprehended without acknowledging an intimate and internal connection existing between the Old and New Testaments.|16]] 
-### Obs. 1
+### Literal grammatical interpretation is sound
 
 > I hold for a most infallible rule in expositions of the Sacred Scriptures, that where a literal construction will stand, the furthest from the letter is commonly the worst. There is nothing more dangerous than this licentious and deluding art, which changes the meaning of words, as alchymy doth, or would do, the substance of metals, making of anything what it pleases, and bringing in the end all truth to nothing.
 > -Hooker
@@ -30,7 +30,7 @@ tags:
 > The Jews, as is well known, while to a large degree holding to a literal interpretation (as e.g. in reference to a literal coming and kingdom of the Messiah, etc.), at the time of the First Advent had fallen more and more into a figurative and allegorizing interpretation, which culminated in the speculative Cabala.
 > p. 48 Vol. 1 Prop. 4 Obs. 1 note 1
 
-> I here once more repeat, what I have so often insisted on, that the Christian should direct his efforts toward understanding he so-called *literal sense of Scripture, which alone is the substance* of faith and of Christian theology, which alone will sustain him in the hour of trouble and temptation, and which will triumph over sin, death, and the gates of hell, to the praise and glory of God.  The allegorical sense is usually uncertain, and by no means safe to build our faith upon; for it depends for the most part on human opinion only, on which if a man lean he will find it no better than the Egyptian reed.  There Origen, Jerome, and similar of the Fathers *are to be avoided, with the whole of that Alexandrian school which abounds in* this species of interpretation.
+> I here once more repeat, what I have so often insisted on, that the Christian should direct his efforts toward understanding the so-called *literal sense of Scripture, which alone is the substance* of faith and of Christian theology, which alone will sustain him in the hour of trouble and temptation, and which will triumph over sin, death, and the gates of hell, to the praise and glory of God.  The allegorical sense is usually uncertain, and by no means safe to build our faith upon; for it depends for the most part on human opinion only, on which if a man lean he will find it no better than the Egyptian reed.  There Origen, Jerome, and similar of the Fathers *are to be avoided, with the whole of that Alexandrian school which abounds in* this species of interpretation.
 > -Luther
 > p.  48-49 Vol. 1 Prop. 4 Obs. 1 note 2
 
@@ -40,7 +40,7 @@ tags:
 > Unbelievers and semi-believers generally advocate that the construction of the Bible is like that of other books, but refuse (Bauer, etc.) to credit the fact that it is diverse from all other books in the authority and truths that it contains.  Our entire argument following shows that we hold it to be above and beyond all other books in the unity of supernatural and Divine things embraced. 
 > p.  49 Vol. 1 Prop. 4 Obs. 1 note 3
 
-### Obs. 2
+### Literal grammatical interpretation is old
 
 > Let the reader consider that the grammatical interpretation was for ages *the only one* used; and can a reason be given why it should suddenly be abandoned for another?
 > p.  49 Vol. 1 Prop. 4 Obs. 2
@@ -85,7 +85,7 @@ tags:
 > The student will not fail to observe that Protestant Confessions of Faith insist upon this grammatical sense . . .
 > p.  52 Vol. 1 Prop. 4 Obs. 2 note 2
 
-### Obs. 3
+### Attempt to spiritualize
 Two passages have been used to attempt to prove that the non-literal sense of interpretation is taught in the Scriptures.
 
 1 Cor. 2:14
@@ -107,7 +107,7 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > The fact is that, to induce the highest certitude, we must receive the authoritative letter as containing the truth, give it its logical force (through reason), and allow its intuitive influence (through a responding moral nature), dependent upon the Spirit that gave the truth, and upon our adaptability for its reception.  God's Word is true, whether men receive or reject it.
 > p.  55 Vol. 1 Prop. 4 Obs. 3 note 3
 
-### Obs. 4
+### Literal is intelligible
 
 > a revelation unintelligible is no revelation at all 
 > - Dr. Sprecher, *Groundwork of Theol.*, p. 1, ch. 5
@@ -117,7 +117,7 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > - Chillingworth (*Works*, vol. 1, p.231)
 > p.  56 Vol. 1 Prop. 4 Obs. 4 note
 
-### Obs. 5
+### Same rules
 
 > The interpretation of Scripture is to be conducted by the same rules applicable to the interpretation of a classical or profane author.
 > - Ernesti (*Inst. Interp. of the New Testament*)
@@ -133,7 +133,7 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > As in the perusal of other books, so in reading the Bible, there is no better general rule than that *the obvious meaning* is the true.
 > p.  57 Vol. 1 Prop. 4 Obs. 5 note 
 
-### Obs. 6
+### Understanding what is written
 
 > the Scriptures are of little use to those who understand them as they are written
 > - Origen (Porter's *Lec. Hom.*, p. 51)
@@ -142,7 +142,7 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > In addition: the extravagant claims of Swedenborg that he was set up as the true interpreter of the Word, is exclusively based on the notion that to him was, for the first time, given the secret key by the Creator himself, to unlock the Bible and portray its meaning; and this key, on examination, turns, only in a more scientific way, the old bolts in Origen's lock, now enlarged and reburnished.
 > p.  58 Vol. 1 Prop. 4 Obs. 6 
 
-### Obs. 7
+### Undermines the authority of the Bible
 
 > A departure from the literal sense has not only caused those immensely varied and antagonistic interpretations of the kingdom, but it has, in self-defence, forced able and pious man to a confession which ***undermines and destroys the authority of the Bible.***
 > p.  60 Vol. 1 Prop. 4 Obs. 7 
@@ -150,7 +150,7 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > Grammar, rhetoric, and history are violated for the sake of an idea, an "inner germ," and the most scholarly, learned men are pushing on, exultantly, the work.
 >  p.  62 Vol. 1 Prop. 4 Obs. 7 
 
-### Obs. 8
+### Not ultra-literalism
 
 > While urging a literal interpretation, we are, as already intimated, equally ***opposed to that ultra-literalism which makes no allowance for the figures of speech incident to all language.***
 > p.  63 Vol. 1 Prop. 4 Obs. 8 
@@ -158,12 +158,12 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > The simple truth is, that not a single Millenarian author, from the days of the apostles down, holds to such an opinion ; all of them, without exception, fully recognize symbols, types, and figures of speech, notice their peculiarities, and discriminate them from the strictly literal. It is *their plain, unanimous* statement that language must be interpreted by the laws which produce and regulate it: if symbolic, it is to be interpreted by the laws governing symbols; if typical, then by the laws underlying types; if figurative, then by the rules controlling figures; and if rigidly literal, then by the laws of unfigurative speech. 
 > p.  63 Vol. 1 Prop. 4 Obs. 8
 
-### Obs. 9
+### Attempt to raise non-prophetical portions above others
 
 > It has become quite fashionable with recent writers, in their efforts to find arguments against us, to practically lower the prophetical portion of the Word by placing the non-prophetical of the New Testament in the scale as far superior to the former, etc. (so e.g. Waldegrave, comp. Lord's *Journal*, Ap. 1857)
 > p.  64 Vol. 1 Prop. 4 Obs. 9
 
-### Obs. 10
+### Important doctrines must not be solely based on figurative language
 
 > In our Introductions to the Bible it is a generally admitted principle that no important doctrine should be solely based on figurative language ; that to give it certainty it ought to be founded on the literal meaning of the words.  This is a necessity, notwithstanding the theorizing, so much impressed, that in every promulgation of doctrine, men will instinctively feel that if they can secure the literal sense in their favor, *the strongest possible proof* is thus obtained. Why reject this when we come to the doctrine of the kingdom?  Surely, if there is a doctrine in the Bible that ought to be sustained by *the clearest evidence*, it is the leading one of the kingdom.  This is abundantly provided, if we will only consider and receive it.  Its simplicity should not deter us; this feature ought rather to recommend it to our special notice.  More than this : if we reject it we will be held responsible for the same, just as Jesus held the Jews accountable for the literal understanding of the Scriptures. 
 > p.  65 Vol. 1 Prop. 4 Obs. 10
@@ -174,7 +174,7 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > Ellicott (*Aids to Faith*, Essay 9) well says: "The true and honest method of interpreting the Word of God -- *the literal, historical, and grammatical* -- has been recognized in every age, and the results are seen in the agreement of numberless passages of importance that may be found in expositors of all periods,"
 > p.  66 Vol. 1 Prop. 4 Obs. 10 note
 
-### Obs. 11
+### Normal rules of language used to determine the intent of the author
 
 > An observance of the rules common to language, practical sense, a due regard to the analogy of Scripture and Faith, an observance of the historical application in reference to opinions and views held, an unprejudiced mind and a heart willing, irrespective of pre-conceived ideas, to bring forth the real meaning and intent of the writer -- these, in connection with a personal experience of the truth, are requisites to constitute a good interpreter.
 > p.  67 Vol. 1 Prop. 4 Obs. 11 note

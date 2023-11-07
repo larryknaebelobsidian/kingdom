@@ -24,12 +24,12 @@ Know this first of all, that no prophecy of Scripture comes by one’s own inter
 >. . .1 Cor. 2:13; Mark 12:26,36, and 13:11; Acts 1:16, and 2:4
   p. 74 Vol. 1 Prop. 5 Obs. 3 note 1
 
-### Obs. 2
+### Can only be known through revelation from God
 
 > The things pertaining to the kingdom contain facts, preparatory stages, historical connections, relations to the future, ideas above human capacity, that could not possibly have been known if God had not revealed them.  The kingdom is simple that which the Almighty designs to have accomplished as *the grand result* of the Divine economy.
 > p. 70 Vol. 1 Prop. 5 Obs. 2
 
-### Obs. 3
+### View of "inspiration"
 Some of the statements Peters makes in Observation 3 regarding [[Inspiration]] surprised me and and brushed contrary to my understanding of [[Inspiration]].
 
 > the extreme so strenuously contended for by some, that ***even the words themselves were inspired, is evidently burdening [[Inspiration]] with a load that is unnecessary.***
@@ -44,7 +44,7 @@ Some of the statements Peters makes in Observation 3 regarding [[Inspiration]] s
 > Taking such a view, ***it is not necessary to insist that every specific word or phrase or sentence is directly inspired***; that God gave no freedom to the writer in choice of language, and no latitude in the manner of conveying ideas.
 > p. 73 Vol. 1 Prop. 5 Obs. 3 - emphasis mine
 
-### Obs. 4
+### Guided by Holy Spirt free from error
 
 > we insist upon it that the apostles were fully and accurately acquainted with the doctrine of the kingdom, *i.e.*, as to its nature, and hence were qualified to teach it. Aside from their being specially called to preach the kingdom, this [[Inspiration]] influence bestowed upon them (*e.g.*, Luke 12:12, John 16:13, 14, 15, Luke 24:49, 1 Cor. 2:12,13, Eph. 3:4, 1 Pet. 1:12, etc.) would *most certainly* preserve them from error on this great, leading subject of the Bible.
 > p. 77 Vol. 1 Prop. 5 Obs. 4
