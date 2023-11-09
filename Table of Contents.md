@@ -59,7 +59,7 @@ Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 201
 [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.   ]]
 [[Proposition 46. The Kingdom anticipated by the Jews at the First Advent is based on the Abrahamic and Davidic Covenants. ]]  
 [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.   ]]
-[[Proposition 48 The Kingdom being based on the covenants, the covenants must be carefully examined, and (Prop. 4) the literal language of the same must be maintained.   ]]
+[[Proposition 48. The Kingdom being based on the covenants, the covenants must be carefully examined, and (Prop. 4) the literal language of the same must be maintained.]]
 [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.   ]]
 [[Proposition 50. The Kingdom will be the outgrowth of the renewed Abrahamic covenant, under which renewal we now live. ]] 
 [[Proposition 51. The relation that the Kingdom sustains to “the covenants of promise” enables us to appreciate the prophecies pertaining to the Kingdom.   ]]
