@@ -1,0 +1,1 @@
+![[Proposition 57. This Kingdom, was offered to the Jewish nation, but the nation rejected it.]]

@@ -1,0 +1,1 @@
+![[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]]

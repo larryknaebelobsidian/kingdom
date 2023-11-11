@@ -1,0 +1,1 @@
+![[Proposition 42. Jesus Christ, in His early ministry, preached that the Kingdom of God was nigh at hand.]]

@@ -1,0 +1,1 @@
+![[Proposition 71. The language of the Apostles confirmed the Jews in their Messianic hopes of the Kingdom.]]

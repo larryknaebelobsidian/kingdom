@@ -1,0 +1,1 @@
+![[Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation.]]

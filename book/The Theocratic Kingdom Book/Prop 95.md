@@ -1,0 +1,1 @@
+![[Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.]]

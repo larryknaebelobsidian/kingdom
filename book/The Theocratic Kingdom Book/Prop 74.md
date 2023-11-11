@@ -1,0 +1,1 @@
+![[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]]

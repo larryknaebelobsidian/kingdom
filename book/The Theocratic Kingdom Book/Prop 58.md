@@ -1,0 +1,1 @@
+![[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]]

@@ -1,0 +1,1 @@
+![[Proposition 44. The preaching of the Kingdom, being in accordance with that of the predicted Kingdom, raised no controversy between the Jews and Jesus, or between the Jews and His disciples and apostles.]]

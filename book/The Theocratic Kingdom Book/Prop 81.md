@@ -1,0 +1,1 @@
+![[Proposition 81. This Kingdom, thus covenanted, belongs to Jesus as “the Son of Man.”]]

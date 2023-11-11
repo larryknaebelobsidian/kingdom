@@ -1,0 +1,1 @@
+![[Proposition 60. This Kingdom of God is given, not to nations, but to one nation.]]

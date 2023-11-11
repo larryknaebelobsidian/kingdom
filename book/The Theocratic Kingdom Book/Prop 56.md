@@ -1,0 +1,1 @@
+![[Proposition 56. The Kingdom was not established during the ministry of Christ.]]

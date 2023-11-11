@@ -1,0 +1,1 @@
+![[Proposition 61. The Kingdom which by promise exclusively belonged to the Jewish nation, the rightful seed of Abraham, was now to be given to an engrafted people.]]

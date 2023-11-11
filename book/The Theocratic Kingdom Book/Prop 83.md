@@ -1,0 +1,1 @@
+![[Proposition 83. This Kingdom is given to the Son of Man by God’ the Father.]]

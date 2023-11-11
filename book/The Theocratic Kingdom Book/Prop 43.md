@@ -1,0 +1,1 @@
+![[Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.]]

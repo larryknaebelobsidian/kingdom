@@ -1,0 +1,1 @@
+![[Proposition 69. The death of Jesus did not remove the notion entertained by the disciples and apostles concerning the Kingdom.]]

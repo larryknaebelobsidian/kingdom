@@ -1,0 +1,1 @@
+![[Proposition 85. Neither Abraham, nor his engrafted seed have as yet inherited the Kingdom  hence the Kingdom must be something different from “piety,” “religion” and “God’s reign in the heart.”]]

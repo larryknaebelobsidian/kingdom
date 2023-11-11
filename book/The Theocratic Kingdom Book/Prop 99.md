@@ -1,0 +1,1 @@
+![[Proposition 99. The opinion that the church is the predicted Kingdom of Christ was of later origin than the first and second centuries.]]

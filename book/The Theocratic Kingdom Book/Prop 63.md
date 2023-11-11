@@ -1,0 +1,1 @@
+![[Proposition 63. The present elect to whom the Kingdom will be given, is the continuation of the previous election, chiefly in another engrafted people.]]

@@ -1,0 +1,1 @@
+![[Proposition 67. The Kingdom could not therefore have been set up at that time, viz.; at the First Advent.]]

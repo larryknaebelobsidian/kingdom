@@ -1,0 +1,1 @@
+![[Proposition 89. Christ, in view of this future Kingdom, sustains a peculiar relationship to the Church.]]

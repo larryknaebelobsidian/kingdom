@@ -1,0 +1,1 @@
+![[Proposition 52. The promises pertaining to the Kingdom, as given in the covenants, will be strictly fulfilled.]]

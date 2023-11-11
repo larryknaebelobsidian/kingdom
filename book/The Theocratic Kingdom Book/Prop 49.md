@@ -1,0 +1,1 @@
+![[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]]

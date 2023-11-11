@@ -1,0 +1,1 @@
+![[Proposition 66. The Kingdom that was nigh at one time (viz.  at the First Advent) to the Jewish nation, is now removed to the close of its tribulation, and of “the times of the Gentiles.”]]

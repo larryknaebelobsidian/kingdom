@@ -1,0 +1,1 @@
+![[Proposition 77. The doctrine of the Kingdom, as held by the early church was finally almost exterminated under the teaching and power of the Papacy.]]

@@ -1,0 +1,1 @@
+![[Proposition 78. The early church doctrine was revived after the Reformation.]]

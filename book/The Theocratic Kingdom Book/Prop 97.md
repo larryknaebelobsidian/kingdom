@@ -1,0 +1,1 @@
+![[Proposition 97. The various forms of Church government indicate that the Church is not the promised Kingdom.]]

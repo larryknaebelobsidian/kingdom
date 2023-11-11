@@ -1,0 +1,1 @@
+![[Proposition 59. This Kingdom of God, offered to the Jewish nation, lest the purpose of God fail, is to be given to others who are adopted.]]

@@ -49,5 +49,64 @@ longform:
     - Prop 39
     - Prop 40
     - Prop 41
+    - Prop 42
+    - Prop 43
+    - Prop 44
+    - Prop 45
+    - Prop 46
+    - Prop 47
+    - Prop 48
+    - Prop 49
+    - Prop 50
+    - Prop 51
+    - Prop 52
+    - Prop 53
+    - Prop 54
+    - Prop 55
+    - Prop 56
+    - Prop 57
+    - Prop 58
+    - Prop 59
+    - Prop 60
+    - Prop 61
+    - Prop 62
+    - Prop 63
+    - Prop 64
+    - Prop 65
+    - Prop 66
+    - Prop 67
+    - Prop 68
+    - Prop 69
+    - Prop 70
+    - Prop 71
+    - Prop 72
+    - Prop 73
+    - Prop 74
+    - Prop 75
+    - Prop 76
+    - Prop 77
+    - Prop 78
+    - Prop 79
+    - Prop 80
+    - Prop 81
+    - Prop 82
+    - Prop 83
+    - Prop 84
+    - Prop 85
+    - Prop 86
+    - Prop 87
+    - Prop 88
+    - Prop 89
+    - Prop 90
+    - Prop 91
+    - Prop 92
+    - Prop 93
+    - Prop 94
+    - Prop 95
+    - Prop 96
+    - Prop 97
+    - Prop 98
+    - Prop 99
+    - Prop 100
   ignoredFiles: []
 ---

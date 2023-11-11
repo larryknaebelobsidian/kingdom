@@ -1,0 +1,1 @@
+![[Proposition 86. The object or design of this dispensation is to gather out these elects to whom, as heirs with Abraham and his seed, Christ, this Kingdom is to be given.]]
