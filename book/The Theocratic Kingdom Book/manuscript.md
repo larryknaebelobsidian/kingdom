@@ -398,3 +398,239 @@ Proposition 206. This earth will yet witness the re-establishment of a glorious 
 ---
 
 ![[Proposition 41. The Kingdom was not established under John’s ministry.]]
+
+---
+
+![[Proposition 42. Jesus Christ, in His early ministry, preached that the Kingdom of God was nigh at hand.]]
+
+---
+
+![[Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.]]
+
+---
+
+![[Proposition 44. The preaching of the Kingdom, being in accordance with that of the predicted Kingdom, raised no controversy between the Jews and Jesus, or between the Jews and His disciples and apostles.]]
+
+---
+
+![[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]]
+
+---
+
+![[Proposition 46. The Kingdom anticipated by the Jews at the First Advent is based on the Abrahamic and Davidic Covenants.]]
+
+---
+
+![[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]]
+
+---
+
+![[Proposition 48. The Kingdom being based on the covenants, the covenants must be carefully examined, and (Prop. 4) the literal language of the same must be maintained.]]
+
+---
+
+![[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]]
+
+---
+
+![[Proposition 50. The Kingdom will be the outgrowth of the renewed Abrahamic covenant, under which renewal we now live.]]
+
+---
+
+![[Proposition 51. The relation that the Kingdom sustains to “the covenants of promise” enables us to appreciate the prophecies pertaining to the Kingdom.]]
+
+---
+
+![[Proposition 52. The promises pertaining to the Kingdom, as given in the covenants, will be strictly fulfilled.]]
+
+---
+
+![[Proposition 53. The genealogies of our Lord form an important link in the comprehension of this Kingdom.]]
+
+---
+
+![[Proposition 54. The preaching of the Kingdom by John, Jesus, and the disciples, was confined to the Jewish nation.]]
+
+---
+
+![[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]]
+
+---
+
+![[Proposition 56. The Kingdom was not established during the ministry of Christ.]]
+
+---
+
+![[Proposition 57. This Kingdom, was offered to the Jewish nation, but the nation rejected it.]]
+
+---
+
+![[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]]
+
+---
+
+![[Proposition 59. This Kingdom of God, offered to the Jewish nation, lest the purpose of God fail, is to be given to others who are adopted.]]
+
+---
+
+![[Proposition 60. This Kingdom of God is given, not to nations, but to one nation.]]
+
+---
+
+![[Proposition 61. The Kingdom which by promise exclusively belonged to the Jewish nation, the rightful seed of Abraham, was now to be given to an engrafted people.]]
+
+---
+
+![[Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation.]]
+
+---
+
+![[Proposition 63. The present elect to whom the Kingdom will be given, is the continuation of the previous election, chiefly in another engrafted people.]]
+
+---
+
+![[Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation.]]
+
+---
+
+![[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]]
+
+---
+
+![[Proposition 66. The Kingdom that was nigh at one time (viz.  at the First Advent) to the Jewish nation, is now removed to the close of its tribulation, and of “the times of the Gentiles.”]]
+
+---
+
+![[Proposition 67. The Kingdom could not therefore have been set up at that time, viz.; at the First Advent.]]
+
+---
+
+![[Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]]
+
+---
+
+![[Proposition 69. The death of Jesus did not remove the notion entertained by the disciples and apostles concerning the Kingdom.]]
+
+---
+
+![[Proposition 70. The apostles, after Christ’s ascension, did not preach, either to Jews or Gentiles, that the Kingdom was established.]]
+
+---
+
+![[Proposition 71. The language of the Apostles confirmed the Jews in their Messianic hopes of the Kingdom.]]
+
+---
+
+![[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]]
+
+---
+
+![[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.]]
+
+---
+
+![[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]]
+
+---
+
+![[Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.]]
+
+---
+
+![[Proposition 76. The doctrine of the Kingdom was changed under the Gnostic and Alexandrian influence.]]
+
+---
+
+![[Proposition 77. The doctrine of the Kingdom, as held by the early church was finally almost exterminated under the teaching and power of the Papacy.]]
+
+---
+
+![[Proposition 78. The early church doctrine was revived after the Reformation.]]
+
+---
+
+![[Proposition 79. The Kingdom of God, promised by covenant and prophets, is to be distinguished from the general and universal Sovereignty of God.]]
+
+---
+
+![[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]]
+
+---
+
+![[Proposition 81. This Kingdom, thus covenanted, belongs to Jesus as “the Son of Man.”]]
+
+---
+
+![[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]]
+
+---
+
+![[Proposition 83. This Kingdom is given to the Son of Man by God’ the Father.]]
+
+---
+
+![[Proposition 84. As this Kingdom is specially given to the Son of Man as the result of his obedience, sufferings, and death, it must be something different]]
+
+---
+
+![[Proposition 85. Neither Abraham, nor his engrafted seed have as yet inherited the Kingdom  hence the Kingdom must be something different from “piety,” “religion” and “God’s reign in the heart.”]]
+
+---
+
+![[Proposition 86. The object or design of this dispensation is to gather out these elects to whom, as heirs with Abraham and his seed, Christ, this Kingdom is to be given.]]
+
+---
+
+![[Proposition 87. The postponement of the Kingdom is the key to the understanding of the meaning of this dispensation.]]
+
+---
+
+![[Proposition 88. The Church is then a preparatory stage for this Kingdom.]]
+
+---
+
+![[Proposition 89. Christ, in view of this future Kingdom, sustains a peculiar relationship to the Church.]]
+
+---
+
+![[Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]]
+
+---
+
+![[Proposition 91. The Kingdom of God is not the Jewish Church.]]
+
+---
+
+![[Proposition 92. This Kingdom is not what some call “the Gospel Kingdom.”]]
+
+---
+
+![[Proposition 93. The Covenanted Kingdom is not the Christian Church.]]
+
+---
+
+![[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]]
+
+---
+
+![[Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.]]
+
+---
+
+![[Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah.]]
+
+---
+
+![[Proposition 97. The various forms of Church government indicate that the Church is not the promised Kingdom.]]
+
+---
+
+![[Proposition 98. That the church is not the Kingdom promised to David’s Son was the belief of the early church.]]
+
+---
+
+![[Proposition 99. The opinion that the church is the predicted Kingdom of Christ was of later origin than the first and second centuries.]]
+
+---
+
+![[Proposition 100. The visible church is not the predicted Kingdom of Jesus Christ.]]
