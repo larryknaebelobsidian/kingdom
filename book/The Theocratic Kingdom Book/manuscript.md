@@ -1,4 +1,7 @@
+# Notes on "The Theocratic Kingdom"
+
 These are notes (mostly quotations) on George N. H. Peters great work "The Theocratic Kingdom".
+
 
 
 ---
@@ -19,6 +22,8 @@ Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 201
 
 
 ---
+
+# List of Propositions
 
 Proposition 1. The kingdom of God is a subject of vital importance.   
 Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.   
