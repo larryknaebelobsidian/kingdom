@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 186. This doctrine of the Kingdom sustained by the Analogy of Scripture, the Analogy of Faith, and the Analogy of Tradition.
 ### Analogy of Scripture
 >Obs. 1. In relation to the analogy of Scripture, which exhibits a general connection and agreement subsisting between the truths contained in Holy Scripture, such connection and correspondence is strikingly manifested. Thus we have 
 >1. first the covenant with its promises; 

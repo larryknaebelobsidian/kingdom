@@ -8,6 +8,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.
 ### Preliminary considerations
 >The preservation of the people is distinctly predicted, not in the possession of king, government, etc., characteristic of a nation properly organized but, in a dispersed and utterly disorganized condition, retaining national peculiarities, such as rites, practices, customs, doctrines, etc.
 >Obs. 1

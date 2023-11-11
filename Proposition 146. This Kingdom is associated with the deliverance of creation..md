@@ -8,6 +8,8 @@ subjects:
 tags:
   - toc
 ---
+# Proposition 146. This Kingdom is associated with the deliverance of creation.
+
 >The Kingdom itself being redemptive in its intent and work, brings deliverance from the curse, however widespread, restores forfeited gifts, and even bestows riches never before conferred upon man or the earth.
 
 >The Plan of Redemption, of which this Kingdom forms the eliminating agency of affecting and completing, contemplates a return to the condition existing before the fall, and even to that which man would have attained to had he not sinned. Of course, it must then include the renewal of creation.

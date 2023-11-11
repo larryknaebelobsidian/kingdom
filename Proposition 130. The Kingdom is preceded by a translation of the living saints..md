@@ -13,7 +13,8 @@ completion: 1
 tags:
   - toc
 ---
-## Props Mentioned
+# Proposition 130. The Kingdom is preceded by a translation of the living saints.
+### Props Mentioned
 [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.|126]] [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.|127]] [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.|128]] [[Proposition 129. The Jewish view of a Pre-Mill, resurrection requisite for the introduction of the Messianic Kingdom is fully sustained by the grammatical sense of the New Testament.|129]] [[Proposition 181. Our doctrinal position illustrated and enforced by the Parable of the Ten Virgins.|181]] 
 
 PERSONAL NOTE: This topic requires much prayer and study. 

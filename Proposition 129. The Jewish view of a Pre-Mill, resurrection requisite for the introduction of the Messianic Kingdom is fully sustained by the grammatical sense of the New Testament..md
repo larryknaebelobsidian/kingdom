@@ -8,6 +8,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 129. The Jewish view of a Pre-Mill, resurrection requisite for the introduction of the Messianic Kingdom is fully sustained by the grammatical sense of the New Testament.
+
 >Attention is thus prominently called to the fact, that the agreement existing between Jewish belief and the language of the New Test, most effectually supports our doctrinal position.
 ### View consistent with Bible
 >Obs. 1. To avoid repeating, the reader is requested to notice how under the preceding Props, relating to the res. taught in the Old Test., the Apoc., and the Gospels and Epistles, the constant reference was made to the Jewish belief prevailing, and quotations were given fully sustaining the same from critics, historians, commentators, etc. Now, we ask the reader to consider how it was possible for Jesus and the inspired writers to employ language, in view of such an existing belief, fully corroborating it, unless the belief was a correct one, in strict accord with the Divine Purpose.

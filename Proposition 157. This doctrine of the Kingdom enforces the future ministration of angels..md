@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.
+
 >Believers now by faith come “to an innumerable company of angels” (Heb. 12:22, or “to myriads of angels in an assembly or joyful convocation,” Barnes, Com. loci). These angels were employed preparatory to the Theocracy, at the introduction of the Theocracy, etc., and it is most reasonable to believe, as taught, that they will continue to be interested in, and engaged in behalf of, the Theocracy when gloriously restored.
 ### Supremacy over all angels
 >Obs. 1. The supremacy and exaltation of Jesus, the Christ, over all angels (Col. 1:16; Eph. 1:21; 1 Pet. 3:22), their attendance on and service to Him at the First Advent (Luke 2:9-14; Matt. 4:11; Luke 22:43, etc.), their deep interest in things pertaining to Him (e.g. Eph. 3:10, 11; 1 Pet. 1:12, etc.), their connection with the events of the Sec. Advent (Matt. 16:21; Luke 12:8, 9, etc.), their worship of Him (Heb. 1:6; Rev. 5:11, 12), His power over them (Matt. 26:51, 52; Heb. 1:4, etc.)—these, as well as other considerations, show that at the restoration of the Theocracy, the Messiah shall swell His glory by that of the angelic host. Now let the student but observe the relationship that “the first-born,” “the first-fruits” sustain to Christ, and he will clearly see that this body obtain, in virtue of their union with Jesus as coheirs, a power over angels.

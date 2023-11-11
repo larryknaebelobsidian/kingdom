@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation.
 ### Unconditional promises of restoration
 >Obs. 1. The only objection of force that can be urged against our view is, that these promises of restoration are conditional, but this has been met under Props. 18 and 46-52.
 >...

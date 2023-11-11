@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.
 ### God Himself, in the Person of Jesus, the Son of David, rules as an earthly ruler
 
 >Attention is again called to the fact that this form, of government, predicted to be established and to extend itself over the earth, is a Theocracy, i.e. God Himself, in the Person of Jesus, the Son of David, rules in it as an earthly Ruler. This form of government is already seen in the Theocracy, initiatory, once established (Props. 25, 20) and which incorporated the Davidic line (Props. 27-33). God was the Supreme Ruler —the earthly King. This fundamental idea must necessarily be retained, if justice is done to the direct representations of Scripture, seeing that the entire tenor and analogy of the Record incontestably proves that the same Theocracy overthrown, owing to the sinfulness of the nation, shall be again restored under the Messiah with increased splendor and power (comp. Props. 31, 32, 33, 31, 35, and 30).

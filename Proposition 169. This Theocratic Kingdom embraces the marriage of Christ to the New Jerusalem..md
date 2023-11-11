@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 169. This Theocratic Kingdom embraces the marriage of Christ to the New Jerusalem.
+
 >Our object under this heading is merely to show who the Bride is, and to explain what is meant by the marriage relation.
 
 >Obs. 1. The Bride is the city New Jerusalem, for a city is in prophetical language, (as well as in that of other writers), personified by a woman or virgin.

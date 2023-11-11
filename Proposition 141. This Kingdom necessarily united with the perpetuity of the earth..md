@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.
+
 >Necessarily, because this earth is the promised inheritance tendered to Abraham; this earth is the theatre on which David’s throne and Kingdom existed, and if re-established at the Sec. Advent demands its continuance; this earth is covenanted to David’s Son and promised to the saints, and hence God’s oath and faithfulness are involved in its perpetuity (comp. Props. 137, 138, 139, 140, 142, 144, 152, etc.).
 ### Not a Lutheran doctrine
 >Obs. 1. The misleading phrase “the end of the world” has been considered under the previous Prop.

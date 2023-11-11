@@ -9,6 +9,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 153. This view of the Kingdom with its two classes (viz., the translated and dead saints, glorified, forming one class) and mortal men the other) is forcibly represented in the transfiguration.
 ### Transfiguration is a representation of the Kingdom in some of its aspects
 >The transfiguration is thus regarded as a type of the Saviour’s future glory in His Kingdom.”
 >Obs. 1

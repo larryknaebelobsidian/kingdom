@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.
+
 >This is seen in the fact that our doctrine makes much of what Christ is yet to do at His Sec. Advent.
 
 >But our view embraces not merely the completion of salvation in the saints of this and former ages by experiencing the resurrection, etc., but includes salvation in restoration to all forfeited blessings pertaining to saints, to the Jewish nation and the race. The Kingdom itself, while embracing salvation, becomes the medium of salvation to the world. When this period of re-establishment comes, then to the preparatory work of Christ is added the direct supernatural Theocratic power by which deliverance is obtained and evermore sustained.

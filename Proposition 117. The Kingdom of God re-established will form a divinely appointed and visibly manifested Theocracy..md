@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 117. The Kingdom of God re-established will form a divinely appointed and visibly manifested Theocracy.
 ### God's perfect government - fully consummated
 >Obs. 1. This is a Theocracy in deed and in truth, for in this reorganized Kingdom we find the Theocratic idea—God’s idea of a perfect government —fully consummated.
 ### Fulfills all the details of the prophets

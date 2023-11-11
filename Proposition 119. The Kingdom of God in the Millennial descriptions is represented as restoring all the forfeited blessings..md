@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.
+
 >Attention is only called to the fact, that, explain it as we may, when this Theocratic-Davidic Kingdom is represented in the portrayal of the Millennial era as existing, it embraces a restoration of blessings forfeited by sin. The prophets instead of separating that age from this restitution, making the latter, as many suppose, a result to follow afterward, distinctly unite them. Now, this, as the argument thus far demands, is requisite to preserve the Divine order in the re-establishment of the Kingdom, seeing that it involves a resurrected, immortal David’s Son, resurrected and immortal Ruler, and the fulfilment of covenant promises designed when accomplished to remove evil, sorrow, suffering, etc.
 
 

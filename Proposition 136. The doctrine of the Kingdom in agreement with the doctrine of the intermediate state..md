@@ -8,6 +8,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.
+
 >. . . the Scripture statements clearly and unmistakably teach a *detention* of the saints from the promised inheritance and reward.
 >p. 394 Vol. 2 Prop. 136
 

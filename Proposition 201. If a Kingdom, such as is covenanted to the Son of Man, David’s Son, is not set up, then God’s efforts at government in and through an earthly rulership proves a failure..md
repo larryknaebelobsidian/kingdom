@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 201. If a Kingdom, such as is covenanted to the Son of Man, David’s Son, is not set up, then God’s efforts at government in and through an earthly rulership proves a failure.
 ### Previous arguments support the certainty of the plan
 >Obs. 1. Our argument proves that the covenants, the prophecies, the continued incarnate relationship of Jesus—in brief, all that has been thus far advanced—clearly show that God will not fail in His Theocratic Plan —His proposed Theocratic-Davidic Kingdom.
 ### Is God unable to finish the job?

@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 203. The exaltation of the Christ is not lessened or lowered by thus referring the promises of the Kingdom to an outward manifestation in the future.
+
 >Obs. 1. The objection intimated in the Proposition against our doctrine, proceeds from a one-sided view of the Person of Christ, exalting the divine as if exclusive, and leaving out the human as if it were no longer a factor in Redemption.
 >...
 >Such practically ignore David’s Son, and thus degrade Him. (1) By denying His present continued Davidic relationship; (2) and by refusing to believe that the covenant promises can only be realized through David’s Son.

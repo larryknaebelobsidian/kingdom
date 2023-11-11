@@ -8,6 +8,8 @@ subjects:
 tags:
   - toc
 ---
+# Proposition 181. Our doctrinal position illustrated and enforced by the Parable of the Ten Virgins.
+
 >illustrative of the attitude of the Church at the Sec. Advent.
 >Obs. 1
 

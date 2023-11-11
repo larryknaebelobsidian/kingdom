@@ -8,6 +8,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.
 ## Props Mentioned
 [[Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ.|121]] [[Proposition 130. The Kingdom is preceded by a translation of the living saints.|130]] 
 

@@ -8,6 +8,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 175. The doctrine of the Kingdom is greatly obscured and perverted by the prevailing one of the conversion of the world prior to the Advent of Jesus.
 ## Props Mentioned
 [[Proposition 70. The apostles, after Christ’s ascension, did not preach, either to Jews or Gentiles, that the Kingdom was established.|70]] [[Proposition 71. The language of the Apostles confirmed the Jews in their Messianic hopes of the Kingdom.|71]] [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.|72]] [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.|73]] [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.|74]] [[Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.|75]] 
 

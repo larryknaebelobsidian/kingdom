@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.
+
 NOTE: Scripture quotes from LSB  
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)

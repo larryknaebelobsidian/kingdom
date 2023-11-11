@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 158. The doctrine of the Kingdom aids in locating the Millennial period.
 ### Not in the past
 >Obs. 1. Hence the doctrine of the Kingdom refutes the theory of those who locate the Mill, era in the past.
 ### Not this dispensation

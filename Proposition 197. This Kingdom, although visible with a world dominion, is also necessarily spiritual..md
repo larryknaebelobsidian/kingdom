@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 197. This Kingdom, although visible with a world dominion, is also necessarily spiritual.
+
 >While a purely material, naturalistic Kingdom, without spirituality, is unscriptural, so likewise an entire spiritual Kingdom, without the sanctified union of the material or natural, is utterly opposed to the Word of God.
 ### Visible, external, world-dominion
 >Obs. 1. Any reader that has followed the scriptural line of argument can see for himself that we are logically and irresistibly driven to the conclusion that the future Messianic Kingdom is a visible, external, world-dominion.

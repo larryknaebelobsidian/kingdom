@@ -8,6 +8,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 103. This Kingdom is not a Kingdom in the third heaven.
+
 >Some writers, especially in answering Millenarians, inform us that the Kingdom of Christ, of God, or of heaven, is now in heaven, where the redeemed now dwell, and that it will continue to remain there after the resurrection. Aside from its direct conflict, with covenant and promise, it is easily rebutted by Dan. 2 and 7, Rev. 14, etc., which describe the Kingdom as one existing here on earth over the whole world.
 ### Third heaven kingdom does not meet conditions of prophecy and covenant
 >Obs. 1. Whatever the authority and power of Christ in the third heaven in His Divine and human natures (Props. so, 79, 83, etc.), the same does not meet the conditions either of prophecy (Prop. 35, etc.), or, especially, of covenant, Prop. 49.

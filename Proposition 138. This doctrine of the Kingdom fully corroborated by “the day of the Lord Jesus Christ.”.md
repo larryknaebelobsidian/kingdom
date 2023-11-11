@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 138. This doctrine of the Kingdom fully corroborated by “the day of the Lord Jesus Christ.”
+
 >This Kingdom is after the Sec. Advent, and in a period, dispensation, age, day, or time, which, owing to the public, personal manifestation of Jesus Christ, is by way of pre-eminence entitled “His day;” etc. Now, if it can be shown that the Jews believed that the day or age of the Messiah was thus identified with the period of the reign of the Messiah on David’s throne, and that the Apostles, without any change or transformation, apply this phraseology to Jesus after His Sec. Advent, it at once powerfully confirms our doctrine of the Kingdom. For, if our interpretation of the Covenant and promises is correct, then such a day or time of Christ must be still future.
 ### The Jewish view
 >Obs. 1. The Jewish view is given by many writers.

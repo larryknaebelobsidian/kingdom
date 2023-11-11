@@ -9,6 +9,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.
 ## Props Mentioned
 [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”|163]] [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.|49]] 
 

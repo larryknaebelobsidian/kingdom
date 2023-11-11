@@ -8,6 +8,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”
+
 Scripture from LSB
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)

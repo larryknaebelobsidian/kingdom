@@ -8,6 +8,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.
+
 Scripture from the LSB
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)

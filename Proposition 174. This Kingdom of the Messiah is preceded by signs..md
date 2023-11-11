@@ -11,6 +11,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 174. This Kingdom of the Messiah is preceded by signs.
 ## Signs preceeding First Stage (secret resurrection and secret translation) of the Advent
 
 Observation 3 discusses 38 signs. 

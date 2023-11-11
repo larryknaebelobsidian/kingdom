@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine.
+
 >Obs. 1. Writers by confining themselves to the Divine Sovereignty and overlooking the specific promises to David’s Son, have Christ now in the enjoyment of the promised inheritance.
 
 >This Kingdom is declared to be 

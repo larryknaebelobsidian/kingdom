@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 193. This doctrine of the Kingdom meets, and, consistently removes, the objections brought against Christianity by the Jews.
+
 >This is a wide field, and we can only briefly point out how, from our standpoint, a consistent answer can be given to the objections urged by Jewish unbelief against the reception of Jesus Christ.
 
 >The history of the first and second centuries shows that it was nothing unusual for Jews to embrace Jesus Christ as the promised Messiah. But gradually such conversions became rarer, until they either entirely ceased or formed exceptionable eases. If we inquire into the causes of this change, it will be found that it resulted almost entirely in the departure of the large body of the Church from the Millenarian ground occupied by the early Church. The Origenistic, Augustinian, and succeeding theology discarded what was pronounced to be “the Jewish” element, and engrafted another, the Gentile, into its place.

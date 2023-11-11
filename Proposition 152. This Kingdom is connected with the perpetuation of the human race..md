@@ -8,6 +8,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 152. This Kingdom is connected with the perpetuation of the human race.
 ## Props Mentioned
 [[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.|154]] [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.|156]] 
 

@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.
+
 >This results from the fact that being a leading doctrine of the Bible and embracing the great end contemplated, it must necessarily serve to interpret passages that are indistinct, obscure, and ambiguous. And this it does without straining such passages into a forced compatibility with the general tenor of Revelation concerning the Kingdom, but by simply allowing the plain grammatical sense to connect itself naturally with the comprehensive knowledge respecting the ordering of the Messianic Kingdom.
 
 ### Simple promises are clarified

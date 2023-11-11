@@ -8,6 +8,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.
+
 >Notice: 
 >(1) the Abrahamic covenant out of which arises the Kingdom; 
 >(2) the Theocracy in its initiatory form; 

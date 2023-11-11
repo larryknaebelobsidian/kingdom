@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 164. This Kingdom ends the Gentile-domination.
+
 >King Jesus is the covenanted King, not only over His special inheritance, the Jewish nation, but also over all the earth; and, as already abundantly proven from Scripture, the time is surely coming when all governments will be overthrown, making place for the universal Kingdom of the Lord Jesus Christ.
 
 >Obs. 1. The inheritance of David’s Son (from whence His royalty is to be manifested) is left under Gentile power 

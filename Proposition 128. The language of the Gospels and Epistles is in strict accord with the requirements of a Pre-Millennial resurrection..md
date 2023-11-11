@@ -8,7 +8,8 @@ completion: 1
 tags:
   - toc
 ---
-## Props Mentioned
+# Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.
+### Props Mentioned
 [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.|49]] [[Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”|137]] [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.|144]] [[Proposition 145. This Kingdom includes “the regeneration” of Matt 19 28.|145]] [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.|118]] [[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.|154]] [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.|114]] [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.|126]] 
 
 1 Cor. 15:52

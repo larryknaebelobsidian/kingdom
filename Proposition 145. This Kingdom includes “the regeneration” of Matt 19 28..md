@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 145. This Kingdom includes “the regeneration” of Matt 19 28.
+
 Legacy Standard Bible
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)

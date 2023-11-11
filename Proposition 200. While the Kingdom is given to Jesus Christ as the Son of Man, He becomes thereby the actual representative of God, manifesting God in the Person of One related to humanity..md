@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 200. While the Kingdom is given to Jesus Christ as the Son of Man, He becomes thereby the actual representative of God, manifesting God in the Person of One related to humanity.
+
 >When the Theocracy was first established, the earthly Ruler (i.e., God acting as such) was separate (i.e. in personality) from the subordinate human ruler (as e.g. God was separate and distinct from the subordinate ruler David), but in this revived form it is God’s Purpose to have both joined, firmly united in the same person. This wonderful Plan proposes that there shall be a real Son of David united and identified with the Godhead, thus constituting Him just such a Ruler as a ‘perfected Theocratic Kingdom on earth should possess to make it powerful and absolute, related both to God and man.
 
 >Obs. 1. This again brings out prominently the doctrine respecting the Person of Christ—a significant one too as the day is approaching.

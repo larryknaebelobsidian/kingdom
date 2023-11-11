@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 167. The re-establishment of this Kingdom embraces also the reception of a New Revelation of the Divine Will.
+
 >This necessarily results, for while the Theocratic-Davidic Kingdom is restored, its restoration is accompanied by great and wonderful changes. The inaugurated rule of the Theocratic King, as predicted, the participation of the saints in such rule, the worldwide extent of the Kingdom, the supremacy of the Jewish nation, the entering upon a new age or dispensation, the change that will result in the condition of believers in this Kingdom, etc., calls for a revelation by which not only the official position of the saints is to be governed, but that of the Jewish and Gentile nations is to be controlled.
 ### Sufficiency of Scripture down to the Second Advent
 >Obs. 1. The reader will observe that our entire argument insists upon the present and continued sufficiency of Revelation down to the Sec. Advent, over against St. Simonians, Friends of Light, Swedenborgians, Mystics, Mormons, Spiritualists, etc. The Scriptures, as we now have them, are not only the highest but the last Revelation down to that period; and, hence, we reject all others, no matter by whom presented or by what argument enforced. Until the arrival of the Bridegroom, there is a sufficiency given to gather out and guide the elect. Nothing is lacking to meet the Divine Purpose respecting this dispensation, either in the way of instruction, motive, encouragement, etc.; and, therefore, it is unreasonable to anticipate another Revelation until we enter another and more glorious dispensation.

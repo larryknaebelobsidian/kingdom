@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.
+
 >It has been shown how the Kingdom failed in its Theocratic and Theocratic-Davidic establishment through the depravity of man, and how its re-establishment at the First Advent was rendered hopeless by the wickedness of the nation. Then a new feature in the plan of God appears, viz.: to postpone the Kingdom during a period called “the times of the Gentiles and during this season of delay gather out a chosen people to be associated in the re-establishment of the Kingdom on a firm and everlasting basis, beyond the reach, owing to the tested character, etc., of the rulers, of depravity (comp. Props. 59-455, 86, 87, 88, etc.).     
 ### Preparatory stage
 >Obs. 1. Just as there was a preparatory growth and development of Abraham’s seed before the Theocratic government was instituted, so now there is designed and carried out by the Divine Will a preparatory gathering of Abraham’s seed until a sufficient, predetermined number is obtained. These are called the Elect. Made like unto Christ, when they appear with Him, they are “joint heirs” with Him.

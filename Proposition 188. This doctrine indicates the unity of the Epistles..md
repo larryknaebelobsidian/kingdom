@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 188. This doctrine indicates the unity of the Epistles.
 >They all agree 
 >1. (1) in expressing faith and hope in the covenants and prophecies; 
 >2. (2) in Jesus as the Messiah; 

@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 120. This Kingdom with its Millennial blessings can only be introduced through the power of God in Christ Jesus.
+
 >Obs. 1. That Christ is the Introducer of the Millennial era is so abundantly asserted by the Prophets that a large number of writers, opposed to our view, still admit that Christ must come at this period spiritually in extraordinary power.
 
 >Obs. 2. The multitude of writers, who so persistently proclaim that the Kingdom and Millennial blessedness shall be introduced by present existing instrumentalities, are in direct opposition to Scripture.
