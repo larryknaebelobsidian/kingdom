@@ -1,14 +1,13 @@
-# Notes on "The Theocratic Kingdom"
-
-These are notes (mostly quotations) on George N. H. Peters great work "The Theocratic Kingdom".
-
 
 
 ---
 
-# The Theocratic Kingdom
+# Notes on "The Theocratic Kingdom"
 
-Peters, George N. H. 1952. _The Theocratic Kingdom_. Grand Rapids, MI: Kregel Publications.
+These are notes (mostly quotations) on George N. H. Peters great work "The Theocratic Kingdom".
+
+## The Theocratic Kingdom
+
 
 ISBN 0-8254-3540-4
 
@@ -272,3 +271,128 @@ Proposition 206. This earth will yet witness the re-establishment of a glorious 
 ---
 
 ![[Proposition 10. This kingdom should be studied in the light of the Holy Scriptures, and not merely in that of creeds, confessions, formulas of doctrine, etc.]] 
+
+
+---
+
+![[Proposition 11. The mysteries of the kingdom were given to the apostles.]]
+
+---
+
+![[Proposition 12. There is some mystery yet connected with the things of the kingdom.]]
+
+---
+
+![[Proposition 13. Some things pertaining to the kingdom intentionally revealed somewhat obscurely.]]
+
+---
+
+![[Proposition 14. Some things pertaining to the kingdom not so easily comprehended as many suppose.]]
+
+---
+
+![[Proposition 15. The doctrine of the kingdom can become better understood and appreciated.]]
+
+---
+
+![[Proposition 16. This kingdom cannot be properly comprehended without acknowledging an intimate and internal connection existing between the Old and New Testaments.]]
+
+---
+
+![[Proposition 17. Without study of the prophecies, no adequate idea can be obtained of the kingdom.]]
+
+---
+
+![[Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned.]]
+
+---
+
+![[Proposition 19. The New Testament begins the announcement of the kingdom in terms expressive of its being previously well known.]]
+
+---
+
+![[Proposition 20. To comprehend the subject of the kingdom, it is necessary to notice the belief and the expectations of the more pious portion of the Jews.]]
+
+---
+
+![[Proposition 21. The Prophecies of the Kingdom, interpreted literally, sustain the expectations and hopes of the pious Jews.]]
+
+---
+
+![[Proposition 22. John the Baptist, Jesus, and the disciples, employed the phrases “Kingdom of heaven,” “Kingdom of God,” etc., in accordance with the usage of the Jews.]]
+
+---
+
+![[Proposition 23. There must be some substantial reason why the phrases “Kingdom of God,” etc., were thus adopted.]]
+
+---
+
+![[Proposition 24. The Kingdom is offered to an elect nation, viz. the Jewish nation.]]
+
+---
+
+![[Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom.]]
+
+---
+
+![[Proposition 26. The Theocracy thus instituted would have been permanently established if the people, in their national capacity, had been faithful in obedience.]]
+
+---
+
+![[Proposition 27. The demand of the nation for an earthly king was a virtual abandonment of this Theocratic Kingdom by the nation.]]
+
+---
+
+![[Proposition 28. God makes the Jewish King subordinate to His own Theocracy.]]
+
+---
+
+![[Proposition 29. This Theocracy or Kingdom is exclusively given to the natural descendants of Abraham, in their corporate capacity.]]
+
+---
+
+![[Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom.]]
+
+---
+
+![[Proposition 31. This Theocracy or Kingdom was identified with the Davidic Kingdom.]]
+
+---
+
+![[Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown.]]
+
+---
+
+![[Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration.]]
+
+---
+
+![[Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents.]]
+
+---
+
+![[Proposition 35. The Prophets describe but one Kingdom.]]
+
+---
+
+![[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]]
+
+---
+
+![[Proposition 37. The Kingdom, thus predicted and promised, was not in existence when the Forerunner of Jesus appeared.]]
+
+---
+
+![[Proposition 38. John the Baptist preached that this Kingdom, predicted by the Prophets, was “nigh at hand”]]
+
+---
+
+![[Proposition 39. John the Baptist was not ignorant of the Kingdom that he preached.]]
+
+---
+
+![[Proposition 40. The hearers of John believed that he preached to them the Kingdom predicted by the Prophets, and in the sense held by themselves.]]
+
+---
+
+![[Proposition 41. The Kingdom was not established under John’s ministry.]]
