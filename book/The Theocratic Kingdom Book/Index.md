@@ -6,7 +6,8 @@ longform:
   sceneFolder: /
   scenes:
     - manuscript
-    - Table of Contents
+    - Title Page
+    - List of Propositions
     - Prop 1
     - Prop 2
     - Prop 3

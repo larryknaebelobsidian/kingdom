@@ -1,24 +1,4 @@
-These are notes (mostly quotations) on George N. H. Peters great work "The Theocratic Kingdom".
-
-
----
-
-# The Theocratic Kingdom
-
-Peters, George N. H. 1952. _The Theocratic Kingdom_. Grand Rapids, MI: Kregel Publications.
-
-ISBN 0-8254-3540-4
-
-Originally published in 1884 by Funk & Wagnalls, New York
-
-Library of Congress Catalog Card Number 72-88588
-
----
-Also used Kindle version (which does not contain any notes, resulting in about half the size of the hard copy) ASIN: **B00O6DZKP2**
-Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 2014.
-
-
----
+# List of Propositions
 
 Proposition 1. The kingdom of God is a subject of vital importance.   
 Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.   
@@ -226,44 +206,3 @@ Proposition 203. The exaltation of the Christ is not lessened or lowered by thus
 Proposition 204. Such a view of the Kingdom gives definiteness and a continued exaltation to the human nature of Christ, and indicates the majestic relationship that it sustains throughout the ages to the race of man.  
 Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.” 
 Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.
-
-
----
-
-![[Proposition 1. The kingdom of God is a subject of vital importance.]] 
-
----
-
-![[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.]] 
-
----
-
-![[Proposition 3. The meanings usually given to this kingdom indicate that the most vague, indefinite notions exist concerning it.]] 
-
----
-
-![[Proposition 4. The literal, grammatical interpretation of the Scriptures must (connected with the figurative, tropical, or rhetorical) be observed in order to obtain a correct understanding of this kingdom.]] 
-
----
-
-![[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]]
-
----
-
-![[Proposition 6. The kingdom of heaven is intimately connected with the supernatural.]]
-
----
-
-![[Proposition 7. The kingdom being a manifestation of the supernatural, miracles are connected with it.]]
-
----
-
-![[Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man.]]
-
----
-
-![[Proposition 9. The nature of, and the things pertaining to the kingdom, can only be ascertained within the limits of Scripture.]]
-
----
-
-![[Proposition 10. This kingdom should be studied in the light of the Holy Scriptures, and not merely in that of creeds, confessions, formulas of doctrine, etc.]] 
