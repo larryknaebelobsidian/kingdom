@@ -1,0 +1,1 @@
+![[Proposition 6. The kingdom of heaven is intimately connected with the supernatural.]]

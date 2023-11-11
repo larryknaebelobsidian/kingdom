@@ -1,0 +1,1 @@
+![[Proposition 7. The kingdom being a manifestation of the supernatural, miracles are connected with it.]]

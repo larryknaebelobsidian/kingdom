@@ -1,0 +1,1 @@
+![[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]]
