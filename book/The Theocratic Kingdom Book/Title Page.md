@@ -4,7 +4,6 @@ These are notes (mostly quotations) on George N. H. Peters great work "The Theoc
 
 ## The Theocratic Kingdom
 
-Peters, George N. H. 1952. _The Theocratic Kingdom_. Grand Rapids, MI: [Kregel](http://www.kregel.com) Publications.
 
 ISBN 0-8254-3540-4
 
