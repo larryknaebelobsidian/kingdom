@@ -1,7 +1,7 @@
 ---
 longform:
   format: scenes
-  title: TheocraticKingdomBook
+  title: Second Coming Bible Notes
   workflow: Default Workflow
   sceneFolder: /
   scenes:
