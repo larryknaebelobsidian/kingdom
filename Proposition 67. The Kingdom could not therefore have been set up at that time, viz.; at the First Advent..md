@@ -8,6 +8,7 @@ subjects:
 tags:
   - toc
 ---
+# Proposition 67. The Kingdom could not therefore have been set up at that time, viz.; at the First Advent.
 ### Kingdom withdrawn and postponed at first advent
 >Obs. 1. In Matt. 12:28 (Luke 11:20), when the Jews had taken counsel to kill Jesus, He cast out a devil and was accused by the Jews of performing miracles through the power of Satan. In self-defence, showing that this very power was necessary to Him who would establish the Kingdom, He says: “But if I cast out devils by the Spirit of God” (Luke: “the finger of God”), “then the Kingdom of God is come unto you” (Luke "upon you”) i.e. it was tendered to them on condition of repentance and Christ’s miraculous power evinced the ability to verify the offer of it.
 >...

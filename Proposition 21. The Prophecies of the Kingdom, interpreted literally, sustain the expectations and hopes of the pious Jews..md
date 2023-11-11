@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 21. The Prophecies of the Kingdom, interpreted literally, sustain the expectations and hopes of the pious Jews.
+
 >The plain literal sense expressly teaches what the Jews anticipated; and no author has yet arisen who has dared to assert that the grammatical construction of the Old Testament language, received according to the usual laws, does not convey the meaning found therein of a literal restoration of the Theocratic-Davidic throne and kingdom as expected by the believing Israelites.
 ### Both Jew and Gentile admit
 >Obs. 1. Here, then, is something that all, both Jew and Gentile, frankly admit, however some may afterward attempt to break its force and continued application.

@@ -8,6 +8,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 29. This Theocracy or Kingdom is exclusively given to the natural descendants of Abraham, in their corporate capacity.
 ### Given to the seed of Abraham
 > . . . the Kingdom is solely given to *the seed of Abraham*, which embraced the Jews.  For God condescended only  to act *as earthly Ruler* in behalf of that *one* nation, the *election* being thus practically demonstrated in their nationality.
 > p. 230 Vol. 1 Prop. 29 Obs. 1

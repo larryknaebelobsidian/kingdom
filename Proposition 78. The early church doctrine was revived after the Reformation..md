@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 78. The early church doctrine was revived after the Reformation.
 ### Four various views of Chiliasts
 Obs. 1
 

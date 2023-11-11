@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 88. The Church is then a preparatory stage for this Kingdom.
+
 >the inference is drawn that the wider such a separation is made, the better for true religion. Everything distinctively Jewish is to be sacrificed, giving place to a substituted Gentileism. This is especially true of the leading doctrine of the Kingdom; the Jewish view is denounced,, and a wide departure substituted as better adapted to the wisdom, standing, etc., of Gentiles. is preparatory, because its office is, under divine assistance, to gather out of the nations the elect, i.e. those who are grafted into the Jewish Commonwealth, who shall, by virtue of adoption as Abraham’s seed, be accounted heirs and inheritors of the Kingdom with Abraham. It is simply calling and preparing “the heirs of promise” the “heirs of that kingdom which God hath prepared for them that love Him.”
 ### Variety of attempts to elevate the church to the kingdom
 >Obs. 1. Discarding the simple truth of the Proposition, eminent men of ability have arrayed themselves against each other, contending for some favorite church theory, manifesting an amazing variety of definitions, subtle divisions, imaginary distinctions, and irrelevant display of learning. This has resulted mainly from elevating the church into a Kingdom under the mistake that this dispensation being final, and the prophecies locating the Messiah’s Kingdom here on earth, the church must of necessity be like predicted Kingdom.

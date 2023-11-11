@@ -8,6 +8,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 41. The Kingdom was not established under John’s ministry.
+
 >It could not be, because *no restored Theocracy*, such as the prophets predicted, the covenant demanded, and he preached, followed. This is seen by *the failure* of John’s mission, which was designed to prepare, if possible, consistently with moral freedom, the nation for the Kingdom. 
 >p. 262 Vol. 1 Prop. 41 
 

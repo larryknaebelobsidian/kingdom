@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 53. The genealogies of our Lord form an important link in the comprehension of this Kingdom.
+
 >This is seen already from what preceded. A throne and a kingdom is to be given to a promised son of David, a regular descendant of Abraham’s. It is his by right of inheritance. He is the royal Theocratic heir. Hence without such a genealogy something *essential* would be lacking in the chain of evidence.
 >p. 352 Vol. 1 Prop 53
 ### Purposely supplied link

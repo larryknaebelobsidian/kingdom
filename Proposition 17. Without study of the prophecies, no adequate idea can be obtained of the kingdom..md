@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 17. Without study of the prophecies, no adequate idea can be obtained of the kingdom.
 ### 43 Reasons why study of prophecy is important
 The ***note*** on observation 6 enumerates 43 ***reasons why the study of Prophecy is important***.
 p. 170 Vol. 1 Prop. 17 Obs. 6 note

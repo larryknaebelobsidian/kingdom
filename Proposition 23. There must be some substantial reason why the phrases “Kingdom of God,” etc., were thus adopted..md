@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 23. There must be some substantial reason why the phrases “Kingdom of God,” etc., were thus adopted.
 ### Accommodation Theory
 >Obs. 1. The attacks of Rationalistic criticism has induced the advocacy, by many, of the accommodation theory.
 ### Development Theory

@@ -8,6 +8,8 @@ subjects:
 tags:
   - toc
 ---
+# Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.
+
 >So extensively, so generally was Chiliasm perpetuated, that Justin Martyr positively asserts that all the orthodox adopted and upheld it.
 > . . .
 >"But I and whatsoever Christians are orthodox in all things do know that there will be a resurrection of the flesh, and a thousand years in the city of Jerusalem, built, adorned and enlarged, according as Ezekiel, Isaiah, and other prophets have promised. For Isaiah saith of this thousand years (ch. 65:17), ‘Behold, I create new heavens and a new earth: and the former shall not be remembered, nor come into, mind; but be ye glad and rejoice in those which I create: for, behold, I create Jerusalem to triumph, and my people to rejoice,” etc. Moreover, a certain man among us, whose name is John, being one of the twelve apostles of Christ, in that revelation which was shown to him prophesied, that those who believe in our Christ shall fulfil a thousand years at Jerusalem; and after that the general, and, in a word, the everlasting resurrection, and last judgment of all together. Whereof also our Lord spake when He said, that therein they shall neither marry, nor be given in marriage, but shall be equal with the angels, being made the sons of the resurrection of God.”

@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 13. Some things pertaining to the kingdom intentionally revealed somewhat obscurely.
 ### God avoids premature disclosure as a protection
 
 > . . . God makes long and secret preparations for important events; . . .

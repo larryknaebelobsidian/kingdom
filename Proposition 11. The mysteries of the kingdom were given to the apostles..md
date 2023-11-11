@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 11. The mysteries of the kingdom were given to the apostles.
+
 > The entire tenor of the New Test. impresses us, that their superior qualifications as teachers arises from their acquaintance with the doctrine of the kingdom, resulting from the personal instructions received from Christ, and the subsequent special guidance of the Spirit.
 > p. 141 Vol. 1 Prop. 11 
 

@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 97. The various forms of Church government indicate that the Church is not the promised Kingdom.
+
 >Taking the prophetic record, which gives the Messianic Kingdom a uniform government with a uniform faith, it is impossible to accept of the church, with its diversified forms of government, as an intended exhibit of the Kingdom.
 ### Church not founded with fixed form of government
 >Obs. 1. While men differ in their interpretation of the church, yet it is generally admitted, excepting by the Roman Catholics and a High-Church party, that Christ did not found His church with an accurately affined and fixed form of government for its associated capacity, but left the forms it should assume in society, and among nations, to the development made by Providence and human agency.

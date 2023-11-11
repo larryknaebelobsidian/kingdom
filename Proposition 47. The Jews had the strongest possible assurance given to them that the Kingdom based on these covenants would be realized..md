@@ -8,6 +8,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.
+
 NOTE: Scripture quotes from LSB  
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)

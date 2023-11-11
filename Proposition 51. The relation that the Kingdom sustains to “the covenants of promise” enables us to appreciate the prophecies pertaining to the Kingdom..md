@@ -8,6 +8,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 51. The relation that the Kingdom sustains to “the covenants of promise” enables us to appreciate the prophecies pertaining to the Kingdom.
+
 >All predictions, all promises, all preparative measures, relating to the Kingdom, are based on, and result from, these covenants. The prophecies constantly keep in view what God has covenanted and confirmed by oath, and enlarge and expand the same by amplification, explanation, etc. Therefore, to appreciate the utterances of the prophets, notice must continually be taken of the foundation upon which they are erected. To isolate them is to defeat one intent of prophecy, viz.: to instruct us in the manner by which God will ultimately fulfil His covenants and establish His Theocratic rule over the nations.
 ### The better destinies of the world
 >Obs. 1. The one covenant singles out Abraham and his seed, and, in the words of another (Fairbairn, On Proph., p. 189), “linked indissolubly with it the better destinies of the world.” The other covenant promises the same Seed, narrowed down in the Davidic line, a specific throne and Kingdom from which “the better destinies of the world are secured. This connection is observed by the prophets, and is held up so prominently that many writers (however they explain it) have designated it as “the Abrahamic type,” or “the Davidic type.”

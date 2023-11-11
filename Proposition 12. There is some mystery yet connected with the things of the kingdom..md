@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 12. There is some mystery yet connected with the things of the kingdom.
+
 >This is seen, e.g. in Rev. 10:7, where it is declared that under the last period of time in this age, “the mystery of God should be finished” which commentators generally apply to the fulfilment of the Divine Purpose in the setting up of the kingdom in a manner that shall be universally acknowledged, in vindicating through its establishment the Divine plan, etc. It indicates that some things hitherto kept concealed or partially known, should now be revealed or openly manifested, whatever meaning is attached to the passage, it leaves the impression that not everything pertaining to the kingdom is yet fully known.
 ### Multifaceted aspects of mystery
 >Obs. 1. Men who have given the subject much thought, have the idea that the mystery here stated mainly refers to the period, not definitely known, for the outward manifestation of the kingdom, but it may, for aught we know, include much more. While the mystery 

@@ -9,6 +9,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 63. The present elect to whom the Kingdom will be given, is the continuation of the previous election, chiefly in another engrafted people.
+
 >This follows from what has preceded, and is thus thrown into a Proposition to impress it upon the mind. The previous, and the present, election *is founded on the promises and oath* to Abraham.
 >p. 404 Vol. 1 Prop 63
 ### Similarities of the elect (Previous and Present)

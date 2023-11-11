@@ -8,6 +8,8 @@ subjects:
 tags:
   - toc
 ---
+# Proposition 71. The language of the Apostles confirmed the Jews in their Messianic hopes of the Kingdom.
+
 >This is seen (1) from their employing the Jewish phraseology used to designate the Messianic times; (2) from their applying these to the future advent of Jesus, and urging their hearers to expect that such a Coming will fulfil the prophets; (3) from the fact that the Christianized Jews, in their respective congregations, held both to this Sec. Advent (having received Jesus as the Messiah), and to the restoration of the Davidic throne and Kingdom at the second appearing of Jesus.
 ### Confirmed by able writers and church history
 >Obs. 1. This is admitted by the ablest writers, not only infidels but by such men as Neander. It is corroborated by the church history of the earliest period, informing us, without any dissent, that, so far as known, all the Jewish believers held precisely the views that we are defending.

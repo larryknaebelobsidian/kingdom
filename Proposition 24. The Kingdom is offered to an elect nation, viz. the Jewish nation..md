@@ -9,6 +9,8 @@ tags:
   - toc
   - keyproposition
 ---
+# Proposition 24. The Kingdom is offered to an elect nation, viz. the Jewish nation.
+
 NOTE: Scripture quotes from LSB  
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)

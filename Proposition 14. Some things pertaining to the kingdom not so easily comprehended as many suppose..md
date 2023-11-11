@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 14. Some things pertaining to the kingdom not so easily comprehended as many suppose.
 ### Mystery
 >Obs. 1. Taking the word “mystery” to denote, as theologians state, something revealed that was before unknown, Revelation itself must be carefully scanned and compared to appreciate these. At the same time, whilst a fact is disclosed, or an ordering is divulged, yet the reason *why* it will, or *the manner* in which it may, be accomplished is either not explained or merely hinted at, thus leaving large room for attentive study and reflection. Besides this, many things—the great burden—relating to the Kingdom are still in the shape of unfulfilled prophecy and promise, requiring *discrimination* to distinguish what belongs to different dispensations, to the two Advents, to the past, present, and future, so that we may form a correct estimate of the preparatory stages and of the Kingdom itself. The Apocalypse, with its varied and discordant interpretations, alone proves our proposition.
 >p. 151 Vol. 1 Prop. 14 Obs. 1

@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 31. This Theocracy or Kingdom was identified with the Davidic Kingdom.
+
 >The Theocracy and Davidic kingdom, in virtue of a special and peculiar covenant relationship between the two, were regarded as one, and in the future so identical in destiny that they are inseparably linked together.
 ### Evidence of connection
 >Obs. 1. This is also evidenced by three things—

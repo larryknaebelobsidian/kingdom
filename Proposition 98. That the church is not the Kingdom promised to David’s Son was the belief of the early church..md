@@ -8,6 +8,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 98. That the church is not the Kingdom promised to David’s Son was the belief of the early church.
+
 >This has already been distinctly shown under Props. 69-75, but some additional remarks to enforce the same can be readily given.
 ### No passage found
 >Obs. 1. If the church is the predicted Kingdom of God, we certainly ought to find some direct passage teaching this, either in the writings of the Apostles or their immediate successors. But such an one cannot be found.

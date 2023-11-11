@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents.
+
 >This peculiar feature has often been noticed by writers; and attention is called to it in this connection, because it is of great moment to understand this distinctive, significant method of prophecy.
 ### Main reason - offer of kingdom to the nation at first advent, rejection, postponement till second advent
 >Obs. 1. Learned men, feeling the force of this uniformity, have supposed, correctly, that some good reason produced it, and to assign one, tell us how prophetic vision glances from the lower to the higher hills, passing over the intermediate valleys, etc., thus presenting a beautiful and glowing picture of ecstatic vision. While there is truth in this description, it utterly fails to assign any reason for it, only presenting the manner in which it is done. The leading motive for such a non-discrimination of First and Second Advent will be found in the offer of this same Kingdom to the Jewish nation at the First Advent (comp. Props. 55-57, etc.), and, upon its rejection by the nation, in its postponement to the Sec. Advent.

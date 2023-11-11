@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 35. The Prophets describe but one Kingdom.
+
 > . . . there is no writer, within our knowledge, who has ventured to suggest that *two* Kingdoms are denoted.
 > p. 245 Vol. 1 Prop. 35
 ### One kingdom under the Messiah linked with Jewish nationality

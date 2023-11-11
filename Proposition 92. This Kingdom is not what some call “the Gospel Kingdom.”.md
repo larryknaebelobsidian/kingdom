@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 92. This Kingdom is not what some call “the Gospel Kingdom.”
+
 >Having met with the phrase “Gospel Kingdom” in writings, and having heard it from the pulpit, this favorite expression of some may require a few remarks. By the phrase is evidently meant either this dispensation or the church or religion, or the proclamation of the gospel. It is a phrase of human coinage, nowhere found in the Bible, and is incorrect when applied to the present time. The gospel is good news, glad tidings concerning the Kingdom. Hence the phrase is never found in the writings of careful authors.
 ### "Gospel of the kingdom" not "Gospel kingdom"
 >Obs. 1. It is strongly corroborative that the language of the Bible falls in so accurately with our line of argument. We read of “the Gospel of the Kingdom,” seeing that the Gospel itself has no power to produce the Kingdom, but is simply preliminary to it, designed to call the elect, who become “heirs” of the Kingdom.

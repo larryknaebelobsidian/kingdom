@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 42. Jesus Christ, in His early ministry, preached that the Kingdom of God was nigh at hand.
 ### Nigh kingdom was postponed
 >The simple, unvarnished narrative, as firmly held by the Primitive churches, tells us that the Kingdom preached as nigh *was postponed* to the Sec. Advent.
 >p. 268 Vol. 1 Prop. 42 Obs. 5

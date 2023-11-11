@@ -6,6 +6,8 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 90. Members of the Church who are faithful, are promised this Kingdom.
+
 >There is only one kingdom, Prop. 35, etc. Saints who become the seed of Abraham, are to receive, inherit this kingdom of promise, 1 Thess. 2:12; 2 Thess. 1:5; 2 Pet. 1:11; Matt. 25:34, etc. The Kingdom preached by the Baptist, Jesus, and the disciples continues to be proclaimed, Acts 8:12; 14:22; 20:25; 28:31, etc., and believers become “heirs” of it, Jam. 2:5. The wicked shall not inherit it, 1 Cor. 6:9. The apostles represent themselves and co-laborers as working for it still future, Col. 4:11; 2 Thess. 1:5; 2 Tim. 4:18; Heb. 12:28, etc.
 ### The kingdom is future
 >Obs. 1. This Proposition is only intended to specify one of the results arising from preceding Propositions; and it is decidedly corroborative of our argument that the Scriptures employ language to indicate the futurity of the kingdom.

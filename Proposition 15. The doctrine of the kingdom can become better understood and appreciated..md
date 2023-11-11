@@ -6,6 +6,7 @@ completion: 1
 tags:
   - toc
 ---
+# Proposition 15. The doctrine of the kingdom can become better understood and appreciated.
 ### Our understanding of Scripture grows
 
 > Some think that religious truth is stationary, and this is a favorite charge of the enemies of Christianity, upon which is founded the expressions "antiquated," "stale," "worn out," etc. Admitting that any doctrinal matter contained in Holy Writ is final in authority, and that the things of the Spirit are only to be found in their purity in the Revelation given by that Spirit are only to be found in their purity in the Revelation given by that Spirit, yet these same truths may become more and more clear and distinctive by careful study, comparison, analogy, induction, deduction, by considering their relationship to history, the constant development of God's purposes, the continued fulfilment of prophecy, the experience of mankind, and the gathering of the elect.
