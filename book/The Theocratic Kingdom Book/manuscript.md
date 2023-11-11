@@ -1,8 +1,6 @@
 These are notes (mostly quotations) on George N. H. Peters great work "The Theocratic Kingdom".
 
-[[#^623cd4]] 
-[[book/The Theocratic Kingdom Book/manuscript#^p4|Prop 4]]
-[[book/The Theocratic Kingdom Book/manuscript#^p10|Prop 10]]
+[[#^p10|Prop 10]]
 
 
 ---
