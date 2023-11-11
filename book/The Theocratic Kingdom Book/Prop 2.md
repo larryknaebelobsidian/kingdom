@@ -1,1 +1,1 @@
-![[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.]] ^p2
+![[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.]] 

@@ -1,1 +1,1 @@
-![[Proposition 4. The literal, grammatical interpretation of the Scriptures must (connected with the figurative, tropical, or rhetorical) be observed in order to obtain a correct understanding of this kingdom.]] ^p4
+![[Proposition 4. The literal, grammatical interpretation of the Scriptures must (connected with the figurative, tropical, or rhetorical) be observed in order to obtain a correct understanding of this kingdom.]] 
