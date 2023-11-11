@@ -6,6 +6,8 @@ id: 6
 tags:
   - toc
 ---
+# Proposition 6. The kingdom of heaven is intimately connected with the supernatural.
+
 >The whole Bible, whose leading theme is the kingdom, is grounded on the supernatural. Remove this, and you destroy, if not the book itself, the chief characteristic, the distinguishing excellency of the Scriptures.
 ### The Bible begins with the supernatural and natural in harmony
 >Obs. 1. The Word begins with the supernatural (the presence of God) and the natural in harmony.

@@ -8,6 +8,7 @@ id: 5
 tags:
   - toc
 ---
+# Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.
 ## Props Mentioned
 [[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.|2]] 
 

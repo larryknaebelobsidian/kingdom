@@ -6,6 +6,7 @@ id: 2
 tags:
   - toc
 ---
+# Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.
 ## Props Mentioned
 140-148 [[Proposition 9. The nature of, and the things pertaining to the kingdom, can only be ascertained within the limits of Scripture.|9]] [[Proposition 179. The doctrine of the Kingdom, or essentials of the same, are directly allied by various bodies with doctrines that are objectionable, and hence is made unpalatable to many.|179]] [[Proposition 182. This Kingdom embraces the “One Hope”|182]] [[Proposition 84. As this Kingdom is specially given to the Son of Man as the result of his obedience, sufferings, and death, it must be something different|84]] 
 
