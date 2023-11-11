@@ -1,0 +1,1 @@
+![[Proposition 17. Without study of the prophecies, no adequate idea can be obtained of the kingdom.]]

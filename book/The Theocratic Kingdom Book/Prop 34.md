@@ -1,0 +1,1 @@
+![[Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents.]]

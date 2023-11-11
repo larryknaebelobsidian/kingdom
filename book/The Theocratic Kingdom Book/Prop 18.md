@@ -1,0 +1,1 @@
+![[Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned.]]

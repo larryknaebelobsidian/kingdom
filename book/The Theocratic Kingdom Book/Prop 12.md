@@ -1,0 +1,1 @@
+![[Proposition 12. There is some mystery yet connected with the things of the kingdom.]]

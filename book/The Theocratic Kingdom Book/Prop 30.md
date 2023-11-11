@@ -1,0 +1,1 @@
+![[Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom.]]

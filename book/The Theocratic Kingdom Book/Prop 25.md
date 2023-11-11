@@ -1,0 +1,1 @@
+![[Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom.]]

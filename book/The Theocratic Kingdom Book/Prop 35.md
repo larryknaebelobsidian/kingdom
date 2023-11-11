@@ -1,0 +1,1 @@
+![[Proposition 35. The Prophets describe but one Kingdom.]]

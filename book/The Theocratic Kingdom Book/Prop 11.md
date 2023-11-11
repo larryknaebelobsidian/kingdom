@@ -1,0 +1,1 @@
+![[Proposition 11. The mysteries of the kingdom were given to the apostles.]]

@@ -1,0 +1,1 @@
+![[Proposition 23. There must be some substantial reason why the phrases “Kingdom of God,” etc., were thus adopted.]]

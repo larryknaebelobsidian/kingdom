@@ -1,0 +1,1 @@
+![[Proposition 39. John the Baptist was not ignorant of the Kingdom that he preached.]]

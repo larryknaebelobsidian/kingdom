@@ -1,0 +1,1 @@
+![[Proposition 19. The New Testament begins the announcement of the kingdom in terms expressive of its being previously well known.]]

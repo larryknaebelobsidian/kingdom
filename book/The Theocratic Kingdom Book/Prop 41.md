@@ -1,0 +1,1 @@
+![[Proposition 41. The Kingdom was not established under John’s ministry.]]

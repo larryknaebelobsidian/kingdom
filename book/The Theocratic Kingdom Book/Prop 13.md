@@ -1,0 +1,1 @@
+![[Proposition 13. Some things pertaining to the kingdom intentionally revealed somewhat obscurely.]]

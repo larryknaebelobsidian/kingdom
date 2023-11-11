@@ -1,0 +1,1 @@
+![[Proposition 21. The Prophecies of the Kingdom, interpreted literally, sustain the expectations and hopes of the pious Jews.]]

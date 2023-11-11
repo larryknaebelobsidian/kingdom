@@ -1,0 +1,1 @@
+![[Proposition 40. The hearers of John believed that he preached to them the Kingdom predicted by the Prophets, and in the sense held by themselves.]]

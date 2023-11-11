@@ -1,0 +1,1 @@
+![[Proposition 16. This kingdom cannot be properly comprehended without acknowledging an intimate and internal connection existing between the Old and New Testaments.]]

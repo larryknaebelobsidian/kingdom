@@ -1,0 +1,1 @@
+![[Proposition 15. The doctrine of the kingdom can become better understood and appreciated.]]

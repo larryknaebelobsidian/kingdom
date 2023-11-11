@@ -1,0 +1,1 @@
+![[Proposition 38. John the Baptist preached that this Kingdom, predicted by the Prophets, was “nigh at hand”]]

@@ -1,0 +1,1 @@
+![[Proposition 31. This Theocracy or Kingdom was identified with the Davidic Kingdom.]]
