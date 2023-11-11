@@ -1,5 +1,10 @@
 These are notes (mostly quotations) on George N. H. Peters great work "The Theocratic Kingdom".
 
+[[#^623cd4]] 
+[[book/The Theocratic Kingdom Book/manuscript#^p4|Prop 4]]
+[[book/The Theocratic Kingdom Book/manuscript#^p10|Prop 10]]
+
+
 ---
 
 ![[Table of Contents]]
@@ -18,7 +23,7 @@ These are notes (mostly quotations) on George N. H. Peters great work "The Theoc
 
 ---
 
-![[Proposition 4. The literal, grammatical interpretation of the Scriptures must (connected with the figurative, tropical, or rhetorical) be observed in order to obtain a correct understanding of this kingdom.]]
+![[Proposition 4. The literal, grammatical interpretation of the Scriptures must (connected with the figurative, tropical, or rhetorical) be observed in order to obtain a correct understanding of this kingdom.]] ^3a6966
 
 ---
 
@@ -42,4 +47,4 @@ These are notes (mostly quotations) on George N. H. Peters great work "The Theoc
 
 ---
 
-![[Proposition 10. This kingdom should be studied in the light of the Holy Scriptures, and not merely in that of creeds, confessions, formulas of doctrine, etc.]]
+![[Proposition 10. This kingdom should be studied in the light of the Holy Scriptures, and not merely in that of creeds, confessions, formulas of doctrine, etc.]] ^p10
