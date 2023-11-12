@@ -1,0 +1,1 @@
+![[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]]

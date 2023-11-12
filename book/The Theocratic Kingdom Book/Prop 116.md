@@ -1,0 +1,1 @@
+![[Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.).]]

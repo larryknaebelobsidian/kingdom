@@ -1,0 +1,1 @@
+![[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]]

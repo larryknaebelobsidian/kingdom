@@ -1,0 +1,1 @@
+![[Proposition 169. This Theocratic Kingdom embraces the marriage of Christ to the New Jerusalem.]]

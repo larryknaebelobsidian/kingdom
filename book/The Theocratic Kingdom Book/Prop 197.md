@@ -1,0 +1,1 @@
+![[Proposition 197. This Kingdom, although visible with a world dominion, is also necessarily spiritual.]]

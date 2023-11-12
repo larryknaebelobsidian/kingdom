@@ -1,0 +1,1 @@
+![[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]]

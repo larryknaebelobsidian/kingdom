@@ -1,0 +1,1 @@
+![[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]]

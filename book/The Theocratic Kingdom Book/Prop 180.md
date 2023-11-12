@@ -1,0 +1,1 @@
+![[Proposition 180. This doctrine of the Kingdom will not be received, in faith, by the World.]]

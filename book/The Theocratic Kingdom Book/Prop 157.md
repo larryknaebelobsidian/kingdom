@@ -1,0 +1,1 @@
+![[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]]

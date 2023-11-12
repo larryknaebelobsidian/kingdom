@@ -1,0 +1,1 @@
+![[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers,.]]

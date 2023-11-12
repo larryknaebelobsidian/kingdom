@@ -1,0 +1,1 @@
+![[Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation.]]

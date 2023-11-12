@@ -1,0 +1,1 @@
+![[Proposition 138. This doctrine of the Kingdom fully corroborated by “the day of the Lord Jesus Christ.”]]

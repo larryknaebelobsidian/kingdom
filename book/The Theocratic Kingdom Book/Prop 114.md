@@ -1,0 +1,1 @@
+![[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]]

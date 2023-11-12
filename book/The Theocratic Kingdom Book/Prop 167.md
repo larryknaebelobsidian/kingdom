@@ -1,0 +1,1 @@
+![[Proposition 167. The re-establishment of this Kingdom embraces also the reception of a New Revelation of the Divine Will.]]

@@ -1,0 +1,1 @@
+![[Proposition 201. If a Kingdom, such as is covenanted to the Son of Man, David’s Son, is not set up, then God’s efforts at government in and through an earthly rulership proves a failure.]]

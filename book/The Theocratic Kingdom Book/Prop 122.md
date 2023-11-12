@@ -1,0 +1,1 @@
+![[Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine.]]

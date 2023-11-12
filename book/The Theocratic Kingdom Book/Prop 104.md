@@ -1,0 +1,1 @@
+![[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]]

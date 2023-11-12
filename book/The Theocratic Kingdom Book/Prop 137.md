@@ -1,0 +1,1 @@
+![[Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”]]

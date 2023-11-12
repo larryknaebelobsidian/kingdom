@@ -1,0 +1,1 @@
+![[Proposition 117. The Kingdom of God re-established will form a divinely appointed and visibly manifested Theocracy.]]

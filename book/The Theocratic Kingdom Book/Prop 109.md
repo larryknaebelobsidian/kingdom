@@ -1,0 +1,1 @@
+![[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]]

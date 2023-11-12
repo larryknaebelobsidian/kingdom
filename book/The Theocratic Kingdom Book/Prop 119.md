@@ -1,0 +1,1 @@
+![[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]]

@@ -1,0 +1,1 @@
+![[Proposition 106. Our doctrine of the Kingdom sustained by the temptation of Christ.]]

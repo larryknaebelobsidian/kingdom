@@ -1,0 +1,1 @@
+![[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]]

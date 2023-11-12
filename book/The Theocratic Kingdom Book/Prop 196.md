@@ -1,0 +1,1 @@
+![[Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.]]

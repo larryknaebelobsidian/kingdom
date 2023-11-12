@@ -1,0 +1,1 @@
+![[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.]]

@@ -1,0 +1,1 @@
+![[Proposition 155. This Kingdom exhibits Jesus, not only as the King, but as “the Priest.”]]

@@ -1,0 +1,1 @@
+![[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]]

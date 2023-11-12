@@ -1,0 +1,1 @@
+![[Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.]]

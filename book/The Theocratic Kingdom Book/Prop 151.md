@@ -1,0 +1,1 @@
+![[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]]

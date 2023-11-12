@@ -1,0 +1,1 @@
+![[Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]]

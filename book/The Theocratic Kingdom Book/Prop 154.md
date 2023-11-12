@@ -1,0 +1,1 @@
+![[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.]]

@@ -1,0 +1,1 @@
+![[Proposition 177. This doctrine of the Kingdom  will not be received, in faith, by the Church as a body.]]

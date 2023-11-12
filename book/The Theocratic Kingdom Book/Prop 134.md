@@ -1,0 +1,1 @@
+![[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]]

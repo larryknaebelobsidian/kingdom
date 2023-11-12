@@ -1,0 +1,1 @@
+![[Proposition 194. This doctrine of the Kingdom materially aids to explain the Worlds History.]]

@@ -1,0 +1,1 @@
+![[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]]

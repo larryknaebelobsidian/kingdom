@@ -1,0 +1,1 @@
+![[Proposition 200. While the Kingdom is given to Jesus Christ as the Son of Man, He becomes thereby the actual representative of God, manifesting God in the Person of One related to humanity.]]

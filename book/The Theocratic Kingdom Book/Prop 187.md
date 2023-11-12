@@ -1,0 +1,1 @@
+![[Proposition 187. This doctrine of the Kingdom gives coherency to the gospels, and indicates the unity of design in each of them.]]

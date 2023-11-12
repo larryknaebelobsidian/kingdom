@@ -1,0 +1,1 @@
+![[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]]

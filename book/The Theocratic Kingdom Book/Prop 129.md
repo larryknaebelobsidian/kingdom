@@ -1,0 +1,1 @@
+![[Proposition 129. The Jewish view of a Pre-Mill, resurrection requisite for the introduction of the Messianic Kingdom is fully sustained by the grammatical sense of the New Testament.]]

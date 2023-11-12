@@ -1,0 +1,1 @@
+![[Proposition 179. The doctrine of the Kingdom, or essentials of the same, are directly allied by various bodies with doctrines that are objectionable, and hence is made unpalatable to many.]]

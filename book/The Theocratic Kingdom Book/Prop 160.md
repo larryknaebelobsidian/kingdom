@@ -1,0 +1,1 @@
+![[Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.]]

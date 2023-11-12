@@ -1,0 +1,1 @@
+![[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]]

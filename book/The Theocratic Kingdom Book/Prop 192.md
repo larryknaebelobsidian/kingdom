@@ -1,0 +1,1 @@
+![[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]]

@@ -1,0 +1,1 @@
+![[Proposition 204. Such a view of the Kingdom gives definiteness and a continued exaltation to the human nature of Christ, and indicates the majestic relationship that it sustains throughout the ages to the race of man.]]

@@ -1,0 +1,1 @@
+![[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]]

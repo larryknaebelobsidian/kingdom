@@ -1,0 +1,1 @@
+![[Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it.]]

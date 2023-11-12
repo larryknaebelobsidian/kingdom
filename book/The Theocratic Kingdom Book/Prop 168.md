@@ -1,0 +1,1 @@
+![[Proposition 168. This Kingdom has its place of manifested royalty.]]

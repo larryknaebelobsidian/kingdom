@@ -1,0 +1,1 @@
+![[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]]

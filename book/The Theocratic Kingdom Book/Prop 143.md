@@ -1,0 +1,1 @@
+![[Proposition 143. The early church doctrine of the Kingdom is supported by “the Rest” or keeping of the Sabbath, mentioned by Paul.]]

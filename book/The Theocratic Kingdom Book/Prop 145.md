@@ -1,0 +1,1 @@
+![[Proposition 145. This Kingdom includes “the regeneration” of Matt 19 28.]]

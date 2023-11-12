@@ -1,0 +1,1 @@
+![[Proposition 148. This Kingdom embraces the new heavens and new earth.]]

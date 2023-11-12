@@ -1,0 +1,1 @@
+![[Proposition 178. This doctrine of the Kingdom, and its essentially related subjects, are so hostile to their faith, that numerous organized religious bodies totally reject them.]]
