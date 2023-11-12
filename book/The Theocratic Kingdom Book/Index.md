@@ -1,7 +1,7 @@
 ---
 longform:
   format: scenes
-  title: TheocraticKingdomBook
+  title: Notes on the Theocratic Kingdom
   workflow: Default Workflow
   sceneFolder: /
   scenes:
