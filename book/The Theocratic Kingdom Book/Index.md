@@ -5,7 +5,7 @@ longform:
   workflow: Default Workflow
   sceneFolder: /
   scenes:
-    - manuscript
+    - Title Page
     - Credits
     - List of Propositions
     - Prop 1

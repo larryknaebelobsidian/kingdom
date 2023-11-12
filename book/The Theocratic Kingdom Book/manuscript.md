@@ -1,7 +1,6 @@
-# Notes on "The Theocratic Kingdom"
+# Notes taken on The Theocratic Kingdom
 
-These are notes (mostly quotations) on George N. H. Peters great work "The Theocratic Kingdom".
-
+These are notes (***almost all direct quotations***) on George N. H. Peters great work "The Theocratic Kingdom" taken by Larry Knaebel.  A few personal notes are included. Peters work contains 206 propositions (i.e. chapters). Each proposition contains a set of observations.  Pericopes were added by me to most of the observations to attempt to aid me in the consumption of the vast amount of material.
 
 
 
@@ -18,10 +17,13 @@ Originally published in 1884 by Funk & Wagnalls, New York
 
 Library of Congress Catalog Card Number 72-88588
 
----
-Also used Kindle version (which does not contain any notes, resulting in about half the size of the hard copy) ASIN: **B00O6DZKP2**
-Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 2014.
 
+Some scripture passages were copied from the Legacy Standard Bible.
+LSB - Legacy Standard Bible
+Copyright © 2021 by The Lockman Foundation. All rights reserved.  
+Managed in partnership with Three Sixteen Publishing Inc. lsbible.org
+
+At other times, links to the free online version (https://read.lsbible.org) were used.
 
 ---
 
