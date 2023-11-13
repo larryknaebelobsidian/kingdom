@@ -10,8 +10,14 @@ by Baker Book House Company
 from the original printing
 entitled *The Millennium Bible*
 
-Below is a selective list of passages found in the book. 
+Below is a selected list of passages found in the book. 
 Only those seen by me as directly related to the second coming are shown.
+
+Unlike the book, Scripture passages in these selected passages are from the Legacy Standard Bible unless noted otherwise.
+LSB - Legacy Standard Bible
+Copyright © 2021 by The Lockman Foundation. All rights reserved.  
+Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
+Links to Scripture passages point to the free online version (https://read.lsbible.org) .
 ## Genesis
 ### 12
 #### Vers. 1-3. THE ABRAHAMIC COVENANT FORMED.
