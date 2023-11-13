@@ -55,23 +55,17 @@ Rev. 17:8
 > the contemplated final use of this world was allied with its origin.
 > p. 34 Vol 1 Prop. 2 note
 
+### Comprehended in the eternal counsels
+Obs. 1
 > Hence, we properly infer *the dignity* of this subject, comprehended in the eternal counsels and evolved from the ever-existing "purpose of Him, which worketh all things after the counsel of His own will."
 > p. 34 Vol. 1 Prop. 2 Obs. 1
 
 > King Edward VI.'s Catechism (Bickersteth's *Promised Glory*, p. 2), however it may explain it, correctly affirms : "Before the Lord God made heaven and earth, He determined to have for Himself a most beautiful kingdom and holy commonwealth." 
 > p. 34 Vol. 1 Prop. 2 Obs. 1 note
-
-> We also justly infer, that God's will thus expressed respecting the kingdom indicates *a Divine plan*, which, in view of His attributes, necessarily embraces *unity of design*.
-> p. 34 Vol. 1 Prop 2 Obs. 2
-
->God purposed this very earth, when founded, for this kingdom.
->p. 35 Vol. 1 Prop 2 Obs. 5
-
-### Comprehended in the eternal counsels
-Obs. 1
 ### Demonstrates Divine plan and unity of design
 Obs. 2
-
+> We also justly infer, that God's will thus expressed respecting the kingdom indicates *a Divine plan*, which, in view of His attributes, necessarily embraces *unity of design*.
+> p. 34 Vol. 1 Prop 2 Obs. 2
 ### Identified with eternal purpose and creation
 Obs. 3
 ### Divine determination notwithstanding the fall
