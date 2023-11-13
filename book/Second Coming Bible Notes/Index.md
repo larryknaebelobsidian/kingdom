@@ -2,7 +2,7 @@
 longform:
   format: scenes
   title: Second Coming Bible Notes
-  workflow: Default Workflow
+  workflow: SecondComingWF
   sceneFolder: /
   scenes:
     - Chap1
