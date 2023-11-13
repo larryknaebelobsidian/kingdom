@@ -5,8 +5,8 @@ longform:
   workflow: Default Workflow
   sceneFolder: /
   scenes:
-    - Title Page
-    - Credits
+    - TitlePage
+    - CreditPage
     - List of Propositions
     - Prop 1
     - Prop 2
@@ -214,5 +214,6 @@ longform:
     - Prop 204
     - Prop 205
     - Prop 206
-  ignoredFiles: []
+  ignoredFiles:
+    - generatedmanuscript
 ---

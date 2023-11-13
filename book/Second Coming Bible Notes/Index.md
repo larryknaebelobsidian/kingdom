@@ -5,6 +5,9 @@ longform:
   workflow: Default Workflow
   sceneFolder: /
   scenes:
-    - manuscript
-  ignoredFiles: []
+    - Chap1
+  ignoredFiles:
+    - Selected Quotations from The Theocratic Kingdom
+    - Secomd Coming Bible Notes
+    - generatedmanuscript
 ---
