@@ -1,8 +1,15 @@
-# Notes on The Theocratic Kingdom
+# Selected Quotations from "The Theocratic Kingdom"
 
-These are notes (***ALMOST ALL DIRECT QUOTATIONS***) on George N. H. Peters' great work "The Theocratic Kingdom" taken by Larry Knaebel.  A few personal notes are included. 
+It has been a pleasure spending my first full year of retirement taking a journey with George N. H. Peters to discover the wonders of the kingdom of heaven.  He continuously points his readers to the King of this kingdom, the God who purposed it, the Scriptures by which God reveals it, the long history of those who believe it as revealed and of those who do not.
 
-Peters' work contains 206 propositions (i.e. chapters). Each proposition contains a set of observations.  Pericopes were added by me to **most** of the observations. 
+I was briefly introduced to this work while taking a Bible class many years ago but was recently reminded of it while doing some other reading.  
+
+**The Theocratic Kingdom** contains 206 propositions (i.e. chapters) and each proposition contains a set of observations (i.e. sections).  The proposition titles themselves are masterfully stated and organized to deal with this major biblical topic and are worthy of memorization (although I have not).
+
+These are my selected quotations of George N. H. Peters' great work "The Theocratic Kingdom" .  Although I have inserted a very few personal notes and added pericopes to **most** of the observations  (this is still a work in progress) these are mainly quotations from Peters' three volume masterful work. 
+
+Larry J. Knaebel
+2023
 
 
 
@@ -20,12 +27,12 @@ Originally published in 1884 by Funk & Wagnalls, New York
 Library of Congress Catalog Card Number 72-88588
 
 
-Some scripture passages were copied from the Legacy Standard Bible.
+Scripture passages are from the Legacy Standard Bible unless noted otherwise.
 LSB - Legacy Standard Bible
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. lsbible.org
 
-At other times, links to the free online version (https://read.lsbible.org) were used.
+Links to Scripture passages point to the free online version (https://read.lsbible.org) .
 
 ---
 
