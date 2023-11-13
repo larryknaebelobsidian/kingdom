@@ -8,6 +8,8 @@ I was briefly introduced to this work while taking a Bible class many years ago 
 
 These are my selected quotations from George N. H. Peters' great work "The Theocratic Kingdom". Although I have inserted a very few personal notes and added pericopes to **most** of the observations (still a work in progress) these are mainly quotations from Peters' three volume masterful work. 
 
+My desire is to encourage others to take this journey with George N. H. Peters so they can come to trust and know the Lord and Savior Jesus Christ and grow in their hope of His return and kingdom.
+
 Larry J. Knaebel
 2023
 
