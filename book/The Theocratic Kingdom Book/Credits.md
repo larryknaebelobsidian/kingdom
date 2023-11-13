@@ -14,9 +14,9 @@ Also used [Kindle version](https://www.amazon.com/Theocratic-Kingdom-3-Set-ebook
 Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 2014.
 
 ---
-Some scripture passages were copied from the Legacy Standard Bible.
+Scripture passages are from the Legacy Standard Bible unless noted otherwise.
 LSB - Legacy Standard Bible
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
 
-At other times, links to the free online version (https://read.lsbible.org) were used.
+Links to Scripture passages point to the free online version (https://read.lsbible.org) .

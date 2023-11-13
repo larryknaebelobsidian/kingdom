@@ -1,7 +1,7 @@
 ---
 longform:
   format: scenes
-  title: Notes on the Theocratic Kingdom
+  title: Selected Quotations of the Theocratic Kingdom
   workflow: Default Workflow
   sceneFolder: /
   scenes:
