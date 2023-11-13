@@ -118,7 +118,7 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > - Chillingworth (*Works*, vol. 1, p.231)
 > p.  56 Vol. 1 Prop. 4 Obs. 4 note
 
-### Same rules
+### Same rules required
 
 > The interpretation of Scripture is to be conducted by the same rules applicable to the interpretation of a classical or profane author.
 > - Ernesti (*Inst. Interp. of the New Testament*)
