@@ -10,7 +10,7 @@ tags:
 
 >Attention is only called to the fact, that, explain it as we may, when this Theocratic-Davidic Kingdom is represented in the portrayal of the Millennial era as existing, it embraces a restoration of blessings forfeited by sin. The prophets instead of separating that age from this restitution, making the latter, as many suppose, a result to follow afterward, distinctly unite them. Now, this, as the argument thus far demands, is requisite to preserve the Divine order in the re-establishment of the Kingdom, seeing that it involves a resurrected, immortal David’s Son, resurrected and immortal Ruler, and the fulfilment of covenant promises designed when accomplished to remove evil, sorrow, suffering, etc.
 
-
+### 3 cautions
 >Three cautions are in place here: 
 >
 >(1) Not to disconnect what the prophets have linked together as belonging to the same period of time here on earth. 
@@ -19,7 +19,7 @@ tags:
 >
 >(3) Not to force an interpretation which is directly opposed by other Scriptures, and then leave the same without the least attempt at reconciliation.
 >p. 141 Vol. 2 Prop. 119 Obs. 1  reformatted
-
+### A brief summary of some forfeited blessings
 >Obs. 2. As it is our purpose merely to show how the Spirit locates the performance of these things (preparatory to following Propositions), a brief summary of some of them must suffice. 
 >1. Salvation is repeatedly predicated of this period. Indeed, the burden of prophecy concerning this era is Salvation, abundant and most glorious. God then is the Saviour—the Holy One of Israel is the Saviour, and Salvation comes to His people. And such is the significance of it, that it stands forth as the Salvation, the predicted, pre-eminent Salvation. Great is the number of passages bearing this impression, only a few of which we cite, sufficient to convey our idea, viz., such as Isa. 12:2; Isa. 49:26; Isa. 26:1; Isa. 35:4; Jer. 23:6; Jer. 30:7; Ezek. 37:23, etc. When this Mill, day comes, then, Isa. 25:9, “it shall be said in that day, Lo this is our God; we have waited for Him and He will save us; this is the Lord; we have waited for Him, we will be glad and rejoice in His salvation.” Salvation is likewise ascribed to the Sec. Advent, as e.g. Heb. 9:28, etc. 
 >2. Then is verified the promise (Gen. 3:15) that “the seed of the woman shall bruise the serpent’s head” (comp. Rom. 16:20 and Rev. 20:2, 3), Satan being bound, and the victory gained over him, all evil capable of injuring God’s people is removed, and this freedom from Satanic power is an exultant portion of these Mill, descriptions. So complete, too, is the same that no sorrow, crying, etc., is to be experienced. 
@@ -55,7 +55,7 @@ tags:
 >32. Happy old age, bride and bridegroom rejoicing, boys and girls playing, deaf blind, lame, etc., restored, fear absent—in brief, all the blessings that mortal man can properly desire are embraced in these portrayals, Zech. 8; Isa. 35; Isa. 33, etc. 
 >All these things are directly, by the Prophets, assigned to this very period of time.
 >Obs. 2 reformatted
-
+### Extended mention or more forfeited blessings
 >Obs. 3. But several particulars are, owing to their being so generally overlooked, worthy of more extended mention.
 >1. The fruitfulness of the land, Amos 9:13; Isa. 29:17; Ezek. 34:26, 27; Joel 3:18; Isa. 35:1-9; Hos. 2:21; Isa. 54:12, 13; Jer. 31:5, 6; Isa. 60:13-17; Zech. 8:12; Isa. 65:25; Ezek. 36:8, 29, 30, 35, etc. 
 >2. Great miracles will be preformed at that time, Isa. 11:15, 16; Zech. 14:4; Isa. 27:12; Micah 7:15; Isa. 19:20; Micah 2:12, 13, etc. 
@@ -68,21 +68,21 @@ tags:
 >9. Christ “shall be a priest upon His throne,” Zech. 6:13, being a priest forever after the order of Melchizedek (Ps. 110: 4). 
 >10. A materialistic element pervades the Millennial descriptions, chiefly confined to the Jewish and Gentile nations, and the earth.
 >Obs. 3 reformatted
-
+### Restoration identified with the kingdom of God
 >Obs. 4. Take all these particulars (others will hereafter be mentioned in detail), and see how they are identified with the Kingdom of God as it shall exist in the future.
 >...
 >So carefully does the Spirit corroborate our position, that in no case, chronologically or in any other way, is the least encouragement given to anticipate the re-bestowal of forfeited blessings anterior to the ushering in of this Kingdom, and accompanying Millennial bliss, by the Advent of Jesus Christ.
-
+### Folly of making millennial era one that is past
 >Obs. 5. The folly of making the Millennial era one that is past.
 >...
 >Therefore it happens, that the ablest writers in opposition to our views frankly concede that the Millennial era is still future.
-
+### Folly of making millennial era one of the present
 >Obs. 6. The same is true of the theory which ascribes this Millennial period to the present dispensation.
-
+### Folly of ignoring the subject
 >Obs. 7. This also teaches the absurdity of totally ignoring the subject, as if it were a species of exaggerated human prediction.
 >...
 >The Bible would be incomplete without it.
-
+### A completed story
 >Obs. 8. Now let the reader consider: 1. What would this earth have become if Adam had not fallen?
 >...
 >The very fact that the Millennium itself contains such inestimable blessings, honor, and glory, such a revelation of Divine majesty and goodness, such an ample deliverance from all evil and even death, such a restoration to God’s favor and nearness in Theocratic ordering, is sufficient evidence that our doctrinal position is impregnable. The unity of the Word, running from the fall to the Sec. Advent, demands, prompted by covenants and promise, impelled by the plain grammatical and God-given sense, this belief, so dear to the hearts of the martyrs of the early Church.
