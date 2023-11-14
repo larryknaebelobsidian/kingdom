@@ -11,6 +11,39 @@ tags:
   - toc
 ---
 # Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.
+
+>The contrary is asserted by all opposed to us, and as the Church-Kingdom view mainly obtains as a Scriptural basis its rise and defence from it, it deserves attention.
+### Preliminary thoughts
+>Obs. 1. A few preliminary thoughts are, however, in place. 
+>1. (1) The reader will recall our Prop, concerning the mysteries of the Kingdom. The parables were given respecting the secrets of the Kingdom and were in themselves designed to conceal some things that were necessary. Lange (Com., Matt. 13) correctly shows that the common notion (viz., that they were adapted to weak and carnal understandings) entertained, is erroneous. But Lange does not go far enough, for if we are to take the testimony of Jesus Himself, they were far from being designed for popular instruction, being in point of fact employed to conceal some very important truths. Jesus says that He spoke plainly to His disciples, but in parables to the people, clearly distinguishing between plain and hidden truth. In Matt. 13:13; Mark 4:11; Luke 8:10, He says that the parable is used that the people may not comprehend. The reason for this lies in their foreknown depravity and rejection of the Messiah, in their being unable to receive the intended postponement of the Kingdom and contemplated ingrafting of the Gentiles. To appreciate the parables in all their fulness it is absolutely necessary to keep in view the Covenant and the Divine Purpose in its fulfilment, as shown in previous Propositions. 
+>2. (2) The depth of these parables cannot be apprehended unless we especially keep in mind what afterward occurred, viz., the postponement of the Kingdom, which, impressed by the foreknowledge of Jesus, gave a coloring to them highly marked and distinctive. 
+>...
+
+>(3) If the parables delineate the Kingdom of God in the Church as now currently believed, why is it that the Apostles did not ascertain this fact and use them as now popularly employed?
+>Obs. 1
+
+>(4) In this discussion, the vital difference that exists between our view and that of others is, that we hold that the parables teach what is preparatory or introductory to the Kingdom, whilst they maintain that the parables refer directly to a Kingdom already in existence, and describe its condition, etc.
+>Obs. 1
+
+>(5) We are not to be understood as basing our doctrine on the parables,
+>Obs. 1
+
+>(6) Covenant and prophecy promise only one, and that a permanent, Kingdom to the Messiah, David’s Son. Nothing is said of an inferior and then superior one, of one existing before the Sec. Advent as a prelude to another, of several successive stages in a progressive direction;
+>Obs 1
+
+>The parabolic form is a convenient refuge for all mystical interpretations,
+>Obs. 1
+
+>(7) Again, it must be borne in mind that quite a number of the parables, as many writers (especially Greswell) have shown, are prophetical in their nature.
+>Obs. 1
+### Not the same as "God's reign in the heart", etc.
+>Obs. 2. If the Kingdom of God is what is so popularly represented, viz., “God’s rule,” or “God’s reign in the heart,” or “the body of believers,” then, as a matter of course, if they are synonymous, it would be appropriate to substitute one or the other of these in the place of the heading of the parables.
+
+>the Jews did not receive the truth because a spiritual Kingdom was presented in it for their acceptance, but for the reason that these parables, before the setting up of the Kingdom, imposed upon them preparatory duties and intimated a period of time to intervene, which was unpalatable to their hearts and expectations.
+>Obs. 2
+
+### Parables of "the Kingdom of Heaven"
+Obs. 3
 #### Tares and Wheat 
 [Matt. 13:24-30](https://read.lsbible.org/?q=matt+13%3A24-30)
 - the Kingdom that the Jews expected is to be introduced as follows; or the Kingdom of heaven that you anticipate requires the following
@@ -34,16 +67,16 @@ tags:
 - fully grown becomes a tree
 	- birds of air can nest in it
 	
-Peters notes
+Peters notes summary
 - promised Kingdom is not brought into existence at once; demands time and preparation
 - small beginning, great end
 - kingdom = mature tree (not seed, small bush)
 #### Leaven
 [Matt. 13:33](https://read.lsbible.org/?q=Matt.+13%3A33); [Luke 13:20-21](https://read.lsbible.org/?q=Luke+13%3A20-21)
-Peters notes
+Peters notes summary
 - leaven = word of God
 - 3 sata of flour = the complete collection of the saints
-
+##### Leavening process is preparatory
 >The most important of the parables is that of the Leaven
 >p. 22 Vol. 2 Prop. 108 Obs. 3 
 
@@ -100,7 +133,7 @@ Peters notes
 - reporting slaves
 - torturers
 
-Peters notes
+Peters notes summary
 - entrance **conditioned** on brotherly forgiveness
 - servants must **render account** to the King
 - **preparatory qualification** is requisite
@@ -113,7 +146,7 @@ Peters notes
 - hours - third, sixth, ninth, eleventh
 - foreman - calls laborers and pays
 
-Peters notes
+Peters notes summary
 - **preparatory service** is demanded
 - all will receive their **just dues**
 - certain things necessary before entrance given
@@ -138,7 +171,7 @@ Peters notes
 		- weeping and gnashing of teeth
 - many called, few chosen
 
-Peters notes
+Peters notes summary
 - parties are invited to the wedding
 - preliminary stage is introduced
 - postponement is indicated until a certain gathering is obtained
@@ -161,7 +194,7 @@ Peters notes
 - bridegroom responds, "I do not know you"
 - stay away
 
-Peters note
+Peters nots summary
 - period of separation
 - time of Kingdom = coming of Bridegroom = marriage
 - indefinite postponement
@@ -180,7 +213,7 @@ Peters note
 - outer darkness
 	- weeping and gnashing of teeth
 
-Peters notes
+Peters notes summary
 - preliminary, intervening period
 - allotment of specific duties
 - withdrawal into far country
@@ -199,7 +232,8 @@ Peters notes
 - bystanders
 - command to slay the nobleman's enemies
 
-Peters notes
+Peters notes summary
 - pertains to the appearance of the Kingdom
 - assigns to the faithful a rulership in His received Kingdom
-
+### Church-Kingdom theory engrafted on the parables
+>Obs. 4. It would be an easy matter to criticize the inconsistencies and contradictions engrafted on these parables by the Church-Kingdom theory, but such a course is not needed by our argument, seeing that they are readily detected and exposed.
