@@ -12,7 +12,7 @@ tags:
 # Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.
 
 >This follows legitimately in view of the mutual and inseparable relationship. The Theocratic-Davidic Kingdom committed to, and organized in, that nation, makes it the special depository of the trust of the Kingdom itself. It is covenanted to the nation, and only in and through the nation, by the power of David’s Son, will it be re-established, and from this establishment extend its sway over the nations of the earth. The result is, that the nation, so highly favored and honored, must, in virtue of so distinguished a relationship, sustain a certain well-defined pre-eminence among and over the other nations. It is the natural outgrowth of Covenant and promise; the result of Theocratic ordering.
-
+### Confirmed by direct teaching of the prophets
 >Obs. 1. This is abundantly confirmed by the direct teaching of the prophets.
 >...
 >Micah 4:8,“
@@ -20,9 +20,9 @@ tags:
 >To “be established in the top of the mountains” and to be “exalted above the hills” denotes supremacy; for mountains and hills, being symbolic of kingdoms and nations, the meaning is, that the first position among the nations, an elevation above all others, is assigned to this “mountain of the house of the Lord.”
 >...
 >Zech. 8:3;
-
+### Taught in Daniel 7
 >Obs. 2. The same is taught by Dan. 7:27, etc., which, while particularly describing the ascendency and rulership of “the people of the saints,” a peculiar and distinguished class (Props. 118 and 156), yet in virtue of their being also “the seed of Abraham,” grafted into the elected nation, it indicates, since this rulership is exercised at and during the restoration, that the dominion of power is to be attributed to connection with the King of the Jews, the fulfilment of the Abrahamic-Davidic Covenants, and the restoration of the nation. Hence “the greatness of the Kingdom under the whole heaven” given to them, only proves the exaltation of the Jews through the appointed Seed. The reigning of the twelve Apostles over the twelve tribes, the reign of the saints as coheirs with Christ, in the Davidic Kingdom, etc., enhances the pre-eminence and glory of the nation, through whom alone ail covenanted blessings can be obtained.
-
+### Many predictions
 >This is easily corroborated by an abundance of predictions, such as the following: 
 >1. By that class of passages in which “the horn” (symbol of power, etc.) of this nation shall be exalted, as e.g. Ps. 89:17-18; Ps. 148:14, etc. 
 >2. All nations then shall regard Jerusalem the centre of worship, Micah 4:2-3; Isa. 2:3; and notice, this in the same Jerusalem formerly destroyed. Let the reader refer to Zech. 14, and see the connection and the yearly worship at Jerusalem (v. 16), and the punishment threatened against those who refuse, and no other conclusion can be consistently formed than the one given by us. And indeed, if such a Theocratic-Davidic Kingdom as predicted is established, it is eminently suitable that, aside from the spiritual worship extending everywhere, there should be a national acknowledgment of nations through their representatives of the Theocratic King and Kingdom. It is not conceivable how such “a world-dominion” having its centre at one point can exist without a fixed public acknowledgment of it, etc. 
@@ -34,11 +34,11 @@ tags:
 >8. The nation shall be a praise among all nations, where it formerly was treated with derision. Thus Zeph. 3:19, 20, “I will get them praise and fame in every land where they have been put to shame. At that time will I bring you again, even in the time that I gather you, for I will make you a name and a praise among all people of the earth, when I turn back your captivity before your eyes, saith the Lord.” 
 >9. The Gentiles shall aid in glorifying this nation. Thus, e.g. Isa. 66:12. 10. Those nations that shall not acknowledge this supremacy shall perish. Thus e.g. Isa. 60:12; Zech. 14:12-19.
 >Obs. 2 reformatted
-
+### Jesus is the pre-eminent King
 >Obs. 3. The simple fact that Jesus, David’s Son, “the King of the Jews", is to be the Mighty King over them, evinces this pre-eminency.
-
+### Why?
 >Obs. 4. If the question is asked, why this supremacy is given to the Jewish nation in preference to all others, the answer is given Rom. 11:28, 29.
-
+### Other observations
 >Obs. 5. A number of observations on this interesting point might be appropriately made, which can only be indicated to the reader. 
 >1. (1) This pre-eminency among the nations of the earth shows that the position assumed by us concerning the wall of partition being broken down only between believers in Christ and not between the Jewish and Gentile nations, is well taken. 
 >2. (2) This work is of God, and will be witnessed by the nations as a confirmation of His power, etc., Ezek. 17:22-24, Isa. 52:1-10, etc. 
@@ -50,7 +50,7 @@ tags:
 >8. (8) The folly of being indifferent to, or totally ignoring, the predictions on this subject, just as if they were not given. 
 >9. (9) That if, as many advocate, the phrase “Times of the Gentiles,” is indicative of “Gentile domination,” then the cessation of these times would of itself indicate that such dominion would come to a close.
 >-- slightly reformatted
-
+### A stumbling block
 >Obs. 6. This supremacy of the Jewish nation is a stumbling-block to many (who misapprehend its connection with the saints, etc.), and the most bitter and sarcastic remarks are levelled against it.
-
+### Many Jewish achievers
 >Obs. 7. Milman (His. of the Jews), Wines (Com. on Laws), and others, have shown that past history records the fact that science, art, philosophy, history, jurisprudence, politics, statesmanship, finance, education, etc., are adorned with splendid Jewish names—names suggestive of vigorous intellect, large attainments, great skill, profound wisdom, and vast knowledge. If the Hebrew race in its dispersion, under its disabilities and humiliation among nations, has exhibited such talent, genius, energy, learning, enterprise, and power, what will they not become when restored to their own land under the peculiar and elevating guidance of their long expected, and at length arrived, Messiah?
