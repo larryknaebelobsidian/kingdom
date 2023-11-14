@@ -10,7 +10,7 @@ tags:
   - toc
 ---
 # Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.
-## Props Mentioned
+### Props Mentioned
 [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.|171]] 
 
 >the Theocratic king will also have His associated rulers assuring the moat ‘perfect administration of the laws, and securing the most perfect government, government, productive of peace, prosperity, and happiness, such as the world has never yet witnessed.
