@@ -8,10 +8,11 @@ tags:
 ---
 # Proposition 120. This Kingdom with its Millennial blessings can only be introduced through the power of God in Christ Jesus.
 
+### Christ is the introducer of the Millennial era
 >Obs. 1. That Christ is the Introducer of the Millennial era is so abundantly asserted by the Prophets that a large number of writers, opposed to our view, still admit that Christ must come at this period spiritually in extraordinary power.
-
+### Kingdom not introduced by present existing instrumentalities
 >Obs. 2. The multitude of writers, who so persistently proclaim that the Kingdom and Millennial blessedness shall be introduced by present existing instrumentalities, are in direct opposition to Scripture.
-
+### Sad opposition can be tested
 >Obs. 3. It is saddening to find how far this denial of the necessity of Christ’s Second Coming for purposes of Salvation is carried in our Theological literature. Men who would shrink from any impeachment of orthodoxy, or denial of truth, array themselves against Covenant promise under the misguiding influence of supposed developed truth.
 >...
 >>“Christ’s power to bless and save His people and protect them against the devil and sin is not in His Coming again on earth, but in His session at the right hand of God and His power there in their behalf,”
@@ -26,21 +27,21 @@ tags:
 >7. (7) to relieve creation, Rom. 8:19-21, etc.; 
 >8. (8) in brief, to introduce the numerous blessings which our argument evolves.
 >It is certainly sufficient, in order to prevent our accepting such contradictory utterances, to know that He comes for Salvation; and that that Coming is represented to be the most efficacious in removing sin and overcoming Satan.
-
+### The blessed hope
 >Obs. 4. On the other hand, it is refreshing to see even some of our most unrelenting opponents acknowledge the force of Scripture representation to the extent that they also make the Sec. Advent the most desirable object of hope, ascribing to it, as the Spirit does, divine purposes of Salvation.
 >...
 >Christ’s Sec. Coming is “the blessed hope” of the Church—that it is “the polar star” of faith—
-
+### Savior's even seen in other religions
 >Obs. 5. It is objected by unbelievers that the notion that some great Saviour is to come to restore all things, is found in other religions beside the Christian.
 >...
 >>in the system of Zoroaster mention is made of a future Restorer or Saviour, who is expected to come at the end of the age, restore the dead by a resurrection, and introduce a Kingdom of untroubled happiness, etc.
-
+### Removal of the curse requires higher power
 >Obs. 6. The most intelligent and profound thinkers of every age declare, that the removal of the self-evident curse (explain its introduction as they may) entailed upon the earth and its inhabitants, demands higher power and greater manifestations of Deity than now are exhibited.
 >...
 >>The scope of the Word asserts, that man is under the curse through his fallen condition, and that the evils arising therefrom are the work of Satan.
 >>...
 >>The Bible points to One alone who is to produce this change, viz., to “the Christ” who is revealed expressly “to destroy the works of the devil.
-
+### First Adam caused the curse, second Adam removes it
 >Obs. 7. The Bible attributes the curse, or introduction of evil, to the fall of the first Adam, and the removal of it to the second Adam, that is “the Christ.”
 
 >The record itself does not say that no evil previously existed in the earth, but positively asserts that evil did exist in Satan; and it was by this evil already present, and which came in contact with man, that the Fall was induced. Death itself was in existence, seeing that it is implied by the bestowal of the tree of life in Eden by which immortality could be obtained.
@@ -54,13 +55,13 @@ tags:
 
 >If the Bible had asserted that all the earth was an Eden, and that no evil and death had any previous existence, then science might find some leverage for its objection, but depending on opinions of men engrafted on the Word, it becomes futile and very unscientific.
 >Obs. 7
-
+### Restoration to Eden state
 >Obs. 8. This leads us to consider that a restoration to an Eden state involves the reproduction of an Eden immensely greater than the original.
 >...
 >And not only so, but in the new creative energy manifested at this period, there are intimations which seem to point to an enlargement of the earth itself.
-
+### Exhibition of the love of God
 >Obs. 9. This Kingdom designed to carry out and display the Redemptive process in its realization will exhibit in the highest degree the love of God through re-creative power and activity. No one doubts but that such love was strongly shown in creation, in the Incarnation, in Providential movements, etc., but all these, if we are to credit the Prophets, are only forerunners of a higher manifestation of His goodness when the consummation arrives.
-
+### Early church believed the advent of Christ brought deliverance
 >Obs. 10. May we not again remind the reader, how logically consistent the early Church was to attribute to Christ at His Sec. Advent this work of restoring all things through the power of His rule and Kingdom?
 >...
 >>neither Paul nor the other Apostles believed in a conversion of the world, but rather in its growing worse until the personal Advent of Christ brought deliverance.

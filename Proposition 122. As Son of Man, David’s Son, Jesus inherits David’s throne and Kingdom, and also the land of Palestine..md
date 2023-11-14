@@ -7,9 +7,9 @@ tags:
   - toc
 ---
 # Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine.
-
+### Christ is not now in the enjoyment of the inheritance
 >Obs. 1. Writers by confining themselves to the Divine Sovereignty and overlooking the specific promises to David’s Son, have Christ now in the enjoyment of the promised inheritance.
-
+### The inheritance
 >This Kingdom is declared to be 
 >1. “His inheritance” the Lord’s (1 Sam. 10:11): 
 >2. “mine inheritance” (2 Kings 21:14), 
@@ -24,7 +24,7 @@ tags:
 
 >not merely the throne and Kingdom but even the territory, the land itself, is claimed as part of this inheritance.
 >Obs. 2
-
+### Heir of Palestine
 >Obs. 3. Jesus, as David’s Son and the Theocratic Ruler with whom the Father is united and identified, is the Heir of Palestine.
 
 >It is natural to suppose that to a believer who accepts the Word as written by faith, the simple reason assigned in Ps. 132 would be sufficient to remove all objections; for David, after declaring God’s fixed determination confirmed by oath, “of the fruit of thy body will I set upon thy throne,” adds: “for the Lord hath chosen Zion; He hath desired it for His habitation. This is my rest forever; here will I dwell; for I have desired it”
@@ -34,14 +34,14 @@ Lev. 26
 Deut 32
 Ex. 15:17
 Ps 78:54
-
+### Absence for preparation
 >Obs. 4. The absence of the Lord as indicated by the parable of the nobleman; His concealment, as noticed by Isa. 49:2, during this period of removal, is only preparative to the final return and enforcement of His claims as the mighty and irresistible Heir.
-
+### Not typical
 >Obs. 5. The student will see that the inheritance covenanted is not typical of something else.
-
+### The key of David
 >Obs. 6. The continued covenanted relationship of Jesus to the throne and Kingdom of David is asserted in the last revelation given, as in the Apoc. 3:7, “He hath the Key of David.” This is indicative of the Messiahship, the Key (Horne’s lntrod., vol. 2, p. 466) being symbolical of “power or authority,” or (so Barnes, Com. loci, with which compare Bush, Lowth, Alexander, etc., and the Chaldee Targum on Isa. 22:22) rather of “regal authority,” “government.” It is equivalent to saying that He is the Theocratic King to whom David’s throne and Kingdom is given.
-
+### Future recognition
 >Obs. 7. The time will come, when this covenanted and predicted truth, now so ignored and perverted, will be fully recognized by earthly Kingdoms. And this recognition will be the real cause for the formidable array of the nations against the Christ at His open revelation, for they will be unwilling to yield to this re-establishment of the Theocratic-Davidic throne and Kingdom (comp. Props. 160, 161, 162, and 163).
-
+### Gandeur or failure
 >Obs. 8. It may be added: unless this Theocracy is restored in grandeur and glory, as covenanted and predicted, then God’s earthly government in the union of the civil and religious (Church and State) has, amid the Kingdoms of the earth, proven a failure (comp. Prop. 201).
 
