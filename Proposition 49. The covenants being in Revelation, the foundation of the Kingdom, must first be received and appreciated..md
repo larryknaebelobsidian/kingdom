@@ -13,6 +13,7 @@ tags:
 
 [[Abrahamic Covenant]]
 [[Davidic Covenant]]
+
 ## I. THE ABRAHAMIC COVENANT
 ### There are 24 observations by Peters in this section.
 
