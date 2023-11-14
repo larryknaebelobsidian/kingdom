@@ -10,7 +10,7 @@ tags:
   - toc
 ---
 # Proposition 162. This Kingdom will be preceded by a fearful time of trouble both in the Church and the World.
-## Props Mentioned
+### Props Mentioned
 [[Proposition 175. The doctrine of the Kingdom is greatly obscured and perverted by the prevailing one of the conversion of the world prior to the Advent of Jesus.|175]] [[Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth.|147]] [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”|133]] [[Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.|160]] [[Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown.|161]] [[Proposition 130. The Kingdom is preceded by a translation of the living saints.|130]] 
 
 >The rise and progress of the Antichrist, the acts performed by him, the persecution experienced under him, and the outpouring of God’s judgments, all embrace a series of trial and trouble unexampled in the history of the world.
@@ -18,7 +18,7 @@ tags:
 
 >the Bible does not tell us that down to the Sec. Advent the Gospel will be accepted by the masses, but exactly the reverse (Prop. 175, etc.).
 >p. 732 Vol. 2 Prop. 162
-
+### Immediately preceeding the open manifestation of Christ
 >That fearful times are immediately to precede the open manifestations of Jesus Christ was so distinctly taught in the Old Test, by various prophets and especially by Daniel, that the Jews universally held to a great time of trouble preceding the times of the Messiah.
 >p. 734 Vol. 2 Prop. 162 Obs. 2
 
@@ -30,7 +30,7 @@ tags:
 
 >from the Latter Confession of Helvetia (1566), XI Art., “Out of heaven the same Christ will return unto Judgment, even then, when wickedness shall chiefly reign in the world, and when Antichrist, having corrupted true religion, shall fill all things with superstition and impiety, and shall most cruelly destroy the Church with fire and bloodshed.”
 >p. 735 Vol. 2 Prop. 162 Obs. 2
-
+### All believers to endure a severe persecution under antichrist
 >All believers in Jesus Christ then existing shall endure a sharp and excessively severe persecution under Antichrist.
 >p. 738 Vol. 2 Prop. 162 Obs. 5
 
