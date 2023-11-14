@@ -11,18 +11,18 @@ tags:
 # Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.
 
 >The restored Theocratic Kingdom is a holy Kingdom. God Himself, in the Person of His Son, again condescends to act as earthly Ruler, but as He reveals Himself and His associated Rulers in a higher and more intimate personal relationship, and as the design is to make this a powerful and all-pervading Kingdom, those who stand nationally in a covenanted and elect relationship must become morally qualified for its establishment. Hence the predicted repentance and conversion of the nation.
-
+### Jewish conversion and restoration combined in Romans 11
 >Obs. 1. We have passed over Rom. 11, which combines the conversion and restoration. So self-evident is this, that our leading opponents concede this to us. Thus e.g. Dr. Brown (Com., Rom. 8, etc.) interprets the chapter as plainly teaching a national conversion and restoration of the Jews; he rejects its application to “individual Jews,” and insists upon a “national recovery of Israel.”
-
+### Result from personal coming of Jesus
 >Obs. 2. The conversion and the restoration both result from a personal Coming of Jesus. Paul informs us (Rom. 11:25, 26) that when the fulness of the Gentiles is come in, then the blindness befallen Israel shall also be removed, because (as the Jews believed), “there shall come out of Zion the Deliverer,” etc., owing, as our argument has shown, to the Covenant, “for this is my Covenant unto them,” etc.
-
+### Positively covenanted to Jews
 >Obs. 3. This repentance, over against Ernesti and others, is positively covenanted to them, Isa. 44:22, 23; Rom. 11:26, 27; Isa. 59:19, 20, 21; Jer. 31:2, 3, etc.
-
+### Actual Israel nation to repent and be restored
 >Obs. 4. The mention of this repentance and restoration is designed to meet the objection of some (e.g. Dr. Oswald, The Kingdom, and The Saints’ Inheritance by Hill) that only the spiritual Israel, dead and dying, are brought to the land and inherit it, and that the nation now dispersed, etc., is never to be restored.
-
+### Lack of discrimination is source of error
 >A fruitful source of error on the restoration arises from not discriminating between the saints and others, between the exalted brethren and coheir’s of Christ and the subjects over whom they reign with Christ, between the inheritors of the Kingdom and the Kingdom itself.
 >Obs. 4
-
+### Extraordinary repentance
 >It is no ordinary repentance, and not merely that of individuals, but extraordinary and national in its extent, Micah 7:15-20, etc. It is caused by 
 >1. the judgments of God, Mai. 3:2—4; Hos. 5:15; Isa. 30:18-19, and 
 >2. the personal presence of the King, Micah 2:12-13; Ezek. 20:33-44; Zeph. 3:15. 
@@ -31,7 +31,7 @@ tags:
 >5. The reign of the Messiah is intimately connected with it, as e.g. in Jer. 23:3-8; Ezek. 34:23-31, etc. 
 >The absence of such national repentance for the last eighteen hundred years is no proof that it never will be accomplished. On the other hand, it is decisive that it will yet come to pass, if we but consider that this very absence of repentance—excepting in individual cases—this “veil” of unbelief covering them, is also predicted.
 >Obs. 5 reformatted
-
+### Order of repentance
 >Obs. 6. The attention of the reader is called, briefly, to the order of repentance as foretold by the Divine Spirit.
 
 >Now, first of all, the fact must be kept in view that a part of the Jewish nation (those of Judah and Benjamin) is restored to the land and occupy Jerusalem previous to the open Parousia of Jesus with His saints.
