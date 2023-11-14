@@ -11,7 +11,7 @@ tags:
   - toc
 ---
 # Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”
-## Props Mentioned
+### Props Mentioned
 [[Proposition 115. The Kingdom is not established without a period of violence or war.|115]] [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.|123]] [[Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth.|147]] [[Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.|160]] [[Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown.|161]] [[Proposition 162. This Kingdom will be preceded by a fearful time of trouble both in the Church and the World.|162]] [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.|166]] 
 
 >This Proposition is given not to prove that a great conflict will ensue between Antichrist with his confederated forces and the Lord Jesus Christ and His army (for this has been done in previous Propositions, as e.g. Props. 115, 123, etc., and is too plainly predicted, as e.g. Rev. 19:15-21; Rev. 17:14, and 16:14, etc., to require additional notice, but to direct attention to some particulars connected with it.
