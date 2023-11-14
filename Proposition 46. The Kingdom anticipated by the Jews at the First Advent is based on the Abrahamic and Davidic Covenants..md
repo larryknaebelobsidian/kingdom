@@ -20,14 +20,14 @@ Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https:/
 >This might be shown by numerous references, but it will be sufficiently conspicuous by adverting to the declarations found in only one chapter of the New Testament. Thus, e.g., Luke 1:32, 33, 55, 72, 73, where we have undoubted allusions to previously obtained covenants, in “the mercy promised to the fathers,” in “the holy covenant” confirmed by’ oath “to our father Abraham,” and in “the throne of his father David.”
 >p. 285 Vol. 1 Prop. 46
 
-## Luke 1:32, 33
+### Luke 1:32, 33
 He will be great and will be called the Son of the Most High, and the Lord God will give Him the throne of His father David, 33 and He will reign over the house of Jacob forever, and there will be no end of His kingdom.”
 
-## Luke 1:55
+### Luke 1:55
 As He spoke to our fathers,
 To Abraham and his seed forever.”
 
-## Luke 1:72, 73
+### Luke 1:72, 73
 72 To show mercy toward our fathers,
 And to remember His holy covenant,
 73 The oath which He swore to Abraham our father,
