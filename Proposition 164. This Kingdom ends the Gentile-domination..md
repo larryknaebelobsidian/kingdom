@@ -37,9 +37,9 @@ tags:
 >Obs. 4
 ### Leads to glory of the Gentile nations
 >Obs. 6. But the nations, in their selfishness and opposition to the truth, refused to recognize what at the same time is so plainly revealed, viz., that while Gentile domination ceases, it simply ceases because the new order or dominion introduced is immensely its superior in securing the happiness and glory of the Gentile nations.
-
+### Spoken of guardedly to avoid hostility
 >Obs. 7. Reference has been made several times to the guarded manner in which the primitive Christians, including even Jesus and the apostles, spoke of the downfall of Gentile dominion. This was done in order to avoid the hostility and persecution of the Roman Emperors. Yet the view was more or less distinctly proclaimed by the believers, and was one reason why the millenarian doctrine fell into disrepute, especially after a union of State and Church, with those in power.
-
+### Theocratic King born when gentile domination was at its height
 >Obs. 8. The reader may regard it as significant that the Theocratic King was born at the very time that the Gentile dominion was in its most extended and consolidated form.
 
 >when Jesus, “the Christ,” appeared and tendered the Kingdom to the elect nation (Props. 54, 55, etc.) which, if accepted (by a national repentance), would nave broken the Roman Power with irresistible force.
@@ -47,9 +47,9 @@ tags:
 
 >When He comes again, the time selected is also one in which this Gentile dominion shall be manifested in a vast confederation (Prop. 160, etc.), and when, humanely speaking, the Church shall so experience its persecuting power that no hope for its continuance appears possible.
 >Obs. 8
-
+### No christian nation has ever existed among the Gentiles
 >Obs: 9. It is a significant fact, fully attested by history, past and present, that no Christian nation has ever existed among the Gentiles.
-
+### No approval from God on any other government
 >Obs. 10. The reader will not fail (which we repeat, in order to impress) to observe, that while civil government is ordained by God as something that necessarily proceeds from the nature of man and of society (next Prop.), yet as the forms of it are of man’s ordinance, and subject more or less to depravity, God has nowhere, excepting only the Theocratic form, given His approval to any special one.
-
+### Administered through righteous and glorified agents
 >Obs. 11. Turning back to Props. 131, 154, 159, and others (e. g. Prop. 201,202, 206,etc.) of similar import, it will be seen that a Theocracy embracing a pure Infallibility, administered through righteous and glorified agents, is to possess the rule over the earth.
