@@ -10,19 +10,19 @@ tags:
   - toc
 ---
 # Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.
-
+### When Roman empire divided into ten-toed form
 >Without repeating the reasoning elsewhere given, it is sufficient to say that this Kingdom, according to Daniel 7, is received by the Son of man after the Fourth Beast or Roman Empire is divided; after the rise of the ten horns and little horn, and at the very time that the judgments of God are to be poured out upon the divided Empire. The First Advent took place when the Empire was consolidated, the Second will occur when it is divided into its ten-toed form; for the smiting is upon the feet of the image, the reception and inheriting of the Kingdom is after the saints have long suffered from the arrogance, etc., of the powers arising out of this Empire, and these powers are to meet an awful infliction of tribulation.
 >Obs. 1
-
+### Historical tracing
 >we have a continuous headship of the Roman Empire existing from the days of Augustus down to A.D. 1806, and in connection with it, descended also from the divided state of the Empire, the Papacy with its claims Empire derived.
 >Obs. 2
 
-
+### A theory
 >Obs. 3. It would be well if the Church, until a better explanation is given, would carefully note the interpretation presented by G. S. Faber in his Revival of the French Emperorship.
 
 >Prudence dictates that we do not dogmatically express ourselves on such points, but that we seek light from all directions and ponder well the interpretations and hints given, and see how they will correspond with the development of history.
 >Obs. 3
-
+### In divided state, for a time headless
 >Obs. 4. It is in the divided state of the Roman Empire that we are to find it, for a time, headless, i.e. without a leading civil, imperial form of government.
 
 >Every effort to call away the attention of believers from the Roman to some other power as the head around whom the Antichristian forces shall father, is in so far a departure from the plain truth, no matter how plausibly represented or ingeniously portrayed.
