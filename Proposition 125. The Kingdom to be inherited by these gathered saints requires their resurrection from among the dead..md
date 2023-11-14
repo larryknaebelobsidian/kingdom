@@ -10,15 +10,15 @@ tags:
   - toc
 ---
 # Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.
-## Props Mentioned
+### Props Mentioned
 [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”|163]] [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.|49]] 
 
 >We have conclusively shown that the covenant necessitates a resurrection; that the description of David’s Son, who is to reign, demands a descendant of David possessing, in some way, immortality, seeing that His rule is everlasting, thus implying a resurrection—that a resurrection is predicted of Him, etc.—and now the fair inference is that those selected to be His co-heirs, being gathered out during a long period of time, and having died “without receiving the promises,” must also experience the power of the resurrection before they can inherit the Kingdom of God.
 >p. 227 Vol 2 Prop. 125
-
+### First the kingdom, then the reception and enjoyment of it
 >Leaving the proof of this union of resurrection and Kingdom for the following Propositions (as we only desire now to introduce the subject of the resurrection), every reader, keeping in view that Christ’s appearing and Kingdom are united, 2 Tim. 4:1, that a resurrection follows His Second Advent, and that an inheriting of the Kingdom succeeds this appearing and resurrection, must concede that when the righteous “are recompensed at the resurrection of the just” (Luke 14:14), this also includes the inheriting of a Kingdom. So that, for the present, we are content with *the general tenor* of the Word, indicating *first* a resurrection and *then* the reception and enjoyment of a Kingdom.
 >p. 227 Vol 2 Prop. 125 Obs. 1
-
+### Waiting until the Day of Redemption
 >All along, the position has been taken that, owing to the postponement of the Kingdom, *a preliminary* dispensation of grace to us Gentiles has intervened, and that even the dead saints, whatever their position in this interval, are *waiting* until “*the day of Redemption*” the time of the resurrection for their inheritance, etc. This is confirmed by the language of Paul in 1 Cor. 15:32, who lays the greatest stress on the resurrection as *the necessary and appointed means* by which the blessings that are covenanted can be obtained.
 >p. 227 Vol 2 Prop. 125 Obs. 2
 
@@ -27,7 +27,7 @@ tags:
 
 >Hence, being penal and a result of the fall, perfect redemption through a perfect Redeemer must recover us from the same. (Comp. Prop. 163)
 >p. 228 Vol 2 Prop. 125 Obs. 2 Note
-
+### Literal, corporeal, bodily resurrection
 >This resurrection includes *a resurrection of dead saints*, or, in other words, is a *corporeal, literal* resurrection.
 >. . .
 >an undoubted, veritable resurrection of *the bodies* of dead saints, *sufficiently distinctive* to preserve personal identity, and to make it recognizable to others as a real restoration from the dead.
@@ -65,7 +65,7 @@ tags:
 
 >The Church is rapidly drifting away from the idea of a corporeal resurrection.
 >p. 230 Vol 2 Prop. 125 Obs. 3 note
-
+### Attempts to change its meaning
 >men have endeavored either to spiritualize the language, or to explain it away as an accommodation, or to refer it to the bestowment of something new immediately after death.
 >p. 230 Vol 2 Prop. 125 Obs. 4
 
@@ -80,14 +80,14 @@ tags:
 
 >if a spiritual resurrection or existence beyond the grave is meant by the resurrection, no word could have been selected better calculated *to deceive* hearers and readers.
 >p. 230 Vol 2 Prop. 125 Obs. 4
-
+### Pious Jews believed in the resurrection at the coming of Messiah
 >An important feature that ought to be noticed in this discussion, is this: Commentators and others quote largely from the writings of the Jews, showing that they derived from the Old Testament the belief that the pious dead would be raised up *at the Coming* of the Messiah, and that they would remain with Him *here on earth* in His Kingdom.
 >p. 234-235 Vol 2 Prop. 125 Obs. 5
-
+### Requires faith
 >But in view of the variety of theory concerning the resurrection, something more must be stated. Many writers refine the resurrection by using it as a figurative expression, so that it is constituted something coeval with the history of the Church; or as an accommodation denoting the unfolding of greater capacities and newer powers; or as indicative of an inner body or life continued after death, making death *not penal*, but necessary and friendly to the development of life; or, as the reception of something exclusively spiritual, either the complete transformation of the material into spirit or the union of two spiritual natures into one. There is *no end* to the variety and scope of mystical language in this direction, and under the guidance of men of learning and genius, it becomes bewildering. But all such notions, however learnedly and eloquently expressed, are opposed to the simple idea of the resurrection as entertained by the Jews and early Christians, and as represented in the Scriptures. We frankly admit that the subject is one *of faith*, and thus accept of it; but, at the same time, a solid foundation sustaining such faith is produced.
 >p. 236 Vol 2 Prop. 125 Obs. 6
-
->Leaving the connection that it has with the body itself in the grave, with the corporeal resurrection of Jesus, with the meaning of the word anastasis anastasis as aptly given by Pearson on the Creed, with the corporeal resurrection of some after the crucifixion, etc., we plant ourselves on the “*redemption of the body*” (Rom. 8:23), which clearly teaches that *not another body* is given and glorified, but *the same body*, made subject by sin to death and corruption, is raised up again and given immortality and renewed (even spiritualized) powers and capacities. We still have faith to accept of the scriptural statements that death is *penal* in its nature, that it is *an enemy* and not a friendly messenger to introduce a spiritual resurrection, or to bestow the inheritance, crown, and Kingdom, We are old-fashioned enough in our belief to cling *with hope* to that day beyond the intermediate period or state, when *the redemption of the body* will also be effected. And this, *because we rest on a perfect, complete Redemption*. Our Saviour is *a perfect Redeemer*; and the early Christians evinced not only *faith* but *logic* when they claimed in and through Him “*the Redemption of the body*.” Everything else that man and the race forfeited by sin is restored through Christ, and we can make *no exception* in favor of the body, given over to death and corruption, without making Redemption *in so far incomplete*, and giving in this particular the victory and triumph to Satan. We dare not *limit* the redemption of the believer, seeing that God designs and has promised, through Christ, *a complete restoration to all forfeited blessings*; and even superadds to the same, in virtue of relationship to the Redeemer, increased exaltation and glory. Hence, every theory, however plausible, and no matter by whom advocated, that proceeds *to limit Redemption, the work of Christ, must be rejected as irreconcilable with the honor, power, etc. of God in Redemption*.
+### The same body, not another one
+>Leaving the connection that it has with the body itself in the grave, with the corporeal resurrection of Jesus, with the meaning of the word anastasis as aptly given by Pearson on the Creed, with the corporeal resurrection of some after the crucifixion, etc., we plant ourselves on the “*redemption of the body*” (Rom. 8:23), which clearly teaches that *not another body* is given and glorified, but *the same body*, made subject by sin to death and corruption, is raised up again and given immortality and renewed (even spiritualized) powers and capacities. We still have faith to accept of the scriptural statements that death is *penal* in its nature, that it is *an enemy* and not a friendly messenger to introduce a spiritual resurrection, or to bestow the inheritance, crown, and Kingdom, We are old-fashioned enough in our belief to cling *with hope* to that day beyond the intermediate period or state, when *the redemption of the body* will also be effected. And this, *because we rest on a perfect, complete Redemption*. Our Saviour is *a perfect Redeemer*; and the early Christians evinced not only *faith* but *logic* when they claimed in and through Him “*the Redemption of the body*.” Everything else that man and the race forfeited by sin is restored through Christ, and we can make *no exception* in favor of the body, given over to death and corruption, without making Redemption *in so far incomplete*, and giving in this particular the victory and triumph to Satan. We dare not *limit* the redemption of the believer, seeing that God designs and has promised, through Christ, *a complete restoration to all forfeited blessings*; and even superadds to the same, in virtue of relationship to the Redeemer, increased exaltation and glory. Hence, every theory, however plausible, and no matter by whom advocated, that proceeds *to limit Redemption, the work of Christ, must be rejected as irreconcilable with the honor, power, etc. of God in Redemption*.
 >p. 236-237 Vol 2 Prop. 125 Obs. 6
 
 

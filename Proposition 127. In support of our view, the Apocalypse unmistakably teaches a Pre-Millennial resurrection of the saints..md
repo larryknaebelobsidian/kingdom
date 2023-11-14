@@ -10,14 +10,16 @@ tags:
   - toc
 ---
 # Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.
-## Props Mentioned
+### Props Mentioned
 [[Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.|75]] [[Proposition 77. The doctrine of the Kingdom, as held by the early church was finally almost exterminated under the teaching and power of the Papacy.|77]] [[Proposition 78. The early church doctrine was revived after the Reformation.|78]] [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.|134]] 
 
-### Rev. 11:18 - Obs. 1
+### Rev. 11:18
+Obs. 1
 
-### Rev. 20:1-6 - Obs. 2
+### Rev. 20:1-6
+Obs. 2
 
-### Souls - Obs. 3
+### Souls
 >The very persons (not others) killed by the beast are the ones who live and reign during the thousand years.
 >p. 268 Vol. 2 Prop. 127 Obs. 3
 
