@@ -141,7 +141,7 @@ Proposition 138. This doctrine of the Kingdom fully corroborated by “the day o
 Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”   
 Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”   
 Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.   
-Proposition 142. The Kingdom being related to the earth (extending over it), and involving the res. of the saints (in order to inherit it), ts sustained by the promise to the saints of their inheriting the earth.   
+Proposition 142. The Kingdom being related to the earth (extending over it), and involving the res. of the saints (in order to inherit it), is sustained by the promise to the saints of their inheriting the earth.   
 Proposition 143. The early church doctrine of the Kingdom is supported by “the Rest” or keeping of the Sabbath, mentioned by Paul.   
 Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.  
 Proposition 145. This Kingdom includes “the regeneration” of Matt 19 28.   
