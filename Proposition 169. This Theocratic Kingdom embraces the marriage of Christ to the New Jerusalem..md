@@ -9,7 +9,7 @@ tags:
 # Proposition 169. This Theocratic Kingdom embraces the marriage of Christ to the New Jerusalem.
 
 >Our object under this heading is merely to show who the Bride is, and to explain what is meant by the marriage relation.
-
+### Bride is the New Jerusalem
 >Obs. 1. The Bride is the city New Jerusalem, for a city is in prophetical language, (as well as in that of other writers), personified by a woman or virgin.
 
 Attempted interpretations of the New Jerusalem
@@ -40,9 +40,9 @@ Attempted interpretations of the New Jerusalem
 >But that the saints are not denoted, and that the reference is to a material city, is found in the fact that the saints are represented (Rev. 19:9) when the marriage (i.e. this setting up of the Theocratic Throne) takes place as guests, the called or invited, who enjoy the marriage supper, the feast that the prophets describe. They cannot be, in this case, the Guests and the Bride at the same time;
 >...
 >believers are the invited guests, the called, who are virgins waiting for the Bridegroom and Bride, and who have on the wedding garment not as the Bride but as guests who now participate in and enjoy the unbounded blessings resulting from this splendidly restored Theocratic enthronement in a city prepared for the King.
-
+### Immense size of the city
 >Obs. 3. The immense size of the city forms in the minds of many the most formidable objection to the reception of the description as representative of a real, literal city.
-
+### On the earth, at Jerusalem
 >Obs. 4. The restoration of the Davidic throne and the occupation of it by David’s Son, necessarily includes the fact, so plainly predicted by the prophets, that when the Messiah comes to reign, He will set up His throne at the same place formerly occupied by David’s throne. This throne was not in the third heaven” and not “in the air above the earth” but was located on the earth, in Palestine, at Jerusalem.
 
 >The Theocratic relationship is not fully restored without this feature, and the inheritance of David’s Son is not possessed unless Zion’s hill is again occupied by Him.
