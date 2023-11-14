@@ -9,25 +9,25 @@ tags:
 # Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth.
 
 >the entire analogy of prediction demands a visible reign.
-
+### Not doubted until the Alexandrian system
 >Obs. 1. So distinctly is this taught that no Jew, no Christian believer, no one who read the Scriptures doubted this, until the Alexandrian system evolved a series of doctrines, under the notion of exalting the truth and the Son, in which the throne promised to David’s Son was transformed into a throne in the third heaven.
-
->Obs. 2. Having in previous Propositions shown with sufficient distinctness that David’s Son, Jesus in His humanity, mast, if the prophecies are fulfilled, appear in a visible reign; that He does thus manifest Himself to the sight of all, it is unnecessary (as coming Propositions will materially add reasons for our doctrine to those already given) to enter into a detailed argument, since it is nowhere asserted that the visibility thus exhibited shall ever be withdrawn, withdrawn, and since the denial of such a visible reign is one of pure inference. No one, that we are aware of, has ever yet presented a passage of Scripture to prove the invisibility of the reign in the future.
-
+### Visible
+>Obs. 2. Having in previous Propositions shown with sufficient distinctness that David’s Son, Jesus in His humanity, must, if the prophecies are fulfilled, appear in a visible reign; that He does thus manifest Himself to the sight of all, it is unnecessary (as coming Propositions will materially add reasons for our doctrine to those already given) to enter into a detailed argument, since it is nowhere asserted that the visibility thus exhibited shall ever be withdrawn, withdrawn, and since the denial of such a visible reign is one of pure inference. No one, that we are aware of, has ever yet presented a passage of Scripture to prove the invisibility of the reign in the future.
+### Contradictory oppositions
 >Obs. 3. To indicate how persons in their eagerness to deny a visible, personal reign on earth of Christ allow themselves to use unwarranted language (even to deny the personal return to the earth), language which they themselves contradict, we refer e.g. to Barnes, Com. on 1 Thess. 4:16, where in his remarks he says: “There is no intimation here of ‘a personal reign’ of Christ upon earth. Indeed, there is no evidence that He will return to the earth at all,” and then he proceeds to place Christ, the saints, the wicked, the living, and the dead in “the regions of the air.” This sounds very much like one of the old monkish legends, and is unworthy of so able a man.
 
->Neither Barnes nor any other writer has been able to adduce a single passage to support their theory of Christ’s Sec. Advent and .immediate return to heaven.
+>Neither Barnes nor any other writer has been able to adduce a single passage to support their theory of Christ’s Sec. Advent and immediate return to heaven.
 >Obs. 3
-
+### Bad judgement
 >Obs. 4. In the discussion of this personal return and reign it is saddening to find good persons placing themselves on the judgment seat, and dogmatically deciding what it is possible or impossible for God to perform.
-
+### "Carnal", "fleshy" accusations
 >Obs. 5. It becomes painful to notice, in the objections levelled against us, the serious and unfounded change of “carnal, “fleshly,” etc.
-
+### Efforts to disprove us by Scripture
 >Obs. 6. Briefly, the feeble efforts at presenting proof against us drawn from Scripture
 
 >Thus e.g. a comparison of Covenant, Zech. 14, Dan. 7, Isa. 25, and Rev. 20:1-6, is alone sufficient to decide the kind of reign intended.
 >Obs. 6
-
+### Timid, illogical and unscriptural advocates
 >Obs. 7. Some (esteemed brethren) who frankly admit and earnestly advocate the Pre-Millennial Personal Advent, still express themselves timidly, illogically, and unscripturally in reference to the personal reign of Christ here on the earth.
 
 >Some few advocating, after His Sec. Advent, His withdrawal to the third heaven, from whence He reigns (some stating that He may occasionally visit the earth and appear to men); others have a withdrawal into the air or upper regions, or into the New Jerusalem, also located in the air or above the earth.
