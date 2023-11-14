@@ -25,6 +25,7 @@ tags:
 >Obs. 9. This Kingdom was not preached to the people immediately before John the Baptist came. Luke (16:16) says that Jesus declared’: “The law and the prophets were until John; since that time the Kingdom of God is preached.” in whatever way this is explained (see Judge Jones’s Notes, p. no, etc., and Com. on Matt. 11:12, 13), it certainly implies a period of time preceding when the Kingdom was not directly offered for acceptance. The legitimate inference follows, that it was not in existence. It was, indeed, predicted, promised, believed in, and expected, but it was not authoritatively offered for present acceptance and realization, as was done by John and those following him.
 ### John's language demonstrates that the kingdom did not exist during his days.
 >Obs. 10. That the Kingdom did not thus exist, is very apparent from the language of John himself (Matt. 3:2): “Repent ye, for the Kingdom of heaven is at hand,” implying, forcibly, that for some time it had not been near, seeing that it now drew nigh.
-### Pre-Millenianism (kingdom after Christ's return) endorsed by many able theologians
+
+### Endorsed by many able theologians
 >Obs. 12. Many able theologians fully indorse our Proposition as a self-evident fact.
 
