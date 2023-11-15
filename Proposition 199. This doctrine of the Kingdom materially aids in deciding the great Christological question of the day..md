@@ -7,7 +7,7 @@ tags:
   - toc
 ---
 # Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.
-## What think ye of Christ?
+### What think ye of Christ?
 
 >It has been justly remarked by many writers that the question that Jesus asked (Matt. 22:42) the assembled Pharisees: “What think ye of Christ?” is the great question of the day, seeing that the attack upon and the defence of Christianity, for the last twenty or more years, has centered upon the Person of Jesus Christ.
 
