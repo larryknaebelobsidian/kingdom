@@ -33,7 +33,7 @@ Romans 9:11
 > This election is not to be regarded, as some tell us, an act of favoritism, but as founded in *that wisdom* which adopted it (as the end will manifest) as the best means, under the circumstances in which fallen humanity was placed, to reach, consistently with moral freedom, the largest portion of mankind, having in view the ultimate establishment and triumph -- in opposition to depravity -- of God's Kingdom.
 > p. 207 Vol. 1 Prop. 24
 
-## The Reason for Election
+### The Reason for Election
 Deut. 7:7-11
 7 “Yahweh did not set His affection on you nor choose you because you were more in number than any of the peoples, for you were the fewest of all peoples, 8 but because Yahweh loved you and kept the oath which He swore to your fathers, Yahweh brought you out with a strong hand and redeemed you from the house of slavery, from the hand of Pharaoh king of Egypt. 9 You shall know therefore that Yahweh your God, He is God, the faithful God, who keeps His covenant and His lovingkindness to a thousand generations with those who love Him and keep His commandments; 10 but repays those who hate Him to their faces, to make them perish; He will not delay with him who hates Him, He will repay him to his face. 11 Therefore, you shall keep the commandment and the statutes and the judgments which I am commanding you today, to do them.
 
