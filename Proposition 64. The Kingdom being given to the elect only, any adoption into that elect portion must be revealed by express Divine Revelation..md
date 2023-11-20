@@ -18,6 +18,6 @@ tags:
 ### "Too Jewish" accusation
 >Obs. 3. Various authors of eminence have unjustly accused the apostles, and especially Peter, of being “too Jewish” in their views respecting the call of the Gentiles. But in the light of the covenants and the election, how, we ask, could they be otherwise?
 ### "A mystery"
->Obs. 4. The pronouncing, by Paul, of this election of Gentile believers as “a mystery,”—something, which, in view of the elected position of the Jews, was unexplained and to human reason inexplicable,—confirm our line of reasoning. That which made “the mystery,” was the sole and exclusive promise riven to the seed of Abraham; the solving of “the mystery,” was the making known how the Gentiles could be incorporated with the elect nation.
+>Obs. 4. The pronouncing, by Paul, of this election of Gentile believers as “a mystery,”—something, which, in view of the elected position of the Jews, was unexplained and to human reason inexplicable,—confirm our line of reasoning. That which made “the mystery,” was the sole and exclusive promise given to the seed of Abraham; the solving of “the mystery,” was the making known how the Gentiles could be incorporated with the elect nation.
 ### Jesus' words not understood before his death
 >Obs. 5. Even the intimations given by Jesus, before his death, could not break in the minds of the disciples the force of this exclusive promise, until it was also shown how the Gentiles could become the seed of Abraham without observing the rites, etc., of a previously ordained proselytism.
