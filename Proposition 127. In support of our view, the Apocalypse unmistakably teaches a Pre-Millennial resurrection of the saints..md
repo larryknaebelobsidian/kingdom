@@ -12,13 +12,14 @@ tags:
 # Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.
 ### Props Mentioned
 [[Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.|75]] [[Proposition 77. The doctrine of the Kingdom, as held by the early church was finally almost exterminated under the teaching and power of the Papacy.|77]] [[Proposition 78. The early church doctrine was revived after the Reformation.|78]] [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.|134]] 
-
 ### Rev. 11:18
 Obs. 1
-
+And the nations were enraged, and Your rage came, and the time _came_ for the dead to be judged, and to give reward to Your slaves—the prophets and the saints and those who fear Your name, the small and the great—and to destroy those who destroy the earth.
+-LSB
 ### Rev. 20:1-6
 Obs. 2
-
+Then I saw an angel coming down from heaven, having the key of the abyss and a great chain in his hand. 2 And he laid hold of the dragon, the serpent of old, who is the devil and Satan, and bound him for a thousand years; 3 and he threw him into the abyss, and shut _it_ and sealed _it_ over him, so that he would not deceive the nations any longer, until the thousand years were finished. After these things he must be released for a short time. 4 Then I saw thrones, and they sat on them, and judgment was given to them. And I _saw_ the souls of those who had been beheaded because of their witness of Jesus and because of the word of God, and who also had not worshiped the beast or his image, and had not received the mark on their forehead and on their hand. And they came to life and reigned with Christ for a thousand years. 5 The rest of the dead did not come to life until the thousand years were finished. This is the first resurrection. 6 Blessed and holy is the one who has a part in the first resurrection. Over these the second death has no authority, but they will be priests of God and of Christ and will reign with Him for a thousand years.
+-LSB
 ### Souls
 >The very persons (not others) killed by the beast are the ones who live and reign during the thousand years.
 >p. 268 Vol. 2 Prop. 127 Obs. 3
@@ -33,14 +34,10 @@ Obs. 2
 
 
 >A most circumstantial statement indicating the Pre-Millennial resurrection and that the rest of the dead do not participate in it, is found in Isa. chs. 24, 25, and 26.
-
-
 ### Dead saints (but not dead unsaved) are raised for the Millennium and unsaved dead after the Millennium
 Obs. 4
-
 ### Objections alleged against Chiliastic interpretation of Rev. 20
 Obs. 5
-
 ### References/allusions to the resurrection in Revelation
 Obs. 6
 #### Rev. 11:18
@@ -58,20 +55,19 @@ Obs. 7
 >p. 287 Vol. 2 Prop. 127 Obs. 7 note 2
 ### Rev. 20:4-6 synchronous with Dan. 7
 Obs. 8
-
 ### There is a resurrection of the wicked dead
 Obs. 10
 
 >Of what practical use or benefit can such a res. unto condemnation and shame be? the answers are various; such as, 
->	to vindicate the justice of God; 
->	to prove the truthfulness and reality of His representations and mercy; 
->	to apportion “the few or many stripes” that the guilty merit; 
->	to fulfil His declaration that all the wicked snail see and acknowledge the Divine power; 
->	to show that death itself, as many fondly hope, is no refuge for the sinner; 
->	that a res. unto eternal life is the special gift of God through Jesus Christ; 
->	to contrast the condition of the res. saints with their own; 
->	to root out in the most effectual manner every remnant of evil; 
->	to give to the creatures of God, the universe itself, a sublime and abiding idea of the nature and consequences of sin.
+>1. to vindicate the justice of God; 
+>2. to prove the truthfulness and reality of His representations and mercy; 
+>3. to apportion “the few or many stripes” that the guilty merit; 
+>4. to fulfil His declaration that all the wicked snail see and acknowledge the Divine power; 
+>5. to show that death itself, as many fondly hope, is no refuge for the sinner; 
+>6. that a res. unto eternal life is the special gift of God through Jesus Christ; 
+>7. to contrast the condition of the res. saints with their own; 
+>8. to root out in the most effectual manner every remnant of evil; 
+>9. to give to the creatures of God, the universe itself, a sublime and abiding idea of the nature and consequences of sin.
 >p. 289 Vol. 2 Prop. 127 Obs. 10 reformatted
 
 
