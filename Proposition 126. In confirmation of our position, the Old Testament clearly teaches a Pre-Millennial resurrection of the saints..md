@@ -12,7 +12,7 @@ tags:
 ### Props Mentioned
 [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.|49]] [[Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth.|131]] [[Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”|137]] [[Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.|141]] [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.|144]] [[Proposition 146. This Kingdom is associated with the deliverance of creation.|146]] [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.|151]] [[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.|154]] [[Proposition 142. The Kingdom being related to the earth (extending over it), and involving the res. of the saints (in order to inherit it), is sustained by the promise to the saints of their inheriting the earth.|142]] 
 
->before the Messianic Kingdom can be realized the righteous dead must first be raised tip from among the dead.
+>before the Messianic Kingdom can be realized the righteous dead must first be raised up from among the dead.
 >p. 244 Vol 2 Prop. 125
 
 
