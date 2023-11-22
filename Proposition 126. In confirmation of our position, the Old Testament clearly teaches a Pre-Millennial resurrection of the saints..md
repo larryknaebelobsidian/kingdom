@@ -14,8 +14,6 @@ tags:
 
 >before the Messianic Kingdom can be realized the righteous dead must first be raised up from among the dead.
 >p. 244 Vol 2 Prop. 125
-
-
 #### Isa. 25:6-8
 And Yahweh of hosts will prepare a lavish banquet for all peoples on this mountain;
 A banquet of aged wine, choice pieces with marrow,
@@ -26,14 +24,12 @@ Even the veil which is stretched over all nations.
 And Lord Yahweh will wipe tears away from all faces,
 And He will remove the reproach of His people from all the earth;
 For Yahweh has spoken.
-
 #### Hosea 13:14
 Shall I ransom them from the power of Sheol?
 Shall I redeem them from death?
 O Death, where are your thorns?
 O Sheol, where is your sting?
 Compassion will be hidden from My sight.
-
 #### Daniel 12:2
 And many of those who sleep in the dust of the ground will awake, these to everlasting life, but the others to reproach _and_ everlasting contempt.
 ### Literal, partial resurrection taught in OT
@@ -44,14 +40,11 @@ And many of those who sleep in the dust of the ground will awake, these to everl
 >	(4) it is related to the period when the wicked shall be rooted out, etc., which is descriptive of the commencement of this age; 
 >	(5) and the identifying of the promise annexed by Jesus Himself to the time immediately after the harvest, “then shall the righteous shine forth as the sun,” for, as Joel and John show, the harvest immediately precedes the Millennial glory.
 >p. 246 Vol 2 Prop. 126 Obs. 2 slightly reformatted
-
-
 #### Daniel 12:13
 But as for you, go _your way_ to the end; then you will enter into rest and stand _again_ for your allotted portion at the end of the days.
 ### Daniel speaks of the resurrection of the dead
 >No other interpretation, therefore, can be affixed to this, than that it implies the doctrine of the resurrection of the dead, and that the mind of Daniel was directed onward to that.
 >p. 248 Vol 2 Prop. 126 Obs. 3
-
 #### Ezek. 37:1-14 - Valley of Dry Bones
 #### Isa. 26:19
 ### Moral change of the soul is a prelude
