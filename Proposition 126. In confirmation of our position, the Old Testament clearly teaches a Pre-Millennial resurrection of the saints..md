@@ -16,7 +16,7 @@ tags:
 >p. 244 Vol 2 Prop. 125
 
 
-Isa. 25:6-8
+#### Isa. 25:6-8
 And Yahweh of hosts will prepare a lavish banquet for all peoples on this mountain;
 A banquet of aged wine, choice pieces with marrow,
 _And_ refined, aged wine.
@@ -27,14 +27,14 @@ And Lord Yahweh will wipe tears away from all faces,
 And He will remove the reproach of His people from all the earth;
 For Yahweh has spoken.
 
-Hosea 13:14
+#### Hosea 13:14
 Shall I ransom them from the power of Sheol?
 Shall I redeem them from death?
 O Death, where are your thorns?
 O Sheol, where is your sting?
 Compassion will be hidden from My sight.
 
-Daniel 12:2
+#### Daniel 12:2
 And many of those who sleep in the dust of the ground will awake, these to everlasting life, but the others to reproach _and_ everlasting contempt.
 ### Literal, partial resurrection taught in OT
 >The language then expresses *a literal, partial resurrection*. Now in its connection it describes a Pre-Millennial one, briefly, for the following reasons: 
@@ -46,14 +46,14 @@ And many of those who sleep in the dust of the ground will awake, these to everl
 >p. 246 Vol 2 Prop. 126 Obs. 2 slightly reformatted
 
 
-Daniel 12:13
+#### Daniel 12:13
 But as for you, go _your way_ to the end; then you will enter into rest and stand _again_ for your allotted portion at the end of the days.
 ### Daniel speaks of the resurrection of the dead
 >No other interpretation, therefore, can be affixed to this, than that it implies the doctrine of the resurrection of the dead, and that the mind of Daniel was directed onward to that.
 >p. 248 Vol 2 Prop. 126 Obs. 3
 
-Ezek. 37:1-14 - Valley of Dry Bones
-Isa. 26:19
+#### Ezek. 37:1-14 - Valley of Dry Bones
+#### Isa. 26:19
 ### Moral change of the soul is a prelude
 >in the Scriptures a moral change of the soul is uniformly held to be a *prelude* to a blessed resurrection of the body unto life
 >p. 250 Vol 2 Prop. 126 Obs. 4
