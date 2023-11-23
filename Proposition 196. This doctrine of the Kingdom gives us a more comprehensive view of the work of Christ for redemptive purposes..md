@@ -96,12 +96,12 @@ tags:
 
 >The titles of Messiah, Christ, Lord, and King, whatever applicability they may have to the present, have reference to this specific appointed work of rebuilding the fallen tabernacle of David and reigning over it, bringing all nations, through it, in willing subjection to His worldwide dominion. Even the names of Jesus, Saviour, and Redeemer assume a deeper significancy, when the power of the first resurrection, the bestowment of Kingship and priesthood, the actual inheriting of the Kingdom and its attendant blessings, are experienced.
 >Obs. 6
-
+### To destroy the works of the devil
 >Obs. 7. The work of Jesus, which is to “destroy the works of the devil” (1 John 3:8), is only partially performed.
 
 >Modern theology has too much confined the work of Christ in the destroying the works of the devil to this dispensation or intermediate period, and overlooking, or, underrating what Christ is yet to do (directly and by supernatural power, which alone can reach those works), in order to accomplish this work.
 >Obs. 7
-
+### Fully and effectively presents Christ's sacrifice
 >Obs. 8. The sacrifice made by Christ on the cross, is more fully and effectively presented in this Kingdom.
 
 ### Eternal priesthood of Christ
