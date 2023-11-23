@@ -8,7 +8,6 @@ tags:
 ---
 # Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.
 ### What think ye of Christ?
-
 >It has been justly remarked by many writers that the question that Jesus asked (Matt. 22:42) the assembled Pharisees: “What think ye of Christ?” is the great question of the day, seeing that the attack upon and the defence of Christianity, for the last twenty or more years, has centered upon the Person of Jesus Christ.
 
 >The question, “Who is Jesus V’ will be, so far as the world is concerned, decided adversely to Christianity; for we are assured that the time is certainly coming when the Christ ship of Jesus will be denied, the claims of His Messiahship will be ignored and scorned, and Antichrist shall gain, for a brief period, the complete victory in the contest, but, thank God, not by the force of reason or legitimate weapons, but, as the Spirit informs as, by “deceit,” “lying wonders,” “making war with the saints and overcoming them,” and killing all who will not worship him or his image.
@@ -40,7 +39,6 @@ tags:
 
 >He is the Theocratic King,
 >Obs. 2
-
 ### Repeat a few facts
 Obs. 3
 >Notice 
@@ -61,17 +59,12 @@ Obs. 3
 >11. (11) this Kingdom is always spoken of as still future and identified with the period of the Sec. Advent; 
 >12. (12) and in this Kingdom, as realized at the Sec. Advent, the covenant and prophecies are said to be fulfilled, as is seen e.g. in appropriating the descriptions given by these to the Messianic Kingdom which is to be revealed at the Coming again of this same Jesus.
 >Obs. 3 reformatted
-
-
 ### Objections of unbelief
 Obs. 4
-
 ### Other objections
 Obs. 5
-
 >The Kingdom having been conditionally offered to the nation and having been rejected because the nation remained unrepentant, it was postponed until the Sec. Advent, and therefore, in view of the Divine Purpose previously plainly announced before His death, and thus embracing also a punishment upon the unbelief of the nation, it would have been incompatible with Messianic dignity and purpose to exhibit Himself to any others than believers in Him.
 >Obs. 5
-
 ### More objections
 Obs. 6
 >the spiritualizing which tampered with the Messianic idea and the Messianic Kingdom came in later through such men as Origen, etc.; for history records the fact that both of these fundamental ideas were preserved intact by the early believers.
@@ -79,7 +72,6 @@ Obs. 6
 
 >no historical evidence, even the slightest, to prove that the allegorical interpretation of Alexandrian Jews had any influence whatever in forming the primitive views pertaining to the Christ; but, on the other hand, the reception of the Old Test. Scriptures, the retention of the pure Messianic conception, the utterance of various predictions, etc., all to be taken in their proper grammatical meaning, show that the allegorical interpretation met with no favor in the teaching of Jesus or His disciples.
 >Obs. 6
-
 ### The great stumbling block - the divinity of the Son of Man
 Obs. 8
 >Let the student reflect upon the nature of this Theocratic Kingdom and he will see that, as covenanted and predicted, it necessarily includes as its promised King a God-man.
@@ -90,4 +82,3 @@ Obs. 8
 
 >Jesus, David’s Son, that even creation (John 1:3, 10; Eph. 3:9; Col. 1:16; Heb. 1:2, etc.) is ascribed to Him; that pre-existence is postulated (John 8:58; John 1:1; Col. 1:17, etc.) of Him; that the love, etc., rendered to Him are at the same time bestowed upon the Father (John 5:23, etc., 1 John 2:23); that no one could know the Father saving the Son and him to whom the Son revealed Him (Matt. 11:27, etc., 1 John 1:18); and all this and more because (John 14:10) “I am in the Father and the Father in Me.” The least reflection will show, that the Theocratic idea so impenetrates the New Test, portraiture of Jesus bringing forth such a union of the Theocratic God with David’s Son—forming the one Theocratic King with one will, power, work, love, etc.(John 5:19-38, etc.)—and yet consistently placing the Son in view of the incorporation of David’s line and descendant subordinately to the Father (John 5:19; 14:28, etc.)
 >Obs. 8
-
