@@ -48,10 +48,10 @@ tags:
 
 >The condition of the world as delineated in the Word just previous to the Second Advent presents to us the nations under the influence of an unbelieving Naturalism and self-glorified Humanity, arrayed in open hostility to the Lord Jesus Christ.
 >Obs. 5
-
+### Weak faith
 >Obs. 6. No faith, aside from other reasons, will be exercised in this Kingdom because of the manner of its introduction through Supernatural intervention, and of the Personage Jesus Christ, through whom it is to be accomplished..
 
->To the student of the Word who carefully notices how this Kingdom is to be re-established at the close of the times of the Gentiles, it is significant and startling to find that, in strict correspondence with prediction, the greatest efforts are now made by the Gentiles to decry the Supernatural, to cast out the miraculous, and to bring Jesus to the level of erring, weak, fate-bound humanity. Denying the power and authority of the appointed King, as a matter of course the Kingdom is also rejected, virtually saying, “We will not hare this man to reign over us.”
+>To the student of the Word who carefully notices how this Kingdom is to be re-established at the close of the times of the Gentiles, it is significant and startling to find that, in strict correspondence with prediction, the greatest efforts are now made by the Gentiles to decry the Supernatural, to cast out the miraculous, and to bring Jesus to the level of erring, weak, fate-bound humanity. Denying the power and authority of the appointed King, as a matter of course the Kingdom is also rejected, virtually saying, “We will not have this man to reign over us.”
 >Obs. 6
 
 >Christianity, in the controversies raging, has suffered by incorporating principles indefensible (unknown to the early Church), and by endeavoring to defend much that is utterly untenable; unbelief, only too glad to seize upon such indications of weakness, has taken advantage of the incautious and unscriptural attitude assumed, and has pressed the prevailing Theology with a line of argument that, taking the naked Scripture, is wholly unanswerable and but feebly met by those who reject the early Church doctrine of the Kingdom.
