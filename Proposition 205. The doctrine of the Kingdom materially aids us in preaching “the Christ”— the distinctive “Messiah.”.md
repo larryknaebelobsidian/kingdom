@@ -29,7 +29,6 @@ tags:
 >the immediate disciples and apostles hold to this Messianic idea (i.e. Kingship over the restored Theocratic-Davidic Kingdom), as indicated by their preaching, etc.
 >Obs. 5
 
-
 >“The apostles themselves held this opinion until after the resurrection of Christ,” Matt. 20:20, 21; Luke 24:21; Acts 1:6. The question arises, Were they mistaken in this idea? The majority of modern divines insist that they were mislead, over against the opinion of the early Church and others that they were not mistaken. If the former opinion is correct, then it involves the honesty and integrity of Jesus, viz., that He could deliberately allow —if the word Christ means no more than moderns assert—the disciples to be in ignorance on so important a point, being the heart of the Kingdom preached.
 >Obs. 5
 

@@ -8,7 +8,6 @@ tags:
 ---
 # Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.
 ### God Himself, in the Person of Jesus, the Son of David, rules as an earthly ruler
-
 >Attention is again called to the fact that this form, of government, predicted to be established and to extend itself over the earth, is a Theocracy, i.e. God Himself, in the Person of Jesus, the Son of David, rules in it as an earthly Ruler. This form of government is already seen in the Theocracy, initiatory, once established (Props. 25, 20) and which incorporated the Davidic line (Props. 27-33). God was the Supreme Ruler —the earthly King. This fundamental idea must necessarily be retained, if justice is done to the direct representations of Scripture, seeing that the entire tenor and analogy of the Record incontestably proves that the same Theocracy overthrown, owing to the sinfulness of the nation, shall be again restored under the Messiah with increased splendor and power (comp. Props. 31, 32, 33, 31, 35, and 30).
 >Obs. 1
 
@@ -85,23 +84,18 @@ tags:
 
 ### Exceedingly desireable
 Obs. 4
-
 ### Scriptures full of the Theocratic idea
 >The Scriptures are full of this Theocratic idea (as the preceding Propositions show), and many of its declarations receive new force and beauty when viewed in its light.
 >Obs. 5
-
 ### A willing people
 >This Theocracy is a predetermined form of government, which, when the time arrives, will be enforced upon “a willing people.”
 >Obs. 6
-
 ### Not of human devising
 >The Theocratic idea is so grand in its conception and so sublime in its adaptation to man and its results, that it could not have been of human devising.
 >Obs. 7
-
 ### Permanent
 >This Theocracy, when once again established, is ‘permanent.
 >Obs. 8
-
 ### Scripture's view of world history emphasizes the Theocratic idea
 >The manner in which God regards the world’s history, as presented in His Word, indicates the high estimate that He places on this Theocratic idea.
 >Obs. 9
@@ -127,7 +121,6 @@ Obs. 12
 
 ### Distinguished blessings
 Obs. 14
-
 ### Christ is the crowning excellence of the Theocracy
 >“The Christ” is the crowning excellence of the Theocracy; He is “the chief corner-stone” “the Head of the corner” the Stone that crowns the apex of the building.
 >Obs. 15
