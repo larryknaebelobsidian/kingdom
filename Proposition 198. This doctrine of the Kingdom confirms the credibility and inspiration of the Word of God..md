@@ -9,7 +9,7 @@ tags:
   - toc
 ---
 # Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.
-
+### Kingdom gives credibility to God's Word
 >Notice: 
 >(1) the Abrahamic covenant out of which arises the Kingdom; 
 >(2) the Theocracy in its initiatory form; 
@@ -35,7 +35,6 @@ tags:
 >p. 468 Vol. 3 Prop. 198 Obs. 1
 
 ### One continuous plan - Is it worthy of God? Is it adapted to produce what it intends?
-
 >It is a fact, however, worthy of especial notice that not one of our opponents from the early Church down to the present day has ventured to consider the Bible *as a whole*, as containing *one continuous plan*, and has noticed the Rise, Progress, and Result *purposed* by it. In this consists *the strength* of the Bible; in this is found *the great, and overwhelming proof* of its inspiration.
 >p. 469 Vol. 3 Prop. 198 Obs. 2
 
@@ -46,12 +45,10 @@ tags:
 >p. 469 Vol. 3 Prop. 198 Obs. 2
 
 ### Relationship to the whole
-
 >Reason, if true to itself, ought not so much to look at things, or facts, or doctrines, etc., isolated, torn from their connection, but in the relationship that they sustain to a system or purpose. This is true philosophy. Reason is given to discern truth; and to find out *the whole truth*, the most important part of truth, is to ascertain its bearing or affinity to other and more leading or general truths. It is the is feature introduced into science, art, etc., correctly appreciated and carried out, that enhances their interest and value; and the time has arrived when reason conducting the attack upon, or the defence of Bible statements should firmly plant itself on the same ground, viz., rejecting or receiving alleged truths in their unsustained or sustained relationship to the whole.
 >p. 472 Vol. 3 Prop. 198 Obs. 3
 
 ### The Kingdom is worthy of God and adapted to fulfil its intent
-
 >it is of the *utmost importance* that in a discussion involving the inspiration of God’s professed Word, two things should be observed: 
 >(1) that a proper knowledge and estimate of the Kingdom itself should be attained, and 
 >(2) that in virtue of this Kingdom being the End proposed in the Redemptive process, all other announcements, facts, etc., must be regarded in their relationship
@@ -99,7 +96,6 @@ tags:
 #### Postponement
 >The longer the postponement the more cumulative the evidence, seeing that eighteen centuries of continuous fulfilment of introduced change *only increases* the display of Christ’s wonderful foreknowledge.
 >p. 485 Vol. 3 Prop. 198 Obs. 6 
-
 ### Must consider the whole
 >It does not even need a theory which serves to explain with scientific precision (good and great men differ) just *how far and in what degree* the Bible is inspired, for it derives its idea of inspiration not from this or that portion of the Book but from its contents *regarded as a whole*. It is the Divine Plan unfolded in it, and thus far most wonderfully carried out, that affords *the true and solid ground* for its inspiration.
 >p. 487 Vol. 3 Prop. 198 Obs. 7 
@@ -111,7 +107,6 @@ tags:
 >p. 487 Vol. 3 Prop. 198 Obs. 7
 
 ### Adapted for the Kingdom of God
-
 >It professes to be the Kingdom of God, and to judge correctly whether it comes from God we must not merely confine ourselves to the manner in which it is presented (the mediumship) but observe whether it is *worthy* of God and *conducive* to the highest interests of humanity, and the answer to this becomes the leading proof of inspiration. 
 >
 >The evolving of *a continuous, unintermitted unity of Purpose* (notwithstanding the hindrances presented by human nature); 
@@ -126,7 +121,6 @@ tags:
 >p. 488 Vol. 3 Prop. 198 Obs. 7 slightly reformatted
 
 ### Books of Moses
-
 >The inspiration of the books of Moses is shown not by this or that statement, but by their design as a whole and their relationship to the rest of the Word;
 >p. 488 Vol. 3 Prop. 198 Obs. 7 
 
@@ -141,7 +135,6 @@ tags:
 >p. 502 Vol. 3 Prop. 198 Obs. 9
 
 ## Denial of supernatural is an outgrowth of scientific unbelief
-
 >The logical, consistent outgrowth of scientific unbelief is the denial of the Supernatural.
 >p. 506 Vol. 3 Prop. 198 Obs. 10
 
