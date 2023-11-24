@@ -45,7 +45,6 @@ Deut. 7:7-11
 >While the nation, comprising the natural descendants of Abraham, is thus chosen, it does not follow that every individual in it is thus personally elected. The election is *twofold* -- in its reach after the nationality, and in its application to the individual member of the nation.  It, in the latter case, only pertains to the believing, obedient portion of the nation.  This Paul, in Rom. 9 and 11, distinctly teaches.
 >p. 209 Vol. 1 Prop. 24 Obs. 3
 
-
 ### Why to the Jewish race?
 >How comes it, then, that the covenants are given to the Jewish race? That this election is confined to the Jewish race and those adopted into that race? That the election is traced directly through the descendants of Abraham and those incorporated as Abraham’s seed? That all the prophets, all the inspired teachers,, Jesus and the apostles, are Jews? That the election of the nation is recognized by Jesus and the apostles, and that the Gentiles were only afterward admitted by special revelation, and then only as the acknowledged children of Abraham?
   . . . The misapprehension arises from not discriminating that the true seed are faithful Jews, or become such by faith, being *the actual* descendants of Abraham, or *accounted such -- part of the race* to whom the covenants are given. It does not follow, because God designs to exalt and bless the nation, that a disobedient Jew will obtain the blessings of election; for while the race, as a race, is chosen, it is not said that every individual of the race is also ultimately chosen.  The fact is, that very few, comparatively, may avail themselves of the opportunity afforded; but that does not vitiate the election of the portion of the race that is faithful, and it does not alter God's final purpose in reference to the nation itself.
@@ -74,7 +73,6 @@ Deut. 7:7-11
  
 > The punishment, the scattering and desolation, of the Jewish nation is itself proof of their election as, e.g. Amos (ch. 3:2), declares : "You only have I known of all the families of the earth : *therefore* I will punish you for all your iniquities."  This casting off is only *temporary*, as evidence e.g. Zech. 10:6, etc.
 > p. 215 Vol. 1 Prop. 24 Obs. 9
-
 
 Zechariah 10:6
 I will make the house of Judah mighty,
