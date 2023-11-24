@@ -15,7 +15,7 @@ tags:
 >Obs. 2. Some persons confidently tell us that “*the Gospel of the Kingdom*” is readily understood by all men, forgetting how variously it is interpreted and preached.
 >p. 151 Vol. 1 Prop. 14 Obs. 2
 
-### Must discriminate between the mean of obtaining the kingdom and the kingdom itself
+### Must discriminate between the means of obtaining the kingdom and the kingdom itself
 >We must discriminate *between the means* employed by which the Kingdom can be obtained—which is also Gospel or glad tidings—and *the Kingdom itself*—which proclaimed is the Gospel in its fullest sense.
 >p. 152 Vol. 1 Prop. 14 Obs. 2
 
@@ -24,7 +24,7 @@ tags:
 > p. 152 Vol. 1 Prop. 14 Obs. 3
 
 ### Consequence of not having deep conviction that the Bible is a Divine Record
-> Unless there is a deep conviction that the Bible is a Divine Record, and that, in consequence, everything that is contains should be duly weighed and placed in its connection with the Divine Purpose, it is impossible to harmonize the Word: some discordant elements will inevitably appear to prevent unity.
+> Unless there is a deep conviction that the Bible is a Divine Record, and that, in consequence, everything that it contains should be duly weighed and placed in its connection with the Divine Purpose, it is impossible to harmonize the Word: some discordant elements will inevitably appear to prevent unity.
 > p. 152 Vol. 1 Prop. 14 Obs. 3
 
 ### Careful collation required
