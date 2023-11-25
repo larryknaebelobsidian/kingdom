@@ -48,8 +48,8 @@ tags:
 >6. (6) so that, *instead of a Kingdom coming then to them*, dispersion and the destruction of the city is determined, owing to their unrepentant state.
 >p. 380 Vol. 1 Prop 58 Obs. 2 reformatted
 
->At the beginning of His ministry, it was relatively nigh (as we have shown); the offer was simply conditioned by repentance; and being left to their choice, no long interval, as here intimated, must take place before it is nigh to them. Now, however, since His death was actually contemplated by the representatives of the nation, the offer is withdrawn, and the postponement of the Kingdom, its not being nigh to them, is directly stated by an enumeration of certain events which are previously to take place before it is nigh again.
->Obs. 3
+>At the beginning of His ministry, it was relatively nigh (as we have shown); the offer was simply conditioned by repentance; and being left to their choice, no long interval, as here intimated, must take place before it is nigh to them. Now, however, since His death was actually contemplated by the representatives of the nation, the offer is withdrawn, and the postponement of the Kingdom, its not being nigh to them, *is directly stated by an enumeration of certain events which are previously* to take place before it is nigh again.
+>p. 381 Vol. 1  Prop 58 Obs. 3
 
 >Obs. 4. Luke 19:11-27 forcibly demonstrates our Proposition.
 
