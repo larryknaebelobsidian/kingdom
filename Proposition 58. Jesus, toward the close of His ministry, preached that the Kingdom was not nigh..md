@@ -48,27 +48,27 @@ tags:
 >5. (5) and Christ’s *withdrawal* from them for a time; 
 >6. (6) so that, *instead of a Kingdom coming then to them*, dispersion and the destruction of the city is determined, owing to their unrepentant state.
 >p. 380 Vol. 1 Prop 58 Obs. 2 reformatted
-
+### Change in interval
 >At the beginning of His ministry, it was relatively nigh (as we have shown); the offer was simply conditioned by repentance; and being left to their choice, no long interval, as here intimated, must take place before it is nigh to them. Now, however, since His death was actually contemplated by the representatives of the nation, the offer is withdrawn, and the postponement of the Kingdom, its not being nigh to them, *is directly stated by an enumeration of certain events which are previously* to take place before it is nigh again.
 >p. 381 Vol. 1  Prop 58 Obs. 3
-
+### Misunderstood immediate appearance
 >Obs. 4. Luke 19:11-27 forcibly demonstrates our Proposition.
 >p. 382 Vol. 1  Prop 58 Obs. 4
 
 >For there is (as there could not be) no declaration that they were wrong in believing that the Kingdom which they expected, the Messianic, *was still in the future*. They were only mistaken in the opinion, carefully announced, “*that the Kingdom of God should immediately appear*”. Now the parable is given *to correct* this belief in *the immediate setting up* of the Kingdom, to indicate that *it would not soon appear*, but *only after* an undefined period of time had elapsed.
 >p. 382 Vol. 1  Prop 58 Obs. 4
-
+### Open predictions of death and resurrection toward close of His ministry
 >Obs. 5. It is worthy of notice, that Christ only openly predicted His sufferings and death toward *the close* of His ministry, Matt. 20:17-20, John 12:32-34, etc.
 >p. 383 Vol. 1  Prop 58 Obs. 5
-
+### Change of preaching wrongfully interpreted by some
 >Obs. 6. This change of preaching in Jesus has been noticed by Renan and others, and they *wrongfully* attribute it to a change of plan respecting the Kingdom, forced upon Him by attending circumstances. That is, seeing that He could not secure the throne and Kingdom over the Jewish nation, He concluded to erect a more spiritual Kingdom.
 >...
 >Renan and his class *totally ignore* the abundance of Scripture assigning *the reasons for postponement*, just as if they had no existence.
 >p. 384 Vol. 1  Prop 58 Obs. 6
-
+### Not merely Jewish temporal blessings and rewards
 >Obs. 7. The notion entertained by some, that *only* temporal blessings and rewards were offered to the Jews under the Levitical economy, is also shown (as before noticed), by the tender of this Kingdom and its postponement, to be erroneous.
 >p. 384 Vol. 1  Prop 58 Obs. 7
-
+### Change in Christ's public title as "the Christ"
 >Obs. 8. In view of this foreknown change in the preaching of Jesus resulting from a postponement of the Kingdom, Christ did not *publicly* assume in His personal ministry the title of “*the Christ*” until *after* His betrayal, Mark 14:62. After the death of John the Baptist, which already foreshadowed His own rejection and the nation’s refusal of the tender, of the Kingdom, He strictly charged His disciples *to tell no man* that He was “*the Christ*.”
 >p. 384-385 Vol. 1  Prop 58 Obs. 8
 
