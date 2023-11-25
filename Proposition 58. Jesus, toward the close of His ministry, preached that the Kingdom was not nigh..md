@@ -52,16 +52,21 @@ tags:
 >p. 381 Vol. 1  Prop 58 Obs. 3
 
 >Obs. 4. Luke 19:11-27 forcibly demonstrates our Proposition.
+>p. 382 Vol. 1  Prop 58 Obs. 4
 
->For there is (as there could not be) no declaration that they were wrong in believing that the Kingdom which they expected, the Messianic, was still in the future. They were only mistaken in the opinion, carefully announced, “that the Kingdom of God should immediately appear” Now the parable is given to correct this belief in the immediate setting up of the Kingdom, to indicate that it would not soon appear, but only after an undefined period of time had elapsed.
->Obs. 4
+>For there is (as there could not be) no declaration that they were wrong in believing that the Kingdom which they expected, the Messianic, *was still in the future*. They were only mistaken in the opinion, carefully announced, “*that the Kingdom of God should immediately appear*”. Now the parable is given *to correct* this belief in *the immediate setting up* of the Kingdom, to indicate that *it would not soon appear*, but *only after* an undefined period of time had elapsed.
+>p. 382 Vol. 1  Prop 58 Obs. 4
 
->Obs. 5. It is worthy of notice, that Christ only openly predicted His sufferings and death toward the close of His ministry, Matt. 20:17-20, John 12:32-34, etc.
+>Obs. 5. It is worthy of notice, that Christ only openly predicted His sufferings and death toward *the close* of His ministry, Matt. 20:17-20, John 12:32-34, etc.
+>p. 383 Vol. 1  Prop 58 Obs. 5
 
->Obs. 6. This change of preaching in Jesus has been noticed by Renan and others, and they wrongfully attribute it to a change of plan respecting the Kingdom, forced upon Him by attending circumstances. That is, seeing that He could not secure the throne and Kingdom over the Jewish nation, He concluded to erect a more spiritual Kingdom.
+>Obs. 6. This change of preaching in Jesus has been noticed by Renan and others, and they *wrongfully* attribute it to a change of plan respecting the Kingdom, forced upon Him by attending circumstances. That is, seeing that He could not secure the throne and Kingdom over the Jewish nation, He concluded to erect a more spiritual Kingdom.
 >...
->Renan and his class totally ignore the abundance of Scripture assigning the reasons for postponement, just as if they had no existence.
+>Renan and his class *totally ignore* the abundance of Scripture assigning *the reasons for postponement*, just as if they had no existence.
+>p. 384 Vol. 1  Prop 58 Obs. 6
 
->Obs. 7. The notion entertained by some, that only temporal blessings and rewards were offered to the Jews under the Levitical economy, is also shown (as before noticed), by the tender of this Kingdom and its postponement, to be erroneous.
+>Obs. 7. The notion entertained by some, that *only* temporal blessings and rewards were offered to the Jews under the Levitical economy, is also shown (as before noticed), by the tender of this Kingdom and its postponement, to be erroneous.
+>p. 384 Vol. 1  Prop 58 Obs. 7
 
->Obs. 8. In view of this foreknown change in the preaching of Jesus resulting from a postponement of the Kingdom, Christ did not publicly assume in His personal ministry the title of “the Christ” until after His betrayal, Mark 14:62. After the death of John the Baptist, which already foreshadowed His own rejection and the nation’s refusal of the tender, of the Kingdom, He strictly charged His disciples to tell no man that He was “the Christ.”
+>Obs. 8. In view of this foreknown change in the preaching of Jesus resulting from a postponement of the Kingdom, Christ did not *publicly* assume in His personal ministry the title of “*the Christ*” until *after* His betrayal, Mark 14:62. After the death of John the Baptist, which already foreshadowed His own rejection and the nation’s refusal of the tender, of the Kingdom, He strictly charged His disciples *to tell no man* that He was “*the Christ*.”
+>p. 384-385 Vol. 1  Prop 58 Obs. 8
