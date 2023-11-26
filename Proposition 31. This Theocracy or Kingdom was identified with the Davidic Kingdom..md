@@ -19,5 +19,5 @@ tags:
 >Obs. 2. The King was under God’s special care, and treason against the King was treason against God; it was only when engaged in sin that God’s care was removed and the people were exhorted to resist wickedness even in the chief.
 ### Theocratic union demonstrated
 >Obs. 3. This Theocratic union is shown also in the fact that not only all the Theocratic laws and arrangements, previously made, remained in full force, and the King obligated himself to see them enforced, but in important matters pertaining to the nation the King was to consult with, and obey the imparted instructions of, the Chief Ruler. The numbering of the people (2 Sam. 24 and 1 Chron. 21) by David without divine permission, being an infringement of Theocratic order, an act of insubordination to his Superior, was correspondingly severely punished.
-### New Testament connects Theocratic and David Kingdoms
+### New Testament connects Theocratic and Davidic Kingdoms
 >Obs. 4. The identity of the Theocratic Kingdom with the Davidic is taken for granted in the New Test, as an indisputable fact. This will appear, as our argument progresses; for some preliminaries must first be considered in their historical connection. The announcing angel states the fact (Luke 1:32, 33), and Zacharias intimates it (y. 68-74).
