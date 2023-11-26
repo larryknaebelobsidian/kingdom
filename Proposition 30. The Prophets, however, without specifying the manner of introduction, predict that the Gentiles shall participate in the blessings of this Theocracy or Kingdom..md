@@ -28,7 +28,7 @@ tags:
 >3. (3) the nation, for a time suffering the withdrawal of God’s special Theocratic ordering, does not vitiate the covenant relationship; 
 >4. (4) hence, the participation of the Gentiles in the covenanted relationship (and through this, to an inheriting of the blessings of the Kingdom), must depend (as has been stated) upon their being, in some way, adopted as the seed of Abraham. Precisely here was the mystery, which baffled even the apostles until specially enlightened.
 >--reformatted
-### Importance of closing tracing the call of the Gentiles
+### Importance of closely tracing the call of the Gentiles
 >Obs. 6. The original bestowment of the Theocracy being in a most solemn, public manner, if ever the Jewish nation is to forfeit its relationship to that Theocracy, this must be done in as public manner, or, at least, the most explicit statement must come from God to this effect. This has not, cannot be done—although multitudes, misled by the temporary punishment of the nation, infer it—without violating God’s pledged word. Hence, the importance of closely tracing the call of the Gentiles, and noticing its connection with the Jewish nation.
 ### Infidelity unable to explain
 >Obs. 7. Infidelity has never yet attempted to explain by what mental process the prophets could predict this call of the Gentiles when so directly opposed to Jewish election and covenanted relationship.
