@@ -19,7 +19,7 @@ There are 24 observations in this proposition.
 ### Gentiles included in the Abrahamic covenant
 >. . . Gentiles come in *under the Abrahamic covenant* . . .
 >p. 320 Vol. 1 Prop 50 Obs. 2
-### New means renewed in this case
+### "New" means "renewed" in this case
 >Persons are apt to be misled by the use of the word “*new*,” thinking that it necessarily means something entirely new, different from what preceded. They forget that in Bible usage it frequently means *renewed, restored again, newly confirmed*, etc., as in new heart, new moon, new creature, new heavens and new earth, now commandment, drink new (Matt. 26:29), etc. It is important then to discriminate whenever the word is employed, especially in so weighty a matter as this, seeing *the high interests* that are involved. As the phrase “new covenant” only appears once in the Old Test, and but a few times in the New, the general analogy of Scripture must be allowed to determine the sense in which it is used.
 >p. 323 Vol. 1 Prop 50 Obs. 4
 ### Adoption of the Gentiles is evidence of the reconfirmed Abrahamic covenant
