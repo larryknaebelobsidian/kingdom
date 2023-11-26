@@ -18,10 +18,10 @@ tags:
 
 ### Kingdom itself was made known
 
->. . . the assurance is abundantly ours, that *the kingdom itself*, it nature, our relation to it, all things necessary for a correct understanding of its meaning, was made known.
+>. . . the assurance is abundantly ours, that *the kingdom itself*, its nature, our relation to it, all things necessary for a correct understanding of its meaning, was made known.
 >p. 142 Vol. 1 Prop. 11 Obs. 3
 
 ### Mysteries of the manner of its establishment, means, preparation, and time for its manifestation
 
-> . . . those mysteries refer not *to the nature* of the kingdom, but *to the manner* of it establishment, *the means* employed, *the preparation* for it, *the time* for its manifestation, and such related subjects.
+> . . . those mysteries refer not *to the nature* of the kingdom, but *to the manner* of its establishment, *the means* employed, *the preparation* for it, *the time* for its manifestation, and such related subjects.
 >p. 142 Vol. 1 Prop. 11 Obs. 4 
