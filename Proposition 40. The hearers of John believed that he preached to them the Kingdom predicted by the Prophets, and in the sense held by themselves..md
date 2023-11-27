@@ -11,7 +11,7 @@ tags:
 >Obs. 1. The Jewish belief in a restored Theocratic-Davidic Kingdom has been noticed (Prop. 20), as supported by the grammatical sense of the prophecies (Prop. 21), and the election of the nation (Prop. 24,) etc. The preaching of John, giving no explanation of the Kingdom, indicative that the Kingdom is something well known (Prop. 19), and the employment of current phraseology without change of meaning (Props. 22 and 23), etc.— all proves the correctness of our position.
 ### Grammatical sense was the only one then used re. the kingdom
 >Obs. 2. The grammatical sense was the only one then used in relation to the Kingdom, producing unity of belief in a restored Davidic Kingdom.
-### No disputes with John the baptist concerning the kingdom
+### No disputes with John the Baptist concerning the kingdom
 >Obs. 3. The unity of belief in the same restored Kingdom is evidenced by John’s preaching of the Kingdom raising up no disputation concerning it.
 ### No antagonism of belief between preacher and hearer
 >Obs. 4. The exclusiveness (Prop. 29) of the Jewish nation, the prophecies describing but one Kingdom (Prop. 35), etc., forbid the idea that there was an antagonism of belief between the preacher and the hearer. There might be a difference of opinion respecting the imposed condition of repentance, but there could be none concerning the Kingdom so far as related to its essential nature.
