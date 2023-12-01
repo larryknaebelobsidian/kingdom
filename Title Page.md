@@ -8,7 +8,7 @@ I was briefly introduced to this work while taking a Bible class many years ago 
 
 These are **my selected quotations** from George N. H. Peters' great work **The Theocratic Kingdom**. Although I have inserted a **very few personal notes** and added **pericopes** to **most** of the observations, these are **mostly direct quotations** from Peters' three volume masterful work. I continue to make adjustments as I observe typos and other mistakes.
 
-My desire is to give you enough taste so you also will take this journey by reading all 2100 pages of the printed work, **The Theocratic Kingdom**.  These selected quotations may also help you to review your journey from time to time, either along the way or looking back.
+My desire is to give you enough taste so you also will take this journey by reading all 2100 pages of the printed work, **The Theocratic Kingdom**.  These selected quotations may also help you (as it has me) to review your journey from time to time, either along the way or looking back.
 
 May you come to trust and obey the Lord and Savior Jesus Christ and grow in your loving hope of His return and kingdom.
 
