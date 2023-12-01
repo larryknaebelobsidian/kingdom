@@ -33,8 +33,7 @@ tags:
 >7. 6. It is true then, that the Personal Advent is connected with the destruction of Jerusalem, but not with that under the Romans, or other Gentile powers until we come to the period when it shall, still under Gentile domination as the closing scene proves, come to a final end. Then, as our whole argument involves, He comes as the prophets describe.
 >Obs. 2
 
-##### This is an amazing observation by Peters who published this book in **1884**\!
-***Now, if we turn to other predictions it is declared that Jerusalem just previous to the Sec. Advent of Christ—also embraced by Matt. Mark and Luke—shall experience in a remarkable manner the animosity (after a partial return of Jews to the city, probably under the auspices of some nation, or from love to it, or desire to restore and elevate it) of Gentile nations.***
+##### This "partial return of the Jews" (number 4 above) is an amazing observation by Peters who published this book in **1884**\!
 
 ### God's prevention of exultation of Jerusalem at the times of the crusades. 
 >Obs. 3. Perhaps the reason why Jerusalem itself fell into the hands of unbelievers, and remained but a brief period in the power of professed Christians at the time of the Crusades, was to prevent the laudatory and extravagant expressions respecting the supposed set up Kingdom of God, and to avoid the false inferences respecting the fulfilment of prophecy, arising from a possession of the city.
