@@ -14,7 +14,8 @@ tags:
 [[Abrahamic Covenant]]
 [[Davidic Covenant]]
 ## I. THE ABRAHAMIC COVENANT
-### There are 24 observations by Peters in this section.
+There are 24 observations by Peters in this section.
+### The things promised
 >The covenant (see good remarks on the meaning of the word “covenant” by Barnes, Notes on Heb. 8:8, and 9:16) made with Abraham is found in Gen. 12:1-3, 7; 13:14-17; 15:4-21; 17:4-16; 22:15-18. 
 >
 >The things promised by God are the following: 
@@ -51,7 +52,7 @@ tags:
 p. 305 Vol. 1 Prop 49 Obs. 15
 
 ## II. THE SINAITIC COVENANT, MADE WITH ISRAEL AT MOUNT SINAI
-### There are 2 observations by Peters in this section
+There are 2 observations by Peters in this section
 
 ## III. THE DAVIDIC COVENANT
 There are 8 observations by Peters in this section
