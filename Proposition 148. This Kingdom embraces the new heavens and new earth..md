@@ -38,7 +38,7 @@ Obs. 4
 >...
 >at this future time and as part of the heavens and earth the Kingdom of the Messiah is, as the primitive Church held, set up and manifested.
 >...
->“With the Lord’s Advent begins the real reign of God upon earthy a Kingdom of righteousness, holiness, and peace, consisting of mortals, but with exemption from the Evil One and his enticements, and under a mighty influence of celestial power,”
+>“With the Lord’s Advent begins the real reign of God upon earth a Kingdom of righteousness, holiness, and peace, consisting of mortals, but with exemption from the Evil One and his enticements, and under a mighty influence of celestial power,”
 
 >Dr. Tholuck has been noticed by Taylor, Seiss, etc., as saying: “The idea that the perfected Kingdom of Christ is to be transferred to heaven is a modern notion. According to Paul, and the Rev. of John, the Kingdom of God is placed upon the earth, in so far as the earth has part in the universal transformation. This exposition has been adopted and defended by most of the oldest commentators: e.g. Chrysostom, Theodoret, Augustine, Luther, Knox, and others.”
 >Obs. 5
