@@ -36,7 +36,6 @@ tags:
 ### Where - on the earth
 >The place where this reign is to be manifested is expressly stated: “We shall reign on (or as Stuart, over) the earth.” In the very nature of the case, if they inherit with David’s Son, the restored Theocratic-Davidic Kingdom, it must be a reign here on and over the earth.
 >p. 574 Vol. 2 Prop. 154 Obs. 3
-
 ### The LORD will come and all the holy ones with him
 Zech. 14:5
 Joel 3:11; Matt. 24:30, 31; 2 Thess. 2:1; 1 Thess. 4:16, 17,
