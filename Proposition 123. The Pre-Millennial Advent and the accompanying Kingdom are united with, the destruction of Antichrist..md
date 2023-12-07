@@ -28,28 +28,26 @@ After these things I heard something like a loud voice of a great crowd in heave
 
 >The predictions relating to the Millennium clearly portray the removal of the man of sin and of his adherents before that age; and they reveal the impossibility of reconciling their presence with the realization of that age of blessedness.
 >Obs. 1
-### "Destroyed by the brightness of His coming"
+### Destroyed with "the brightness of His coming"
 >Obs. 2. The passage to which special attention is called reads: “And then shall that wicked be revealed, whom the Lord shall consume with the spirit of His mouth, and shall destroy with the brightness of His Coming,” 2 Thess. 2:8. Owing to its importance and the efforts made to give it an interpretation adapted to the modern Whitbyan theory, it will be best to examine it in detail.
- 
 
 >A. Those to whom Paul wrote were looking for the personal Advent of Christ.
 >...
->>The period when the Messiah is to be personally manifested as the Judge, the King, etc., is often called “His day" etc., and was so understood both by the Jews and early Christians.
+>The period when the Messiah is to be personally manifested as the Judge, the King, etc., is often called “His day" etc., and was so understood both by the Jews and early Christians.
 >...
 >Obs. 2
 
-
 >B. The Apostle then designs to correct the mistake respecting the presence or nearness of that personal Coming in which they believed, and the manner in which he does this confirms the allusion to the personal Coming.
 >...
->>it shall not come until at least a certain event, viz., the appearing and power of the man of sin, was first witnessed;
+>it shall not come until at least a certain event, viz., the appearing and power of the man of sin, was first witnessed;
 >...
->>he introduces the predicted fact that before that visible Advent or day of Christ, the wicked one must arise and be exalted in power. It legitimately follows from the tenor of the proof given, that this personal Advent is not “at hand” or “present;” that it will, after an intervening event has been fulfilled, then come to pass.
+>he introduces the predicted fact that before that visible Advent or day of Christ, the wicked one must arise and be exalted in power. It legitimately follows from the tenor of the proof given, that this personal Advent is not “at hand” or “present;” that it will, after an intervening event has been fulfilled, then come to pass.
 >...
 >Obs. 2
 
 >C. The Apostle’s proof of the day of Christ and hence also the personal Advent not being “at hand” or “present,” thus fully accords with the analogy of Scripture. Many are the predictions and pointed allusions that Christ's visible personal Advent only takes place at a time when Antichrist or a mighty confederation of wickedness is developed, and that He will at such a Coming take vengeance and utterly destroy the wicked arrayed against Him. All prophecy agrees in uniting the destruction of the Antichristian power with a personal Advent.
 >...
->>acts of judgment and the destruction of the ungodly are united with, in passages admitted to relate to the Sec. Advent
+>acts of judgment and the destruction of the ungodly are united with, in passages admitted to relate to the Sec. Advent
 >...
 >Obs. 2
 
@@ -58,9 +56,9 @@ After these things I heard something like a loud voice of a great crowd in heave
 
 >E. The import of the two words rendered “brightness of His Coming.” Epiphaneia, ἐπιφανεία, called here “brightness,” and Parousia, παρουσία, translated “Coming.”
 >...
->>(a) The word Epiphaneia occurs six times, 1 Tim. 6:14; 2 Tim. 1:10; 2 Tim. 4:1 and 8; Tit. 2:13, and in this place.
+>(a) The word Epiphaneia occurs six times, 1 Tim. 6:14; 2 Tim. 1:10; 2 Tim. 4:1 and 8; Tit. 2:13, and in this place.
 >...
->>(b) The word Parousia is used in the New Test, twenty-four times, Matt. 24:3, 27, 37, 39; 1 Cor. 15:23, and 16:17; 2 Cor. 7:6, 7, and 10:10; Phil. 1:26, and 2:3; 1 Thess. 2:19, and 3:13, and 4:15, and 5:23; 2 Thess. 2:1, 8, 9; James 5:7, 8; 2 Pet. 1:16, and 3:4, 12, and 1 John 2:18.
+>(b) The word Parousia is used in the New Test, twenty-four times, Matt. 24:3, 27, 37, 39; 1 Cor. 15:23, and 16:17; 2 Cor. 7:6, 7, and 10:10; Phil. 1:26, and 2:3; 1 Thess. 2:19, and 3:13, and 4:15, and 5:23; 2 Thess. 2:1, 8, 9; James 5:7, 8; 2 Pet. 1:16, and 3:4, 12, and 1 John 2:18.
 >Obs. 2
 
 >F. The opinions of commentators—of the class who have no sympathy with our views, but yet are candid enough to concede this vital point, and of others who express themselves independently of any theory or bias, etc.
@@ -82,11 +80,3 @@ After these things I heard something like a loud voice of a great crowd in heave
 >Obs. 2
 ### Early Fathers agreed
 >Obs. 4. It is scarcely necessary to add anything additional to Dan. 7:13 to indicate a personal Advent. All the early Fathers, as well as those who followed them, even such a writer as Jerome (Bickersteth’s Guide, p. 112, quotes from, and also shows how Jerome made the little horn of Daniel 7 synchronize with the man of sin 2 Thess. 2) made it refer to the personal Sec. Advent.
-
-
-
-
-
-
-
-
