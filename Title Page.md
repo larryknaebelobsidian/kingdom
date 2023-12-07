@@ -10,7 +10,7 @@ These are **my selected quotations** from George N. H. Peters' great work **The 
 
 My desire is to give you enough taste so you also will take this journey by reading all 2100 pages of the printed work, **The Theocratic Kingdom**.  These selected quotations may also help you (as it has me) to review your journey from time to time, either along the way or looking back.
 
-These notes are being captured in [Obsidian](https://obsidian.md) (and are best viewed in Obsidian) but a subset of the complete notes have been exported into EPUB and PDF (see exports folder) for non-Obsidian viewing. The complete set of my notes can freely be obtained at [github](https://github.com/larryknaebelobsidian/kingdom). This work is free and non-licensed.
+These notes are being captured in [Obsidian](https://obsidian.md) (and are best viewed in Obsidian) but a subset of the complete notes have been exported into EPUB and PDF (see exports folder) for non-Obsidian viewing. The complete set of my notes can freely be obtained at [github](https://github.com/larryknaebelobsidian/kingdom). My notes are free and non-licensed.
 
 May you come to trust and obey the Lord and Savior Jesus Christ and grow in your loving hope of His return and kingdom.
 
