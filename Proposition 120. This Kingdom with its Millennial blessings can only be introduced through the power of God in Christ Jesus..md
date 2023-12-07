@@ -15,7 +15,7 @@ tags:
 ### Sad opposition can be tested
 >Obs. 3. It is saddening to find how far this denial of the necessity of Christ’s Second Coming for purposes of Salvation is carried in our Theological literature. Men who would shrink from any impeachment of orthodoxy, or denial of truth, array themselves against Covenant promise under the misguiding influence of supposed developed truth.
 >...
->>“Christ’s power to bless and save His people and protect them against the devil and sin is not in His Coming again on earth, but in His session at the right hand of God and His power there in their behalf,”
+>“Christ’s power to bless and save His people and protect them against the devil and sin is not in His Coming again on earth, but in His session at the right hand of God and His power there in their behalf,”
 >...
 >The reader can readily test the trustworthiness of the declaration by referring to these facts: 
 >1. (1) that His Coming is for Salvation, to complete Redemption, Heb. 9:28; Luke 21:27, 28; Rom. 8:19-23; Eph. 4:30, etc.; 
@@ -34,13 +34,13 @@ tags:
 ### Savior's even seen in other religions
 >Obs. 5. It is objected by unbelievers that the notion that some great Saviour is to come to restore all things, is found in other religions beside the Christian.
 >...
->>in the system of Zoroaster mention is made of a future Restorer or Saviour, who is expected to come at the end of the age, restore the dead by a resurrection, and introduce a Kingdom of untroubled happiness, etc.
+>in the system of Zoroaster mention is made of a future Restorer or Saviour, who is expected to come at the end of the age, restore the dead by a resurrection, and introduce a Kingdom of untroubled happiness, etc.
 ### Removal of the curse requires higher power
 >Obs. 6. The most intelligent and profound thinkers of every age declare, that the removal of the self-evident curse (explain its introduction as they may) entailed upon the earth and its inhabitants, demands higher power and greater manifestations of Deity than now are exhibited.
 >...
->>The scope of the Word asserts, that man is under the curse through his fallen condition, and that the evils arising therefrom are the work of Satan.
->>...
->>The Bible points to One alone who is to produce this change, viz., to “the Christ” who is revealed expressly “to destroy the works of the devil.
+>The scope of the Word asserts, that man is under the curse through his fallen condition, and that the evils arising therefrom are the work of Satan.
+>...
+>The Bible points to One alone who is to produce this change, viz., to “the Christ” who is revealed expressly “to destroy the works of the devil.
 ### First Adam caused the curse, second Adam removes it
 >Obs. 7. The Bible attributes the curse, or introduction of evil, to the fall of the first Adam, and the removal of it to the second Adam, that is “the Christ.”
 
@@ -64,7 +64,7 @@ tags:
 ### Early church believed the advent of Christ brought deliverance
 >Obs. 10. May we not again remind the reader, how logically consistent the early Church was to attribute to Christ at His Sec. Advent this work of restoring all things through the power of His rule and Kingdom?
 >...
->>neither Paul nor the other Apostles believed in a conversion of the world, but rather in its growing worse until the personal Advent of Christ brought deliverance.
+>neither Paul nor the other Apostles believed in a conversion of the world, but rather in its growing worse until the personal Advent of Christ brought deliverance.
 
 
 
