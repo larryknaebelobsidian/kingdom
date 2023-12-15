@@ -1,6 +1,6 @@
 # Selected Quotations from "The Theocratic Kingdom"
 
-It has been a pleasure spending some time of my first full year in retirement taking a journey with George N. H. Peters pondering the wonders of the kingdom of heaven.  He continuously points his readers to the King of this kingdom, the God who purposed it, the Scriptures by which God reveals it, the long history of those who believe it as revealed and those who do not.
+It has been a pleasure spending some time of my first full year in retirement taking a journey with George N. H. Peters, pondering the wonders of the kingdom of heaven.  He continuously points his readers to the King of this kingdom, the God who purposed it, the Scriptures by which God reveals it, the long history of those who believe it as revealed and those who do not.
 
 I was briefly introduced to this work while taking a Bible class many years ago but was recently reminded of it while doing some other reading.  
 
