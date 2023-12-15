@@ -6,7 +6,7 @@ I was briefly introduced to this work while taking a Bible class many years ago 
 
 **The Theocratic Kingdom** contains 206 propositions (i.e. chapters) and each proposition contains a set of observations (i.e. sections).  The proposition titles themselves are masterfully stated and well organized to deal with this major biblical topic.
 
-These are **my selected quotations** from George N. H. Peters' great work **The Theocratic Kingdom**. Although I have inserted a **very few personal notes** and added **pericopes** to **most** of the observations, these are **mostly direct quotations** from Peters' three volume masterful work. The direct quotations are tagged as blockquotes and are typically rendered as *indented text* with some variations depending on the reader tool used.
+These are **my selected quotations** from George N. H. Peters' great work **The Theocratic Kingdom**. Although I have inserted a **very few personal notes** and added **pericopes** to **most** of the observations, these are **mostly direct quotations** from Peters' three volume masterful work. The direct quotations are tagged as blockquotes and are typically rendered as *indented text* with some variations depending on the rendering tool used.
 
 My desire is to give you enough taste of George N. H. Peter's work so you also will take this journey by reading all 2100 pages and three volumes of his printed book, **The Theocratic Kingdom**.  These selected quotations may also help you (as it has me) to review your journey from time to time, either along the way or looking back.
 
