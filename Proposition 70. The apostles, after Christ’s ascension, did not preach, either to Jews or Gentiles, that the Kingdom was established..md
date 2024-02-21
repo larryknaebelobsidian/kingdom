@@ -10,45 +10,52 @@ tags:
 ---
 # Proposition 70. The apostles, after Christ’s ascension, did not preach, either to Jews or Gentiles, that the Kingdom was established.
 
->They could not consistently preach that it was established, because 
+>They could not *consistently* preach that it was established, because 
 >1. (1) the covenant forbids it, the express terms of it not being verified; 
 >2. (2) the rejection of the kingdom by the Jews and its consequent postponement during “the times of the Gentiles,” forbids it; 
 >3. (3) the seed of Abraham to whom the Kingdom is to be given not being yet gathered out, forbids it; and 
 >4. (4) the non-arrival of the Sec. Advent forbids it.
->slightly reformatted
+>--slightly reformatted
+>p. 433 Vol. 1 Prop 70
 ### His chosen witnesses
->After the declarations of Jesus that “the house” (Davidic) would remain desolate until His return, that He would leave, remain away for an indefinite time, that the Kingdom was connected with His coming again, etc., it is reasonable to look for a corresponding style of preaching in His chosen witnesses.
->Obs. 1
+>After the declarations of Jesus that “the house” (Davidic) would remain desolate until His return, that He would leave, remain away for an indefinite time, that the Kingdom was connected with His coming again, etc., it is reasonable to look *for a corresponding style* of preaching in His chosen witnesses.
+>p. 433 Vol. 1 Prop 70 Obs. 1
 ### Attack from unbelievers
 >Obs. 2. The weakness and Jewish cast assigned to the early church teaching respecting the Kingdom, is the place of persistent attack from unbelievers.
+>p. 434 Vol. 1 Prop 70 Obs. 2
 ### Jewish conceptions
->Obs. 3. Our argument—fortified (1) by Scripture, (2) by charges of infidelity, (3) by frank concessions of apologists—accepts of these “Jewish conceptions’ of the apostles as legitimately correct and imperatively demanded by the covenants and the Divine Purpose.
+>Obs. 3. Our argument—fortified (1) by Scripture, (2) by charges of infidelity, (3) by frank concessions of apologists—accepts of these “Jewish conceptions’ of the apostles as *legitimately correct* and *imperatively demanded* by the covenants and the Divine Purpose.
+>p. 435-436 Vol. 1 Prop 70 Obs. 3
 ### Jewish standpoint
->Obs. 4. We take the position that if the witnesses of the truth thus occupied—as enemies and friends, assailants and defenders declare—“a Jewish standpoint,” it was necessary for them to do so in behalf of the truth itself.
+>Obs. 4. We take the position that if the witnesses of the truth thus occupied—as enemies and friends, assailants and defenders declare—“*a Jewish standpoint*,” it was *necessary* for them to do so *in behalf of the truth itself*.
+>p. 436 Vol. 1 Prop 70 Obs. 4
 ### Inferential proof
->Obs. 5. Additionally it may be said: (1) If the apostles preached that the covenanted, predicted Kingdom was established, why do they not directly declare this as a fact, and thus remove error and prevent the incoming Chiliasm? Is there a single passage which directly teaches that the Christian church is the Kingdom? No such declaration or passage is to be found in all the apostolical writings. (2) Hence it is a fact which cannot be gainsaid that those who hold to a present establishment of the Kingdom exclusively rely upon inferential proof.
+>Obs. 5. Additionally it may be said: (1) If the apostles preached that the covenanted, predicted Kingdom was established, why do they not *directly declare* this as a fact, and thus remove error and prevent the incoming Chiliasm? Is there a single passage which *directly teaches* that the Christian church is the Kingdom? No such declaration or passage is to be found in all the apostolical writings. (2) Hence it is a fact which cannot be gainsaid that those who hold to a present establishment of the Kingdom exclusively rely upon *inferential* proof.
+>p. 437 Vol. 1 Prop 70 Obs. 5
 ### Peter's first sermons
->Obs. 6. Take the first sermons of Peter, and nothing is said of the establishment of the Kingdom,
+>Obs. 6. Take the first sermons of Peter, and nothing is said of the establishment of the Kingdom, although multitudes inform us that it was *only then* manifested.
+>p. 438 Vol. 1 Prop 70 Obs. 6
 
->Peter boldly asserts that Jesus was to sit on David’s throne, that He was raised up and exalted for this purpose, that He was seated at God’s right hand until the period arrives (comp. e.g. Rev. 19 and 20) for making His enemies His footstool, and that, therefore, He is both Lord and Christ.
->Obs. 6
+>Peter boldly asserts that *Jesus was to sit on David’s throne*, that He was raised up and exalted for this purpose, that He was seated at God’s right hand until the period arrives (comp. e.g. Rev. 19 and 20) for making His enemies His footstool, and that, therefore, He is *both Lord and Christ*.
+>p. 438 Vol. 1 Prop 70 Obs. 6
 
->this Jesus, thus declared to be the Messiah, shall remain in heaven until the period of restitution spoken of by the prophets, and always linked with the Messianic Kingdom, shall arrive;
->Obs. 6
+>... *this Jesus*, thus declared to be the Messiah, shall remain in heaven *until the period of restitution* spoken of by the prophets, and always linked with the Messianic Kingdom, shall arrive;
+>p. 438 Vol. 1 Prop 70 Obs. 6
 
->it is utterly impossible to conceive of any other impression made upon their minds than that the Kingdom was still future, and would be established when Jesus would come again.
->Obs. 6
+>... it is *utterly impossible* to conceive of *any other impression* made upon their minds *than that the Kingdom was still future, and would be established when Jesus would come again*.
+>p. 438 Vol. 1 Prop 70 Obs. 6
 
 ### Paul
 Obs. 7
 
 ### James
 Obs. 8
->Obs. 8. James in his Epistle, instead of a kingdom now established, calls believers “heirs of a kingdom and exhorts to a patient waiting for “the Coming of the Lord” when the promises will be realized, thus strictly verifying Christ’s statements.
+>Obs. 8. James in his Epistle, *instead* of a kingdom now established, calls believers “*heirs of a kingdom*" and exhorts to a patient waiting for “*the Coming of the Lord*” *when* the promises will be realized, thus strictly verifying Christ’s statements.
+>p. 439 Vol. 1 Prop 70 Obs. 8
 ### John and Jude
 Obs. 9
 ### Epistles
->Obs. 10. The simple fact, running through the Epistles, is that the Kingdom is spoken of as still future and constantly associated with the speedy Advent of Jesus.
+>Obs. 10. The simple fact, running through the Epistles, is that *the Kingdom is spoken of as still future and constantly associated with the speedy Advent of Jesus*.
 
 >The passages already adduced abundantly confirm our position, for, instead of teaching what the Alexandrian, monkish, popish, and modern schools so loudly affirm (viz.: that the covenanted Kingdom had already arrived and was in full realization and progress), they point us to the Sec. Coming of Jesus for the glorious establishment of the Kingdom.
 >Obs. 10
