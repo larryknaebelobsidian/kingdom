@@ -36,7 +36,7 @@ tags:
 ### This is not a Gentile dispensation
 >Obs. 6. While in relation to “the times of the Gentiles” and their calling, this might be named, as some do, a “Gentile dispensation,” yet it is a phrase not strictly correct,
 ### Apostles continued as faithful Jews
->This adoption and continued election, materially aids in throwing light upon the difficult question, why it was that the apostles and first Christians, with their faith and hope in Jesus Christ, continued faithful Jews, attending the religious religious services in the temple and synagogue; and that we have no distinctive utterance from the apostles, even when in council together considering the admission and circumcision of the Gentiles, respecting the abrogation of the Mosaic ceremonial law, etc., excepting by Paul afterward. The views entertained respecting virtual adoption, incorporation, and election caused them to occupy such a posture.
+>This adoption and continued election, materially aids in throwing light upon the difficult question, why it was that the apostles and first Christians, with their faith and hope in Jesus Christ, continued faithful Jews, attending the religious services in the temple and synagogue; and that we have no distinctive utterance from the apostles, even when in council together considering the admission and circumcision of the Gentiles, respecting the abrogation of the Mosaic ceremonial law, etc., excepting by Paul afterward. The views entertained respecting virtual adoption, incorporation, and election caused them to occupy such a posture.
 >p. 406 Vol. 1 Prop 63 Obs 7
 
 
