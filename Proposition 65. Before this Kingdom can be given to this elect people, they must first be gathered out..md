@@ -12,9 +12,11 @@ tags:
 ---
 # Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.
 
->The nature of the Kingdom as covenanted, and the rejection of the Kingdom by the chosen nation (making such a gathering requisite), requires such an arrangement. The introduction of the faith principle, by which Abraham was justified before circumcision took place, to raise up children to Abraham, merely produces “the heirs,” who inherit the Kingdom. The elect are “the guests,” who are first all invited and furnished before the marriage feast takes place. The Kingdom is not given—in the sense of being actually realized—to them one by one as gathered, but when all are gathered.
+>The nature of the Kingdom as covenanted, and the rejection of the Kingdom by the chosen nation (making such a gathering requisite), requires such an arrangement. The introduction of the faith principle, by which Abraham was justified before circumcision took place, to raise up children to Abraham, merely produces “*the heirs*,” who inherit the Kingdom. The elect are “the guests,” who are first all invited and furnished *before* the marriage feast takes place. The Kingdom is not given—in the sense of being actually realized—to them one by one as gathered, but when all are gathered.
+>p. 412 Vol. 1 Prop 65
 ### Final gathering of all elect
 >Obs. 1. This final gathering of all the elect “from one end of heaven to the other,” at the period of inheriting the Kingdom, is mentioned, e.g. Matt. 24:31; Mark 13:27; 2 Thess. 2:1, etc.
+>p. 412 Vol. 1 Prop 65 Obs. 1
 ### Requires open manifestation of the engrafted seed
 >Obs. 2. This Kingdom is promised to the direct faithful seed of Abraham, and it is incorporated with the Jewish nation through the adopted and amalgamated Theocratic-Davidic throne and Kingdom. It is likewise promised to the engrafted seed, but necessarily subject to the same incorporation. Hence, until this seed is openly manifested in its nationally engrafted character with the Jewish elect nation (a restoration of the nation being imperative to fulfil covenants), the Kingdom as promised and predicted cannot be established.
 ### Election connection
