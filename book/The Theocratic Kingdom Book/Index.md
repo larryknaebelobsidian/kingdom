@@ -216,4 +216,5 @@ longform:
     - Prop 206
   ignoredFiles:
     - generatedmanuscript
+    - Selected Quotations from The Theocratic Kingdom
 ---
