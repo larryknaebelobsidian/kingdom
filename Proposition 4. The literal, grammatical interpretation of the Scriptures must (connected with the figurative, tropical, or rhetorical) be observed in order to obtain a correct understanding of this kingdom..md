@@ -169,6 +169,5 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > p.  66 Vol. 1 Prop. 4 Obs. 10 note
 
 ### Normal rules of language used to determine the intent of the author
-
 > An observance of the rules common to language, practical sense, a due regard to the analogy of Scripture and Faith, an observance of the historical application in reference to opinions and views held, an unprejudiced mind and a heart willing, irrespective of pre-conceived ideas, to bring forth the real meaning and intent of the writer -- these, in connection with a personal experience of the truth, are requisites to constitute a good interpreter.
 > p.  67 Vol. 1 Prop. 4 Obs. 11 note
