@@ -68,35 +68,46 @@ Obs. 2
 > p. 34 Vol. 1 Prop 2 Obs. 2
 ### Identified with eternal purpose and creation
 Obs. 3
+p. 34 Vol. 1 Prop 2 Obs. 3
 ### Divine determination notwithstanding the fall
->Obs. 4. The exercise of creative power, and its continued exhibition in behalf of man and the world, clearly shows the Divine determination to establish this kingdom, notwithstanding the antagonistic elements introduced by the fall. All things exist, because God has a determined end in view, which end is embraced in this kingdom.
+>Obs. 4. The exercise of creative power, and its continued exhibition in behalf of man and the world, clearly shows *the Divine determination* to establish this kingdom, notwithstanding the antagonistic elements introduced by the fall. All things exist, because God has a determined end in view, which end is embraced in this kingdom.
+>p. 35 Vol. 1 Prop 2 Obs. 4
 ### Foundation of earth laid in preparation for this kingdom
 >Obs. 5. This kingdom is one pertaining to the earth. Before the creation of the world, it only existed in the determination or purpose of God, but at creation the very foundation of the world was laid in preparation for it. 
 >...
 >“From the foundation of the world” is indicative that God purposed this very earth, when founded, for this kingdom.
+>p. 35 Vol. 1 Prop 2 Obs. 5
 
 ### Glorious restitution
 Obs. 6
+p. 35 Vol. 1 Prop 2 Obs. 6
 
 ### Predetermination includes all actors (king, rulers, heirs, etc.) and details
 Obs. 7
+p. 35 Vol. 1 Prop 2 Obs. 7
 
 ### The goal
 Obs. 8
->in order that the supremacy and authority of God may be universally acknowledged, and that the manifold wisdom and love of the Lord may be displayed and experienced in the eternal ages. It also reaffirms that for this object and end all things are sustained and allowed, to work out, under Divine Providence, their destiny in respect to this kingdom.
+>... in order that the supremacy and authority of God may be universally acknowledged, and that the manifold wisdom and love of the Lord may be displayed and experienced in the eternal ages. It also reaffirms that for this object and end all things are sustained and allowed, to work out, under Divine Providence, their destiny in respect to this kingdom.
+>p. 36 Vol. 1 Prop 2 Obs. 8
 
 ### The purpose of history
 Obs. 9
+p. 36 Vol. 1 Prop 2 Obs. 9
 
 ### Wide topic requiring careful study
 Obs. 10
+p. 36 Vol. 1 Prop 2 Obs. 10
 
 ### All knowledge of the Kingdom must come from God
 Obs. 11
+p. 36 Vol. 1 Prop 2 Obs. 11
 
 ### Will display God's wisdom throughout the earth
 Obs. 12
+p. 37 Vol. 1 Prop 2 Obs. 12
 
 ### Divine Creating Mind and Ruling Will
 >Obs. 14. Lastly, this proposition is based on the scripturally derived statement, that a Divine Creating Mind and a Ruling Will orders and rules over all, so that notwithstanding apparent difficulties and unexplained problems, that Mind and Will shall be ultimately triumphantly vindicated in an open, revealed manner, indicating, what piety already realizes as an earnest in preparatory work, their close and intimate relationship with man and earth.
+>p. 37 Vol. 1 Prop 2 Obs. 14
 
