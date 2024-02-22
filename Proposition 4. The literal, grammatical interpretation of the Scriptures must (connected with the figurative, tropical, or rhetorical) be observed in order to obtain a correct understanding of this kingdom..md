@@ -10,12 +10,11 @@ tags:
 ### Props Mentioned
 [[Proposition 70. The apostles, after Christ’s ascension, did not preach, either to Jews or Gentiles, that the Kingdom was established.|70]] [[Proposition 71. The language of the Apostles confirmed the Jews in their Messianic hopes of the Kingdom.|71]] [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.|72]] [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.|73]] [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.|74]] [[Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.|75]] [[Proposition 76. The doctrine of the Kingdom was changed under the Gnostic and Alexandrian influence.|76]] [[Proposition 77. The doctrine of the Kingdom, as held by the early church was finally almost exterminated under the teaching and power of the Papacy.|77]] [[Proposition 78. The early church doctrine was revived after the Reformation.|78]] [[Proposition 16. This kingdom cannot be properly comprehended without acknowledging an intimate and internal connection existing between the Old and New Testaments.|16]] 
 ### Literal grammatical interpretation is sound
-
-> I hold for a most infallible rule in expositions of the Sacred Scriptures, that where a literal construction will stand, the furthest from the letter is commonly the worst. There is nothing more dangerous than this licentious and deluding art, which changes the meaning of words, as alchymy doth, or would do, the substance of metals, making of anything what it pleases, and bringing in the end all truth to nothing.
+> "I hold for a most infallible rule in expositions of the Sacred Scriptures, that where a literal construction will stand, the furthest from the letter is commonly the worst. There is nothing more dangerous than this licentious and deluding art, which changes the meaning of words, as alchymy doth, or would do, the substance of metals, making of anything what it pleases, and bringing in the end all truth to nothing."
 > -Hooker
 > p. 47 Vol. 1 Prop. 4 Obs. 1
 
-> I have grounded my preaching upon the literal word ; he that pleases may follow me, he that will not may stay. 
+> "I have grounded my preaching upon the literal word ; he that pleases may follow me, he that will not may stay." 
 > -Luther
 > p. 48 Vol. 1 Prop. 4 Obs. 1
 
@@ -23,7 +22,7 @@ tags:
 > p. 48 Vol. 1 Prop. 4 Obs. 1
 
 > By "literal," we mean the grammatical interpretation of Scripture.  Some writers, to avoid lengthy or circumlocutory phraseology, have employed the phrase "literal interpretation," by which they denote, not that every word or sentence is to be taken in its rigid literalism, but that the language of the Bible is to be interpreted by the customary rules of grammar and rhetoric, which are used in determining the sense of the "Iliad," "Paradise Lost," and works of human composition.  We are to accept of a strictly literal rendering, unless we have the distinctive marks of figures of speech, when the tropical sense is also received, without *afterward, in addition*, engrafting upon it another and separate sense which is not allowed by the rules of grammar, but which (i.e., last added sense) is applied by many to the Bible, as if the language of that book was not fairly circumscribed by, but formed an exception to, *the universal laws* of language.
-> p. 48 Vol. 1 Prop. 4 Obs. 1
+> p. 47-48 Vol. 1 Prop. 4 Obs. 1
 
 >When employing the word "literal," we are to be comprehended as also fully acknowledging the figurative sense, the beautiful ornaments of language; we cordially accept all that is *natural* to language itself, its naked strength and its charming adornments, but object to *additionally* forcing on it a *foreign* element, and enclosing it in a garb that hides its just proportions.
 >p. 48 Vol. 1 Prop. 4 Obs. 1
@@ -31,18 +30,18 @@ tags:
 > The Jews, as is well known, while to a large degree holding to a literal interpretation (as e.g. in reference to a literal coming and kingdom of the Messiah, etc.), at the time of the First Advent had fallen more and more into a figurative and allegorizing interpretation, which culminated in the speculative Cabala.
 > p. 48 Vol. 1 Prop. 4 Obs. 1 note 1
 
-> I here once more repeat, what I have so often insisted on, that the Christian should direct his efforts toward understanding the so-called *literal sense of Scripture, which alone is the substance* of faith and of Christian theology, which alone will sustain him in the hour of trouble and temptation, and which will triumph over sin, death, and the gates of hell, to the praise and glory of God.  The allegorical sense is usually uncertain, and by no means safe to build our faith upon; for it depends for the most part on human opinion only, on which if a man lean he will find it no better than the Egyptian reed.  There Origen, Jerome, and similar of the Fathers *are to be avoided, with the whole of that Alexandrian school which abounds in* this species of interpretation.
+> "I here once more repeat, what I have so often insisted on, that the Christian should direct his efforts toward understanding the so-called *literal sense of Scripture, which alone is the substance* of faith and of Christian theology, which alone will sustain him in the hour of trouble and temptation, and which will triumph over sin, death, and the gates of hell, to the praise and glory of God.  The allegorical sense is usually uncertain, and by no means safe to build our faith upon; for it depends for the most part on human opinion only, on which if a man lean he will find it no better than the Egyptian reed.  There Origen, Jerome, and similar of the Fathers *are to be avoided, with the whole of that Alexandrian school which abounds in* this species of interpretation."
 > -Luther
 > p.  48-49 Vol. 1 Prop. 4 Obs. 1 note 2
 
-> that golden rule of all sound interpretation which Luther first introduced, namely, that all the sacred books contain but one single meaning
+> "that golden rule of all sound interpretation which Luther first introduced, namely, that all the sacred books contain but one single meaning"
+> -Mosheim (Eccl. Hist., vol. 3, p. 137)
 > p.  49 Vol. 1 Prop. 4 Obs. 1 note 2
 
 > Unbelievers and semi-believers generally advocate that the construction of the Bible is like that of other books, but refuse (Bauer, etc.) to credit the fact that it is diverse from all other books in the authority and truths that it contains.  Our entire argument following shows that we hold it to be above and beyond all other books in the unity of supernatural and Divine things embraced. 
 > p.  49 Vol. 1 Prop. 4 Obs. 1 note 3
 
 ### Literal grammatical interpretation is old
-
 > Let the reader consider that the grammatical interpretation was for ages *the only one* used; and can a reason be given why it should suddenly be abandoned for another?
 > p.  49 Vol. 1 Prop. 4 Obs. 2
 
@@ -60,7 +59,7 @@ tags:
 >  p.  50 Vol. 1 Prop. 4 Obs. 2 note 1
 
 > Philo was distinguished among those in that place who practised this method and he defends it as something new and before unheard of, and for that reason by the other Jews
-> - De Confus, Lingu. page 347
+> - De Confus, Lingu. page 347 *seq*.
 > p.  50 Vol. 1 Prop. 4 Obs. 2 note 1 
 
 > Jesus was not, therefore, in a situation where he was compelled to comply with *a prevailing custom* of allegorical interpretation; for this method did not prevail at that time among the Jews, certainly not in Palestine, where Jesus taught.
@@ -71,9 +70,10 @@ tags:
 >  p.  51 Vol. 1 Prop. 4 Obs. 2 note 1
 
 > While an ingenious and learned school formed at Alexandria had contrived by a system of allegorical interpretation to infuse Platonism into the Old Testament, the school at Jerusalem had been growing increasingly rigid, and interdicted any such daring exegesis.  It clung with fanatic attachment to the letter of the Scriptures, but failing to comprehend the spirit, it sunk into all the puerilities of a narrow literalism.
+> - Pressense (*The Early Years of Christianity*, p. 99)
 > p.  51 Vol. 1 Prop. 4 Obs. 2 note 1
 
-> The **history of interpretation** is briefly told. The **first, and Jewish, method** was to abide by the **grammatical sense** (still retained to some extent by the Orthodox -- over against the Reformed or Rationalist -- Jews, and especially by "the Karaites" or "Scripturists"), but as the Jews came in contact with Greek and Oriental philosophy (in Egypt, Greece, etc.), the **effort to conciliate the Hebrew Scriptures with such a philosophy** led to a second mode by which the obvious sense is made figurative in order to convey another sense -- the latter being regarded as the higher.  This brought forth three distinctive types of interpretation: the **grammatical**, the **ideal**, and these two, more or less, combined.  The **Jewish method** -- evidenced by its exclusiveness and Messianic hopes -- was adopted by the primitive Church, as witnessed e.g. by its application of prophecy, its Pre-millenarian views, etc.  The **ideal**, presented in the system of Philo, was inaugurated into the Christian Church by the Alexandrian fathers, and speedily gained a wide-spread reputation, being followed by numerous writers.  A **combination** of the grammatical and ideal found a host of followers down to the Reformation.  Tradition, metaphysical speculations, some favorite for of philosophy, were incorporated.  At the Reformation there was a return to the Jewish method, and while the ideal and mystical has been largely adopted, yet the extremes -- excepting in a few cases -- once so prevailing are now avoided.  As to Philo's system, afterward adopted by Christian fathers (Origen, etc.), we only quote, as illustrative, from an Article entitled "Alexandrian Christianity" (The North Brit. Review, August, 1855) : "According to him (Philo), nearly the whole of Scripture, not only its parables, its symbolic ceremonies, its obscure prophecies, but even the simplest language in which it relates the most ordinary transaction, every name and every number that it contains, possesses not only a plain but also a hidden meaning, the former of which is to the letter as the body to the soul."  After stating that Aristobulus and other Jews, Oriental and Alexandrian, and even Greeks (in application to their poets) had employed this method, the writer adds: "We should say that the adoption of this principle of interpretation by Philo and his Christian disciples was the **greatest obstacle to their discovering the true meaning of the Bible**, and is the cause of their being almost useless as expositors. "
+> The history of interpretation is briefly told. The first, and Jewish, method was to abide by the grammatical sense (still retained to some extent by the Orthodox -- over against the Reformed or Rationalist -- Jews, and especially by "the Karaites" or "Scripturists"), but as the Jews came in contact with Greek and Oriental philosophy (in Egypt, Greece, etc.), the effort to conciliate the Hebrew Scriptures with such a philosophy led to a second mode by which the obvious sense is made figurative in order to convey another sense -- the latter being regarded as the higher.  This brought forth three distinctive types of interpretation: the grammatical, the ideal, and these two, more or less, combined.  The Jewish method -- evidenced by its exclusiveness and Messianic hopes -- was adopted by the primitive Church, as witnessed e.g. by its application of prophecy, its Pre-millenarian views, etc.  The ideal, presented in the system of Philo, was inaugurated into the Christian Church by the Alexandrian fathers, and speedily gained a wide-spread reputation, being followed by numerous writers.  A **combination** of the grammatical and ideal found a host of followers down to the Reformation.  Tradition, metaphysical speculations, some favorite for of philosophy, were incorporated.  At the Reformation there was a return to the Jewish method, and while the ideal and mystical has been largely adopted, yet the extremes -- excepting in a few cases -- once so prevailing are now avoided.  As to Philo's system, afterward adopted by Christian fathers (Origen, etc.), we only quote, as illustrative, from an Article entitled "Alexandrian Christianity" (The North Brit. Review, August, 1855) : "According to him (Philo), nearly the whole of Scripture, not only its parables, its symbolic ceremonies, its obscure prophecies, but even the simplest language in which it relates the most ordinary transaction, every name and every number that it contains, possesses not only a plain but also a hidden meaning, the former of which is to the letter as the body to the soul."  After stating that Aristobulus and other Jews, Oriental and Alexandrian, and even Greeks (in application to their poets) had employed this method, the writer adds: "We should say that the adoption of this principle of interpretation by Philo and his Christian disciples was the greatest obstacle to their discovering the true meaning of the Bible, and is the cause of their being almost useless as expositors. "
 > p.  51 Vol. 1 Prop. 4 Obs. 2 note 1
 
 > Philo criticises the attitude of those who merely hold fast to the literal sense of Scripture as low, unworthy, and superstitous.
@@ -100,7 +100,7 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > p.  54 Vol. 1 Prop. 4 Obs. 3 note 1
 
 > Mysticism, more or less developed, is found in many authors of the present day, although they refuse the extreme of the "Abecedarians," who (Appleton's *Cyclop.*) "held that without the aid of study the Holy Spirit would convey directly to the understanding a knowledge of the Scriptures, and that, therefore, it was better not to know how to read."
->  p.  55 Vol. 1 Prop. 4 Obs. 3 note 3
+>  p.  54-55 Vol. 1 Prop. 4 Obs. 3 note 3
 
 > Luther, on John 14:25-28, gives an infallible rule for trying the professed (by men) utterances of the Holy Spirit, thus: "If one come, therefore, and present anything to me as taught or revealed by the Holy Spirit, I keep to the Word and hold this doctrine up to it, as to the true touchstone.  If now I see that it agrees with that which Christ says, I receive it as right and good.  But if it be a departure from it, or would produce something different from it, then I say, Thou art not the Holy Ghost, but the detestable devil.  For the true Spirit comes in no other name than in the name of Christ, and teaches nothing other than what the Lord Christ has said."
 > p.  55 Vol. 1 Prop. 4 Obs. 3 note 3
@@ -109,8 +109,7 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > p.  55 Vol. 1 Prop. 4 Obs. 3 note 3
 
 ### Literal is intelligible
-
-> a revelation unintelligible is no revelation at all 
+> ... "a revelation unintelligible is no revelation at all ..." 
 > - Dr. Sprecher, *Groundwork of Theol.*, p. 1, ch. 5
 > p.  56 Vol. 1 Prop. 4 Obs. 4 note 
 
@@ -119,7 +118,6 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > p.  56 Vol. 1 Prop. 4 Obs. 4 note
 
 ### Same rules required
-
 > The interpretation of Scripture is to be conducted by the same rules applicable to the interpretation of a classical or profane author.
 > - Ernesti (*Inst. Interp. of the New Testament*)
 > p.  57 Vol. 1 Prop. 4 Obs. 5 note
@@ -135,8 +133,7 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > p.  57 Vol. 1 Prop. 4 Obs. 5 note 
 
 ### Understanding what is written
-
-> the Scriptures are of little use to those who understand them as they are written
+> "... the Scriptures are of little use to those who understand them as they are written"
 > - Origen (Porter's *Lec. Hom.*, p. 51)
 > p.  58 Vol. 1 Prop. 4 Obs. 6 
 
@@ -144,28 +141,24 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > p.  58 Vol. 1 Prop. 4 Obs. 6 
 
 ### Undermines the authority of the Bible
-
-> A departure from the literal sense has not only caused those immensely varied and antagonistic interpretations of the kingdom, but it has, in self-defence, forced able and pious man to a confession which ***undermines and destroys the authority of the Bible.***
+> A departure from the literal sense has not only caused those immensely varied and antagonistic interpretations of the kingdom, but it has, in self-defence, forced able and pious man to a confession which undermines and destroys the authority of the Bible.
 > p.  60 Vol. 1 Prop. 4 Obs. 7 
 
 > Grammar, rhetoric, and history are violated for the sake of an idea, an "inner germ," and the most scholarly, learned men are pushing on, exultantly, the work.
 >  p.  62 Vol. 1 Prop. 4 Obs. 7 
 
 ### Not ultra-literalism
-
-> While urging a literal interpretation, we are, as already intimated, equally ***opposed to that ultra-literalism which makes no allowance for the figures of speech incident to all language.***
+> While urging a literal interpretation, we are, as already intimated, equally opposed to that ultra-literalism which makes no allowance for the figures of speech incident to all language.
 > p.  63 Vol. 1 Prop. 4 Obs. 8 
 
 > The simple truth is, that not a single Millenarian author, from the days of the apostles down, holds to such an opinion ; all of them, without exception, fully recognize symbols, types, and figures of speech, notice their peculiarities, and discriminate them from the strictly literal. It is *their plain, unanimous* statement that language must be interpreted by the laws which produce and regulate it: if symbolic, it is to be interpreted by the laws governing symbols; if typical, then by the laws underlying types; if figurative, then by the rules controlling figures; and if rigidly literal, then by the laws of unfigurative speech. 
 > p.  63 Vol. 1 Prop. 4 Obs. 8
 
 ### Attempt to raise non-prophetical portions above others
-
 > It has become quite fashionable with recent writers, in their efforts to find arguments against us, to practically lower the prophetical portion of the Word by placing the non-prophetical of the New Testament in the scale as far superior to the former, etc. (so e.g. Waldegrave, comp. Lord's *Journal*, Ap. 1857)
 > p.  64 Vol. 1 Prop. 4 Obs. 9
 
 ### Important doctrines must not be solely based on figurative language
-
 > In our Introductions to the Bible it is a generally admitted principle that no important doctrine should be solely based on figurative language ; that to give it certainty it ought to be founded on the literal meaning of the words.  This is a necessity, notwithstanding the theorizing, so much impressed, that in every promulgation of doctrine, men will instinctively feel that if they can secure the literal sense in their favor, *the strongest possible proof* is thus obtained. Why reject this when we come to the doctrine of the kingdom?  Surely, if there is a doctrine in the Bible that ought to be sustained by *the clearest evidence*, it is the leading one of the kingdom.  This is abundantly provided, if we will only consider and receive it.  Its simplicity should not deter us; this feature ought rather to recommend it to our special notice.  More than this : if we reject it we will be held responsible for the same, just as Jesus held the Jews accountable for the literal understanding of the Scriptures. 
 > p.  65 Vol. 1 Prop. 4 Obs. 10
 
