@@ -27,7 +27,7 @@ Romans 11:28
 Romans 9:11
 11 for though _the twins_ were not yet born and had not done anything good or bad, so that the purpose of God according to _His_ choice would stand, not because of works but because of Him who calls,
 
-> the sovereignty of God chose in the descendants of Abraham, the Jews, a people *through whom* should be manifested his Divine purpose in the salvation of man.
+> ... the sovereignty of God chose in the descendants of Abraham, the Jews, a people *through whom* should be manifested his Divine purpose in the salvation of man.
 > p. 207 Vol. 1 Prop. 24
 
 > This election is not to be regarded, as some tell us, an act of favoritism, but as founded in *that wisdom* which adopted it (as the end will manifest) as the best means, under the circumstances in which fallen humanity was placed, to reach, consistently with moral freedom, the largest portion of mankind, having in view the ultimate establishment and triumph -- in opposition to depravity -- of God's Kingdom.
@@ -42,22 +42,18 @@ Deut. 7:7-11
 > p. 207 Vol. 1 Prop. 24 Obs. 1
 
 ### Election is twofold - national and individual
->While the nation, comprising the natural descendants of Abraham, is thus chosen, it does not follow that every individual in it is thus personally elected. The election is *twofold* -- in its reach after the nationality, and in its application to the individual member of the nation.  It, in the latter case, only pertains to the believing, obedient portion of the nation.  This Paul, in Rom. 9 and 11, distinctly teaches.
+>... While the nation, comprising the natural descendants of Abraham, is thus chosen, it does not follow that every individual in it is thus personally elected. The election is *twofold* -- in its reach after the nationality, and in its application to the individual member of the nation.  It, in the latter case, only pertains to the believing, obedient portion of the nation.  This Paul, in Rom. 9 and 11, distinctly teaches.
 >p. 209 Vol. 1 Prop. 24 Obs. 3
-
 ### Why to the Jewish race?
->How comes it, then, that the covenants are given to the Jewish race? That this election is confined to the Jewish race and those adopted into that race? That the election is traced directly through the descendants of Abraham and those incorporated as Abraham’s seed? That all the prophets, all the inspired teachers,, Jesus and the apostles, are Jews? That the election of the nation is recognized by Jesus and the apostles, and that the Gentiles were only afterward admitted by special revelation, and then only as the acknowledged children of Abraham?
+>... How comes it, then, that the covenants are given to the Jewish race? That this election is *confined to the Jewish race and those adopted into* that race? That the election is traced directly *through the descendants* of Abraham and those incorporated *as Abraham’s seed*? That all the prophets, all the inspired teachers,, Jesus and the apostles, *are Jews*? That the election of the nation is recognized *by* Jesus and the apostles, and that the Gentiles were only afterward admitted *by special revelation, and then only as the acknowledged children of Abraham*?
   . . . The misapprehension arises from not discriminating that the true seed are faithful Jews, or become such by faith, being *the actual* descendants of Abraham, or *accounted such -- part of the race* to whom the covenants are given. It does not follow, because God designs to exalt and bless the nation, that a disobedient Jew will obtain the blessings of election; for while the race, as a race, is chosen, it is not said that every individual of the race is also ultimately chosen.  The fact is, that very few, comparatively, may avail themselves of the opportunity afforded; but that does not vitiate the election of the portion of the race that is faithful, and it does not alter God's final purpose in reference to the nation itself.
 > p. 210-211 Vol. 1 Prop. 24 Obs. 4
-
 ### To the Jews, not to the Gentiles
 > If any one says (as, alas, many do), perverting the language of Paul applicable to another feature, that the having the blood of Abraham in their veins amounted to nothing (which is true, when accompanied by unbelief, as Jesus taught), he simply fails to recognize the plain fact *that Jews* were called, and *not* Gentiles; a covenant was made *with Jews, and not* with Gentiles; the promises were given *to Jews*, and *not* to Gentiles; and that Gentiles receive and inherit *with* the natural descendants of Abraham *only as they are incorporated.*
 > p. 212 Vol. 1 Prop. 24 Obs. 5
-
 ### Not a "type"
 >it is inconsistent to make (as e.g. Fairbairn, Whately and others) this elect people *a type* of others -- the type of a future people -- thus misapplying the word "Israel."
 >p. 212 Vol. 1 Prop. 24 Obs. 6
-
 ### Wall broken down between Jewish and Gentile believers
 > The Scriptures simply declare, that the "wall" is broken down between natural Jewish and Gentile *believers*, so that all of every nationality, *when exercising faith* in Jesus, become *one* in Christ.
 > p. 213 Vol. 1 Prop. 24 Obs. 8
@@ -68,7 +64,7 @@ Deut. 7:7-11
 > The Mosaic economy -- likened also to a wall or fortification -- introduced to preserve intact the elect nation . . .
 > p. 214 Vol. 1 Prop. 24 Obs. 8
 ### Ultimate holiness
-> (The nation as portrayed as a root-stump, holy seed) is regarded sacred, and will ultimately become holy.
+> ... it (The nation as portrayed as a root-stump, holy seed) is regarded sacred, and will ultimately become holy.
 > p. 215 Vol. 1 Prop. 24 Obs. 9
  
 > The punishment, the scattering and desolation, of the Jewish nation is itself proof of their election as, e.g. Amos (ch. 3:2), declares : "You only have I known of all the families of the earth : *therefore* I will punish you for all your iniquities."  This casting off is only *temporary*, as evidence e.g. Zech. 10:6, etc.
