@@ -9,10 +9,11 @@ tags:
 # Proposition 16. This kingdom cannot be properly comprehended without acknowledging an intimate and internal connection existing between the Old and New Testaments.
 
 >The doctrine of the kingdom is first taught by covenant, theocratic ordering, and prophecy in the Old Testament, and it is taken for granted in the New Testament as a subject derived from the Old Testament and well understood; for the Kingdom is preached without any appended explanation.
+> p. 157 Vol. 1 Prop. 16
 ### Some authors depreciate the value of the OT
->Obs. 1. This Proposition is the more needed, since some recent works (as e.g. Fairbairn On Prophecy p. 164, etc.) have made efforts to depreciate the value of the Old Test, as an instructor, telling us that it is far inferior to the New Test., that its light is dim and its utterances indistinct in comparison with the New, etc.
->...
->the Old Test, which so largely deals, e.g. in the consummation of the Church’s glory.
+>Obs. 1. This Proposition is the more needed, since some recent works (as e.g. Fairbairn *On Proph*., p. 164, etc.) have made efforts to depreciate the value of the Old Test, as an instructor, telling us that it is *far inferior* to the New Test., that its light is dim and its utterances indistinct in comparison with the New, etc.
+>... the Old Test, which so largely deals, e.g. in *the consummation* of the Church’s glory.
+>p. 157 Vol. 1 Prop. 16 Obs. 1
 ### Why the OT should be at the same rank as the NT
 >Obs. 2. Our entire argument, as we proceed, is a refutation of this lowering of the Old Test. A few reasons now stated, will indicate the one-sidedness of those who resist the claims of the Old Test, to the same rank and dignity of the New. 
 >1. (1) The Old foretells the New, and the New confirms the Old—both are indispensably necessary. 
@@ -24,15 +25,18 @@ tags:
 >7. (7) The express injunction to search and study the Old Test. Scriptures. 
 >8. (8) The declaration of Jesus that He came to fulfil and not to destroy it, and that every jot and tittle of it was precious. 
 >9. (9) A large portion of the Old, embracing entire chapters and continuous prophecies, has not yet been fulfilled, owing to the postponement of the Kingdom and the designs of mercy, and hence—as will be shown hereafter—the period of the Christian Church is an intercalary one, extending through the Times of the Gentiles, and if we desire to know its destiny, its ultimate condition in the consummation, the Old must be compared with the New. 
->10. (10) Many things contained in the Old yet to be fulfilled, are only slightly hinted at or taken for granted in the New; others of magnitude and vast importance, are not even mentioned, it being supposed that every believer, as enjoined, would find them in the Old and incorporate them. 
+>10. (10) Many things contained in the Old yet to be fulfilled, are only slightly hinted at or taken for granted in the New; others of magnitude and vast importance, are not even mentioned, it being supposed that every believer, *as enjoined*, would find them in the Old and incorporate them. 
 >11. (11) The New only professes to be a continuation of the Divine Plan of Salvation; it is a necessary supplement to the Old, but not a superseding of the Old, excepting only in the ordaining of certain provisionary and typical measures. 
 >12. (12) The destiny of all the elect, both under the Old and New, is the same, showing that the same truth leading to the same end, is virtually contained in both Tests., however one may add to the other. 
 >13. (13) The unity of Divine Purpose can only be ascertained by their combination; without the Old many of the allusions in the New could not be understood, and without the New much that is in the Old could not be properly appreciated. 
 >14. (14) The New, as evidenced by our remarks, is built on the Old as on a foundation, and if separated from the latter, its strength and stability is diminished, if not destroyed.
->Obs. 2 reformatted
+>p. 158 Vol. 1 Prop. 16 Obs. 2 reformatted
 ### Faulty criticism
->Obs. 3. The criticism, then, of Ernesti and others, that the Old Test, might indeed have been of some use to the Jews, but certainly was not intended for all mankind, is sadly defective and demoralizing, seeing that on the fulfilment of the Old Test, promises depends our completed Salvation, our hope of perfected Redemption, the expectation of the final restitution of all things. The Old Test, is full of anticipated, covenanted, prophesied Salvation; the New is full of the inestimable provision made for the same; both unite in showing how and when it will be fully accomplished.
+>Obs. 3. The criticism, then, of Ernesti and others, that the Old Test, might indeed have been of some use to the Jews, but certainly was not intended for all mankind, is *sadly defective and demoralizing*, seeing that on the fulfilment of the Old Test, promises depends our completed Salvation, our hope of perfected Redemption, the expectation of the final restitution of all things. The Old Test, is full of anticipated, covenanted, prophesied Salvation; the New is full of the inestimable provision made for the same; *both unite* in showing how and when it will be fully accomplished.
+>p. 159 Vol. 1 Prop. 16 Obs. 3
 ### Unbelievers know if they attack the OT they lessen the NT
 >Obs. 4. Unbelievers, wise in perceiving the intimate and abiding connection existing between the Old and New Tests., attack the Old with the correct opinion, that just in proportion as they can show that the Old is “antiquated, unreliable, uncertain” in its utterances, etc., to the same extent will they lessen the authority and force of the New.
+>p. 159 Vol. 1 Prop. 16 Obs. 4
 ### Impossible to understand the Kingdom without OT
->Obs. 6. The Kingdom being a leading subject of many portions of the Old Test., a subject specially mentioned in covenant and prophecy, it is utterly impossible to understand it properly without passing over the same.
+>Obs. 6. The Kingdom being a leading subject of many portions of the Old Test., a subject specially mentioned in covenant and prophecy, it is utterly impossible to understand it properly without passing over the same. This is realized the more, if it is considered that the doctrine *originates* in the Old Test. ; that the New Test. in its opening takes a knowledge of the Old *for granted* ; that in view of such a previous obtained information important details given in the Old are either slightly presented or omitted in the New; and that, aside from the Apocalypse, the most glowing and extended descriptions pertaining to the Kingdom, as God's predictions relating to it receive an ample verification, are still found in the Old.
+>p. 161 Vol. 1 Prop. 16 Obs. 6
