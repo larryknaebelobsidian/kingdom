@@ -9,14 +9,13 @@ tags:
 # Proposition 9. The nature of, and the things pertaining to the kingdom, can only be ascertained within the limits of Scripture.
 
 > One of the distinguishing results of the Reformation was "the resurrection of the Bible," making it, as in the Apostolic era, the object of constant citation and appeal.
-> p. 110 Vol. 1 Prop. 9
+> p. 110 Vol. 1 Prop. 9 note
 
 >"the formal principle of the Reformation, of Protestantism is subjection to the authority of Scripture."
 >- Hagenbach (*His. of Doctrines*, Vol. 1, sec. 212)
->p. 110 Vol. 1 Prop. 9
+>p. 110 Vol. 1 Prop. 9 note
 
 ### Scripture reveals truth
-
 > Increase of doctrinal knowledge does not consist in altering *the form* of doctrine, but in obtaining a clearer, more enlarged apprehension of *the unaltered* doctrine.
 > p. 113 Vol. 1 Prop. 9 Obs. 3
 
@@ -25,7 +24,6 @@ tags:
 >p. 113 Vol. 1 Prop. 9 Obs. 3
 
 ### Scripture produces fruit
-
 > Prayerful study of the Scriptures will evidence itself, *not in profession, but in fruits.
 > p. 117 Vol. 1 Prop. 9 Obs. 5
 

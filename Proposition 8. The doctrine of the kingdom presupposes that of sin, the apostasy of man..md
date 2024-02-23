@@ -13,13 +13,13 @@ tags:
 > The prophets with one voice proclaim, that this kingdom is to be established in order that in it man may find complete, perfect deliverance from sin and evil.  The kingdom is to be set up, so that man and nature may be happily rescued from the curse entailed by sin under which both labor and groan.
 > p. 102 Vol. 1 Prop. 8 
 ### The cure and eradication of sin
-> the Bible is a revelation of God's plan *to save man from his fallen condition.*
+> ... the Bible is a revelation of God's plan *to save man from his fallen condition.*
 > p. 102 Vol. 1 Prop. 8 Obs. 1
 
 > The kingdom originates in God's merciful desire to deliver us from the reign and power of sin; to bring us back into a state of *entire restitution and perfect salvation.*
 > p. 102 Vol. 1 Prop. 8 Obs. 1
 
-> It is a kingdom which in is preparatory measures calls for repentance of sin (Matt. 3:1), conversion from sin (Matt. 18:3), self-denial of sin (Mark 9:47), perseverance against sin (Luke 9:62), and most emphatically refuses admittance into the kingdom of those who indulge in sin (1 Cor. 6:9,10).
+> It is a kingdom which in its preparatory measures calls for repentance of sin (Matt. 3:1), conversion from sin (Matt. 18:3), self-denial of sin (Mark 9:47), perseverance against sin (Luke 9:62), and most emphatically refuses admittance into the kingdom of those who indulge in sin (1 Cor. 6:9,10).
 > p. 102 Vol. 1 Prop. 8 Obs. 1
 ### The mystery of sin
 > The introduction of sin and its continued existence is a deep mystery.
