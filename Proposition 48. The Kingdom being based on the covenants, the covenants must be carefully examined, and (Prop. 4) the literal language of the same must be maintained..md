@@ -14,8 +14,10 @@ tags:
 >p. 290 Vol. 1 Prop. 48
 ### Earthly covenants require literal language
 >Obs. 1. Why, then, should this universal rule be laid aside when coming to the covenants of the Bible?
+>p. 290 Vol. 1 Prop. 48 Obs. 1
 ### Literal covenants can expand over time
->Obs. 2. This, however, does not imply, especially if the covenant is a voluntary one on the part of God and contains His merciful purposes of Salvation, that it may not be briefly expressed or concisely stated, and be afterward enlarged by way of additions, by explaining how it will be performed, etc. All this may, indeed, be attached to it for prudential and wise reasons, and yet, as far as given, we are not at liberty to reject the plain meaning presented. And the less so if the additions afterward appended accurately coincide with the express language of the covenants.
+>Obs. 2. This, however, does not imply, especially if the covenant is a voluntary one on the part of God and contains His merciful purposes of Salvation, that it may not be briefly expressed or concisely stated, and be afterward enlarged by way of additions, by explaining how it will be performed, etc. All this may, indeed, be attached to it for prudential and wise reasons, and yet, *as far as given*, we are not at liberty to reject the plain meaning presented. And the less so if the additions afterward appended accurately coincide with the express language of the covenants.
+>p. 290 Vol. 1 Prop. 48 Obs. 2
 ### Literal partial fulfillment confirms
 >Our Proposition is confirmed by the indisputable fact that God has stamped the grammatical sense as the correct one by *literally fulfilling* a portion of the covenants.
 >p. 291 Vol. 1 Prop. 48 Obs. 3
