@@ -12,6 +12,7 @@ tags:
 > p. 245 Vol. 1 Prop. 35
 ### One kingdom under the Messiah linked with Jewish nationality
 >Obs. 1. There is *one* Kingdom under the Messiah, David’s Son and Lord, in some way linked with the election of the Jewish nationality, which is *the great burden* of prophecy.
+>p. 245 Vol. 1 Prop. 35 Obs. 1
 ### On earth
 >This Kingdom, too, according to the grammatical sense, is one here *on the earth*, not somewhere else, as e.g. in the third heaven or the Universe.
 >p. 245 Vol. 1 Prop. 35 Obs. 2
@@ -30,6 +31,6 @@ p. 245 Vol. 1 Prop 35 Obs. 3 summarized
 >p. 246 Vol. 1 Prop. 35 Obs. 5
 ### Foreknown
 >Obs. 6. Even in David’s and Solomon’s time this Kingdom was, in view of the foreseen rebellion of the nation, predicted as *a future restored* one under one of David’s descendants; and this was based on the peculiar covenanted relationship of the nation and then existing Davidic dynasty, as e.g. Ps. 89:20-52, Ps. 132:11-18, etc.
->. . . to show us convincingly that God *foreknew* the defection of the nation, and in His Plan provided for it.
+>. . . to show us convincingly that God *foreknew* the defection of the nation, and in His Plan *provided* for it.
 >p. 247 Vol. 1 Prop. 35 Obs. 6
 
