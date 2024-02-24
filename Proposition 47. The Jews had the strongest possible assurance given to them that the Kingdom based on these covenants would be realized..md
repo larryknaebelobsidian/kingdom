@@ -14,7 +14,7 @@ NOTE: Scripture quotes from LSB
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
 
->Attention has already been directed (Prop. 18) to the fact that the prophecies pertaining to this Kingdom shall not, in their ultimate fulfilment, fail, i.e., they are unconditional. The reason for this is that they are evolved from covenants confirmed by oath; and hence, in view of their absolute certainty (no matter how postponed), God has given expression to language which affirms beyond any doubt that this Kingdom, sustaining a covenanted relationship, would at some time in the future be established; and this, too, as covenanted in connection with the national salvation of the Jewish nation. Thus, e.g., read Jer. 31:36-37, and 33:19-26; Isa. 54:9, 10, etc.
+>Attention has already been directed (Prop. 18) to the fact that the prophecies pertaining to this Kingdom shall not, in their ultimate fulfilment, fail, i.e., they are unconditional. The reason for this is that they are evolved from covenants *confirmed by oath*; and hence, in view of their *absolute certainty* (no matter how postponed), God has given expression to language which *affirms beyond all doubt* that this Kingdom, sustaining a covenanted relationship, would at some time in the future be established; and this, too, *as covenanted* in connection with the national salvation of the Jewish nation. Thus, e.g., read Jer. 31:36-37, and 33:19-26; Isa. 54:9, 10, etc.
 >p. 287 Vol. 1 Prop. 47
 
 ### Jeremiah 31:36-37
@@ -44,14 +44,18 @@ Says Yahweh who has compassion on you. - LSB
 ### Jews were correct
 >Obs. 1. Hence it follows: that the Jews were not so grossly ignorant as many Gentiles now think; that they were correct in their apprehensions concerning the Messiah’s Kingdom being identified with the restored Davidic.
 >...
->God will perform the promises made to Abraham, Isaac, Jacob, David, and the Prophets, respecting the Jewish nation.
+>God *will perform* the promises made to Abraham, Isaac, Jacob, David, and the Prophets, respecting the Jewish nation.
+>p. 287 Vol. 1 Prop. 47 Obs. 1
 ### View of the pre-First Advent pious
->Obs. 2. Let the reader place himself in the period before the First Advent, with the Old Test, in his hands. Now what would be his belief in the Kingdom, with those covenants and prophecies, confirmed by oath and most expressive assurances? Surely it would be identical with that of the Jews themselves; it could not be otherwise, if there was faith in God’s Word and God’s oath.
+>Obs. 2. Let the reader place himself in the period before the First Advent, with the Old Test, in his hands. Now *what* would be his belief in the Kingdom, with those covenants and prophecies, *confirmed* by oath and most expressive assurances? Surely it would be *identical* with that of the Jews themselves; it could not be otherwise, if there was *faith* in God’s Word and God’s oath.
+>p. 287 Vol. 1 Prop. 47 Obs. 2
 ### In spite of the unbelief of some modern Jews
 >Obs. 3. The attitude of a portion of the modern Jews is to be regretted. Leavened with infidelity, they have lost all faith in the most precise and determinate utterances that can indicate the determination of God to verify His promises to the nation, and yet they profess to believe in this same God, in His veracity, etc.
 >...
->(Lev. 26:44), “Yet for all that, when they be in the land of their enemies, I will not cast them away, neither will I abhor them, to destroy them utterly, and to break my covenant with them: for I am the Lord their God.” Whether they believe it or not, mercy follows them for the sake of the covenant, and mercy will yet verify that covenant in the history of the nation, for “their God” has sworn it.
+>(Lev. 26:44), “Yet for all that, when they be in the land of their enemies, I will not cast them away, neither will I abhor them, to destroy them utterly, and *to break my covenant with them: for I am the Lord their God*.” Whether they believe it or not, mercy follows them for *the sake* of the covenant, and mercy will *yet verify* that covenant in the history of the nation, for “*their God*” has sworn it.
+>p. 288 Vol. 1 Prop. 47 Obs. 3
 ### Some writers push false "historical criticism"
 >Obs. 4. A class of writers has arisen, who, professing to be very critical, tell us that Abraham’s life, and indeed the whole Bible, must be subjected to “Historical Criticism.”
 >...
 >To this class, the solemnly covenanted promises of God and the assurances respecting the Kingdom are all idle dreams; men who believe and trust in them are self-deceived and fanatical; history that corroborates prophetic announcements is merely a coincidence; the faith of ages, sustained by personal experience and Providence, is nothing but a mistaken belief.
+>p. 288 Vol. 1 Prop. 47 Obs. 4
