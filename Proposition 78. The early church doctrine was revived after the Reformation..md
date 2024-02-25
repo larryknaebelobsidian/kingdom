@@ -9,15 +9,13 @@ tags:
 # Proposition 78. The early church doctrine was revived after the Reformation.
 ### Four various views of Chiliasts
 Obs. 1
-
 ### Some reformers were Chiliasts (or partial) but none were Whitbyans
 Obs. 2
-
 ### Reformers not directly Chiliasts - Luther, Melanchthon, Zwingli, Calvin, and Knox
 Obs. 3
 They held the Augustinian or Popish views
 
->viz.: that the church, in some sense, was the Kingdom of God (preparatory to a higher stage), and that the Millennial period (one thousand years) included *this* dispensation or gospel period (some of the Millennial descriptions being applicable only to a future period either in heaven or the renewed earthy, and hence was nearing its close.
+>... that the church, in some sense, was the Kingdom of God (preparatory to a higher stage), and that the Millennial period (one thousand years) included *this* dispensation or gospel period (some of the Millennial descriptions being applicable only to a future period either in heaven or the renewed earthy, and hence was nearing its close.
 >p. 527 Vol. 1 Prop. 78 Obs. 3
 
 
@@ -51,10 +49,10 @@ Obs. 6
 ### Post Reformation leading influential Premillenialists
 Obs. 7
 
->Prominently among these are the following: the profound Biblical scholar Joseph Mede (born 1586, died 1638), in his still celebrated Clavis Apocalyptica (translated into English) and Exposition on Peter; Th. Brightman (1644), Expositions of Daniel and Apoc.; J. A. Bengel (a learned divine, born 1687, died 1752), Exposition of the Apocalypse and Addresses on the same; also the writings of Th. Goodwin (1679); Ch. Daubuz (1730); Piscator (1646); M. F. Roos (1770); Alstedius (1643 and earlier); Cressener (1689); Farmer (1660); Fleming (1708); Hartley (1764); J. J. Hess (1774); Homes (1654); Jurieu (1686); Maton (1642); Peterson (1692); Sherwin (1665); and others (such as Conrade, Gallus, Brahe, Kett, Broughton, Marten, Sir I. Newton, Whiston, etc.), materially aided in directing attention to the Millenarian doctrine and to influence persons to Biblical study on the subject.
+>Prominently among these are the following: the profound Biblical scholar Joseph Mede (born 1586, died 1638), in his still celebrated *Clavis Apocalyptica* (translated into English) and *Exposition on Peter*; Th. Brightman (1644), *Expositions of Daniel and Apoc.*; J. A. Bengel (a learned divine, born 1687, died 1752), *Exposition of the Apocalypse and Addresses* on the same; also the writings of Th. Goodwin (1679); Ch. Daubuz (1730); Piscator (1646); M. F. Roos (1770); Alstedius (1643 and earlier); Cressener (1689); Farmer (1660); Fleming (1708); Hartley (1764); J. J. Hess (1774); Homes (1654); Jurieu (1686); Maton (1642); Peterson (1692); Sherwin (1665); and others (such as Conrade, Gallus, Brahe, Kett, Broughton, Marten, Sir I. Newton, Whiston, etc.), materially aided in directing attention to the Millenarian doctrine and to influence persons to Biblical study on the subject.
 >p. 539 Vol. 1 Prop. 78 Obs. 7
 
->When these were followed by men eminent for learning and marked ability (some have been mentioned, others will follow); when the leading poets and commentaries gave an additional impulse to Millenarian doctrine by their forcible portrayals and exegetical comments; when persons of the highest and lowest position, in all ranks and professions, of undoubted piety and usefulness, thus united in expressing Chiliastic views, the doctrine of the early church received correspondingly a revival and renewed strength in the hearts and hopes of believers.
+>When these were followed by men eminent for learning and marked ability (some have been mentioned, others will follow); when the leading poets and commentaries gave an additional impulse to Millenarian doctrine by their forcible portrayals and exegetical comments; when persons of the highest and lowest position, in all ranks and professions, of undoubted piety and usefulness, thus united in expressing Chiliastic views, the doctrine of the early church received correspondingly *a revival and renewed strength* in the hearts and hopes of believers.
 >p. 539 Vol. 1 Prop. 78 Obs. 7
 
 ### Men inaccurately labeled anti-Millenarians
@@ -117,12 +115,11 @@ Obs. 20
 >However respectable the number of adherents to our doctrine in whole or in part, yet they form but a *small* minority in comparison with *the immense* body that rejects the belief once so prevailing in the church.
 >p. 549 Vol. 1 Prop. 78 Obs. 22
 
->The retention of the Augustinian theory or Constantinian view by some; the general adoption of a spiritualizing interpretation to sustain a Church-Kingdom view; the reception of the Whitbyan hypothesis; the issuing of works in which our doctrine is caricatured, misrepresented, and ridiculed; the linking of our doctrine with the vagaries and fanaticism of certain parties to make it odious; the incorporation of some parts of our system by smaller organizations that exerted but little influence; the parading of mistakes made by some rash writers both as to time and details; the influence of leading societies in their publications, their endowments, commentaries for popular use, periodicals, etc.; in brief, the unfriendliness of worldliness, sect, indifference, unbelief, prejudice, etc., has been exerted to overpower this ancient faith. Numerous Numerous instances will be cited as we proceed. The fact that great and good men—men eminent for piety and ability in the church—have aided in decrying the doctrine has had a powerful influence upon the minds of many (comp. Props. 177-180). Doctrinal belief is not, however, decided by numbers (Matt. 8:13, 14, and 22:14; 1 Cor. 1:26, 27, etc.).
+>The retention of the Augustinian theory or Constantinian view by some; the general adoption of a spiritualizing interpretation to sustain a Church-Kingdom view; the reception of the Whitbyan hypothesis; the issuing of works in which our doctrine is caricatured, misrepresented, and ridiculed; the linking of our doctrine with the vagaries and fanaticism of certain parties to make it odious; the incorporation of some parts of our system by smaller organizations that exerted but little influence; the parading of mistakes made by some rash writers both as to time and details; the influence of leading societies in their publications, their endowments, commentaries for popular use, periodicals, etc.; in brief, the unfriendliness of worldliness, sect, indifference, unbelief, prejudice, etc., has been exerted to overpower *this ancient faith*. Numerous instances will be cited as we proceed. The fact that great and good men—men eminent for piety and ability in the church—have aided in decrying the doctrine has had a powerful influence upon the minds of many (comp. Props. 177-180). Doctrinal belief is not, however, *decided by numbers* (Matt. 8:13, 14, and 22:14; 1 Cor. 1:26, 27, etc.).
 >p. 549-550 Vol. 1 Prop. 78 Obs. 22
 
 ### Newspapers, periodicals exhibiting Chiliastic doctrine
 Obs. 28
-
 ### Survival of Chiliasm of the past centuries
 Obs. 29
 >The survival of Chiliasm, amidst the opposition, ridicule, persecution, etc., of the past centuries, is worthy of notice. Dr. West (*His. of the Doc*.) has some forcible remarks on this point, showing “that only because it is *an imperishable truth of God* has it been able to survive the ordeal which it has passed.” Considering the reproach attending it—the debasements and admixtures to which it has been subject; how offensive it was to Gentile rulers, to Gnostic and Alexandrian teachers, to Papal claims; the persecutions to which it was exposed; the obloquy heaped on it as heresy to crush it; the misrepresentations, abuse, hostility, etc., heaped upon it, as found in thousands of works; and considering the pious and eminent men who clung to it, taught it, and urged it upon others, it must be—as Chiliasts affirm—a truth found in the Divine Record, planted there *by God Himself* to inspire faith and hope.
