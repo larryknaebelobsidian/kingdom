@@ -96,7 +96,7 @@ Peters, George N. H.. The Theocratic Kingdom, 3 Volume Set . Kindle Edition. 201
 [[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]]   
 [[Proposition 81. This Kingdom, thus covenanted, belongs to Jesus as “the Son of Man.” ]]  
 [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.   ]]
-[[Proposition 83. This Kingdom is given to the Son of Man by God’ the Father.   ]]
+[[Proposition 83. This Kingdom is given to the Son of Man by God, the Father.]]
 [[Proposition 84. As this Kingdom is specially given to the Son of Man as the result of his obedience, sufferings, and death, it must be something different]] 
 [[Proposition 85. Neither Abraham, nor his engrafted seed have as yet inherited the Kingdom  hence the Kingdom must be something different from “piety,” “religion” and “God’s reign in the heart.”   ]]
 [[Proposition 86. The object or design of this dispensation is to gather out these elects to whom, as heirs with Abraham and his seed, Christ, this Kingdom is to be given.   ]]

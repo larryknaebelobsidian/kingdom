@@ -543,7 +543,7 @@ Proposition 206. This earth will yet witness the re-establishment of a glorious 
 
 ---
 
-![[Proposition 83. This Kingdom is given to the Son of Man by God’ the Father.]]
+![[Proposition 83. This Kingdom is given to the Son of Man by God, the Father.]]
 
 ---
 
