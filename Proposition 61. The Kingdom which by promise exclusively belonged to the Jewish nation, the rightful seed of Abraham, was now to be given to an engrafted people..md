@@ -22,16 +22,21 @@ Obs. 2
 >... multitudes (see. e.g. Prop. 67, Obs. 3, Prop. 54, Obs. 4, 5, etc.) see no *necessity* for our becoming the seed of Abraham in order to inherit. With many it seems to be the proper thing, *to be as far removed as possible from a Jewish standpoint*, and to this feeling much and precious truth is sacrificed.
 >...
 >But we see *a deep and solid reason* for this process of becoming grafted into this elect, covenanted nation.
+>p. 397 Vol. 1 Prop 61 Obs 2
 ### The necessary engrafting of Gentile believers
 >Obs. 3. We cannot too strongly insist upon *this necessary engrafting* of Gentile believers, so that by virtue of *a real relationship*, they, being regarded by God Himself as of the seed of Abraham, may inherit.
+>p. 397 Vol. 1 Prop 61 Obs 3
 ### Ridiculed as "carnal, fleshly" idea of virtually becoming believing Jews
 >Obs. 4. Men ridicule as “carnal,” “fleshly,” etc., that we Gentile believers, in virtue of our union with Christ, are grafted in and become members of the Jewish elect nation, *virtually* becoming believing Jews.
 >...
 >we must become “*Jews inwardly* “ thus confirming our position (for what, excepting this covenanted relationship, could have induced Paul to use this *peculiar* phraseology, viz.: that, in some way, we must become Jews?),
+>p. 398-399 Vol. 1 Prop 61 Obs. 4
 ### "Israel"
 >Obs. 5. This necessary engrafting, this vital connection through Christ with the Jewish elect nation (as the seed of Abraham to whom the promises are given) gives *the key* to the word “*Israel*” applied even now to all true believers.
+>p. 399 Vol. 1 Prop 61 Obs. 5
 ### Becoming a "child of Abraham" 
 >Obs. 6. This necessarily becoming “*a child of Abraham*” in order to inherit the promises, is unaccountable to those who overlook the covenants by which it is demanded.
+>p. 400 Vol. 1 Prop 61 Obs. 6
 
 >... it is only the children of Abraham, natural and adopted, that can obtain the promises.
->Obs. 6
+>p. 400 Vol. 1 Prop 61 Obs. 6
