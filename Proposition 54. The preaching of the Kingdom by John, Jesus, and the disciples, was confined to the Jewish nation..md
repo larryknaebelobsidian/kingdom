@@ -19,12 +19,10 @@ Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https:/
 ### Covenanted to a willing people, worthy by faith, obedience and holiness
 >the regular lineal believing descendants of Abraham—the nationality of David—with those adopted (Prop. 29) by them, were entitled, *by covenant*, to this Kingdom. Hence the Kingdom was preached to them—tendered to them individually and nationally, and it was left to their choice to accept of it or to refuse it, because it was also in the Divine Purpose to bestow it upon “*a willing people*” to the descendants of Abraham and those adopted, who made themselves *worthy of a Theocratic Kingdom* by faith, obedience, and holiness.
 >p. 356-357 Vol. 1 Prop 54 Obs. 2
-
 ### Free Moral Agency
-
 >The offer of the Kingdom is not in violation of but in unison with free moral agency.
 >p. 357 Vol. 1 Prop 54 Obs. 2
-### Necessary that the Word of should first have been spoken to the Jews 
+### Necessary that the Word of God should first have been spoken to the Jews 
 >Even after the call to the Gentiles was made out, the apostles still affirmed this covenanted position of the Jews, so that Paul and Barnabas (Acts 13:46) said to the unbelieving Hebrews: “*it was necessary that the Word of God should first have been spoken to you*.”
 >p. 357 Vol. 1 Prop 54 Obs. 3
 
