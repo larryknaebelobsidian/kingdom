@@ -33,7 +33,7 @@ tags:
 ### Evidence of sound teaching
 >This early faith in the Kingdom, is *evidence of consistent divine teaching, of apostolic supervision, of God’s determination to fulfil His oath-bound covenant of the true Scriptural conception of the Messiah as covenanted of the validity of adopting grace, and of our ultimately inheriting at the Sec. Advent, “the sure mercies of David.*”
 >p. 461-462 Vol. 1 Prop 72 Obs. 8
-
+### Millenarians were the very first
 >They forget that Millenarians were *the very first* who opposed, on the one hand, the Jewish spirit of self-righteousness, and, on the other hand, the Jewish libertinism, as antagonistic to the religion of Jesus Christ.
 >p. 464 Vol. 1 Prop 72 Obs. 11
 ### Doctrine extensively held
