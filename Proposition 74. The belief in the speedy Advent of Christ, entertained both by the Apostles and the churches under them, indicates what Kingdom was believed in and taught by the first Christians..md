@@ -15,7 +15,7 @@ NOTE: Scripture quotes from LSB
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
 
->If it can be shown that the apostles and their converts believed in a speedy Advent, that they looked for it near at hand, as immediate and impending sooner or later, then it follows that the Alexandrian modern view of the Kingdom could not have been entertained by them. They then, of necessity, owing to the shortness of time intervening, must have linked the Kingdom they proclaimed with the Sec. Advent (e.g. 2 Tim. 4:1, etc.).
+>If it can be shown that the apostles and their converts believed in a speedy Advent, that they looked for it near at hand, as immediate and impending sooner or later, *then it follows* that the Alexandrian modern view of the Kingdom *could not* have been entertained by them. They then, of necessity, owing to the shortness of time intervening, must have linked the Kingdom they proclaimed with the Sec. Advent (e.g. 2 Tim. 4:1, etc.).
 > p. 470 Vol. 1 Prop. 74
 
 >Every writer of ability and learning -- whatever theory he may adopt respecting the Kingdom -- acknowledges the apostolic and early belief in a speedy Sec. Advent.
@@ -119,7 +119,6 @@ Rev. 22:20
 ### Precious nearness
 >In view of the inestimable purposes of Salvation connected with the Sec. Advent, the latter cannot be held up *too prominently*, being, as Holy Writ expresses it, “*the blessed hope*.” The nearness connected with the preciousness, makes the Advent so extremely desirable and the object of inspiring hope. Many who receive, and many who reject our doctrinal position, hold to the exceeding worth of this Advent, both to its immanency (may at any time occur), and to its desirableness (i.e. ought to be desired by the true believer).
 >p. 477 Vol. 1 Prop. 74 Obs. 7
-
 
 <sup>[1]</sup> ἐγγύς - adverb - 30 occ [1451] (https://biblehub.com/greek/1451.htm Strongs)
 <sup>[2]</sup> ἤγγικεν - verb (pai) - 42 occ [1448] (https://biblehub.com/greek/1448.htm "Strongs")
