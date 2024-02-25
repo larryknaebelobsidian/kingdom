@@ -29,13 +29,16 @@ tags:
 >In no place is it asserted, that the promised covenanted Kingdom was already in possession of the elect, for such a statement would *be palpably contradictory* to the most sacred portions of Holy Writ, viz.: *to the covenants*.
 >p. 413 Vol. 1 Prop 65 Obs. 4
 ### To all the elected nation
->Obs. 5. This Kingdom is to be given to all of the elected nation, both believing Jews of natural descent and engrafted Gentiles, to all believers, therefore, that have ever lived; and it will be bestowed upon both at the same time, including the Patriarchs, ancient worthies, faithful Jews, and believing adopted Gentiles.
+>Obs. 5. This Kingdom is to be given to all of the elected nation, both believing Jews of natural descent and engrafted Gentiles, to all believers, therefore, that have ever lived; and it will be bestowed upon *both at the same time*, including the Patriarchs, ancient worthies, faithful Jews, and believing adopted Gentiles.
 >p. 413 Vol. 1 Prop 65 Obs. 5
 
 >None of the present saints, (viz.: of this dispensation,) have inherited the Kingdom, for the inheriting is placed in the future, as e.g. Matt. 25:34.
 >p. 413 Vol. 1 Prop 65 Obs. 5
 
->The saints, the elect of this and previous dispensations, are represented as waiting for the Kingdom (comp. Rev. 6:9-11; Luke 18:7, 8; 2 Thess. 1:5-10; Rom. 8:23, etc.).
+>The Kingdom is promised to both, forming *the one elect body*, but those things which belong to the actual realization of the Kingdom, such as inheriting, receiving the crown, reigning, etc., are all, as the reader will find by a comparison of passages, *related to the future.*
+>p. 413 Vol. 1 Prop 65 Obs. 5
+
+>The saints, the elect of this and previous dispensations, are represented as *waiting* for the Kingdom (comp. Rev. 6:9-11; Luke 18:7, 8; 2 Thess. 1:5-10; Rom. 8:23, etc.).
 >p. 413 Vol. 1 Prop 65 Obs. 5
 
 >Whatever the intermediate state may be, whether in Hades simply (as some assert), or in Paradise in Hades (as others claim), or in the third heaven (as some announce), etc., one thing is clearly demonstrable, viz.: that *the inheriting* of the Kingdom, *the receiving* of the crown, *the obtaining* of the distinctive reward as allied with covenanted promises, are all still *future*, always linked with the future resurrection of the just or allied with the Sec. Advent of Jesus Christ. The Bible is explicit on this point, and the covenants absolutely require this to preserve *the requisite unity*. Let the reader compare what is said on the intermediate state, Prop. 136.
