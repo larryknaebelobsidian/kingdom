@@ -18,7 +18,7 @@ tags:
 ***All Observations in this Proposition are worthy of detailed study.***
 
 ### Marriage of the King's son, Matt. 22:1-14
->take the parable of the marriage of the King’s son, Matt. 22:1-14, given just *after* (Matt. 21:43), He declared that the Kingdom should be taken from them, and we have: 
+>... take the parable of the marriage of the King’s son, Matt. 22:1-14, given just *after* (Matt. 21:43), He declared that the Kingdom should be taken from them, and we have: 
 >1. (1) *The Jewish nation* bidden but refusing the invitation (showing the sincerity of the offer, etc.); 
 >2. (2) if the invitation had been accepted, *the marriage would have taken place*, but the invited guests refusing, it *was postponed* until other guests were furnished; 
 >3. (3) the marriage (i.e. the enthronement to the Kingdom, comp. Prop. 169), the wedding (i.e. the inauguration blessings and privileges, the Kingdom being likened to a feast, Prop. 169), were *no longer nigh* to these invited ones; 
