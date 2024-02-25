@@ -41,7 +41,6 @@ tags:
 
 >The predicate “*Son of God*” is given to show His ability to save, that requisite power is united with the human, as in Rom. 1:1; Heb. 4:14; 1 Jno. 3:8, etc. The predicate “*Son of Man*” is bestowed to identify Him as truly coming *in the covenanted and Theocratic order*.
 >p. 562 Vol. 1 Prop. 80 Obs. 6
-
 ### Divine has elevated the human
 >Obs. 7. The Divine has elevated the human, held in conjunction for the pre-ordained Theocratic rule, to the Father’s throne, i.e. “the Christ,” the Divine-Human united in one Person is “*set down with my Father in His throne*,” and that in virtue of His overcoming. Hence all power is lodged in Him both in heaven and in earth; He is exalted at the right hand of God; He is made “*both Lord and Christ*.” This *insures* the ultimate fulfilment of the Christship—for the Divine Sovereignty thus linked by the union of the fulness of the Godhead bodily with the Man Jesus shows that through “*this Man*” (as Paul calls Him) the Theocratic arrangement in the Davidic line, indicated by His being “*the Christ*,” will be carried out, and that thus God, in and through Him, will reign in the desired capacity *of earthly Ruler over humanity*.
 >p. 563 Vol. 1 Prop. 80 Obs. 7
