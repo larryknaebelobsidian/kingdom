@@ -18,7 +18,7 @@ tags:
 >p. 375 Vol. 1 Prop 57 note
 ### Modern reformed Jews deny sin resulted in the fall of the nation
 >The modern Reformed Jews deny that the fall of the Jewish nation resulted from sinfulness.
->p. 376 Vol. 1 Prop 57 Obs 1 note
+>p. 376 Vol. 1 Prop 57 Obs. 1 note
 ### Fear of Roman power
 >The leading reason assigned by the priests and Pharisees in council (John 11:47, 48) for putting Jesus to death (whom they hated for exposing their rottenness, and insisting upon repentance) was, that by acknowledging Him as their King, they should bring the Roman power upon themselves, which would destroy “both our place and nation.” Here certainly *was lack of faith in a Theocratic King and Kingdom*. And on this very charge was He arraigned before Pilate (Luke 23:2, 3); thus hatred causing them to choose *Caesar, instead of “Christ, a King*.” Let the reader reflect: their guilt was aggravated by a knowledge of the covenanted Kingdom, of a covenanted Messiah in David’s line able to protect against all earthly power, and hence their malignity was manifested in causing the death of One who gave all the predicted evidences of Messiahship, and *in taking advantage* of the very tender of this Kingdom Kingdom to them in procuring His condemnation. Their knowledge of the covenants and prophets, their acquaintance with the works of Christ, made the rejection *the more deliberate and cruel*. Knowing the claims of the predicted Messiah, knowing that if He ever came He should be truly a King on David’s restored throne—this makes the charge produced by them and their conduct in the matter *the more dastardly and inexcusable*. What was offered in mercy and love, they make *the basis* of accusation and death.
 >p. 376 Vol. 1 Prop 57 Obs 2
