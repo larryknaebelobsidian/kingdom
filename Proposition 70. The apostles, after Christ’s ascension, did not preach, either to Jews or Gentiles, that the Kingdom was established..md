@@ -66,26 +66,22 @@ Obs. 9
 >2. (2) to be realized “*at the appearing of Jesus Christ*,“ "*at the revelation of Jesus Christ*”; 
 >3. (3) and this is the same inheritance and salvation which the prophets predicted, *linking it* with the Messianic Kingdom on earth.
 >Why should we then, contrary to the entire tenor of the Word, attempt to locate the fulfilment of this salvation, etc., at a period of time *different* from that specified by the apostle and his co-laborers; or, why should we disconnect that which the Spirit (“knowing the deep things of God ”) has *expressly joined together*?
->p. 440 Vol. 1 Prop 70 Obs. 10 slightly reformatted
-
+>p. 440 Vol. 1 Prop 70 Obs. 10 -- slightly reformatted
 
 >Let any one carefully consider the phraseology of the New Test, in reference to the coming again of Jesus, and observe how there is united with it *all the Jewish hopes* of kingdom, restitution, redemption, dominion, reigning, crowning, destruction of enemies, deliverance of His people, etc., and he will clearly see that the distinctive Messianic hopes, the hopes *that centre in the official Christ, are postponed* to the expected, precious Sec. Advent of the Messiah.
 >p. 440 Vol. 1 Prop 70 Obs. 10
-
 ### Peter's confession - Thou art the Christ
 >When Peter, therefore, made this confession he believed *as fundamental* to it, that “*the Christ*” was the kingly title of Jesus, that which indicated Him as “the anointed” One, coming as *the King to restore the Theocratic-Davidic Kingdom*.
 >p. 441 Vol. 1 Prop 70 Obs. 11
 
 >Peter *continues* to preach to the Jews “*the Christ*“ which was understood by all to denote *the One anointed to be the King on David’s restored throne*.
 >p. 441 Vol. 1 Prop 70 Obs. 11
-
 ### Apostles
 >The careful student of Scripture must nave been arrested by this additional peculiarity, corroborative of our argument, that in many places (as e.g. 1 Cor. 1:7, 8, etc.) the apostles rapidly pass from the present to the Advent, the intervening period being not worthy to be compared, owing to the absence of the King and Kingdom, to what transpires at the Messiah’s return; or, in other words, the distinguishing characteristics of a purely Messianic nature are attributed *to the Sec. Coming*, and the period intervening being *merely preparatory*, is passed by.
 >p. 442 Vol. 1 Prop 70 Obs. 12
 
 >If the predicted Messianic times, the Millennial glory, are to precede (as many declare) the Sec. Advent, could such a style of writing be adopted *without dishonoring* the predictions of God and the things of the Messiah? Our argument finds this distinguishing feature *in harmony* with all the utterances of the Spirit, and regards it as *a necessary sequence of the postponement*.
 >p. 442 Vol. 1 Prop 70 Obs. 12
-
 ### Apostolic fathers
 >Obs. 13. That our Proposition is true appears from the immediate result of their preaching. The early church, the Apostolic Fathers, all that were nearest to the apostles and the Elders, *knew* of no established Kingdom but *looked for one to come at the Advent of Jesus*. This is evidenced by the intensely Chiliastic position of the Primitive Church.
 >p. 443 Vol. 1 Prop 70 Obs. 13
@@ -95,7 +91,6 @@ Obs. 9
 
 >Can a single writer be quoted who lived in the First, and Second, and part of the Third, centuries, and who proclaimed *the modern view* of the Kingdom, now so generally entertained?
 >p. 443 Vol. 1 Prop 70 Obs. 13
-
 ### Spiritualistic interpretation
 >their theory of a Kingdom, compelled to have some kind of a Kingdom in actual existence during this dispensation—resort to the most arbitrary spiritualistic interpretation to locate the Sec. Advent *in the past* so that a resultant Kingdom may logically be connected with it
 >p. 443 Vol. 1 Prop 70 Obs. 14
