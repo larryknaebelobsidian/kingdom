@@ -41,9 +41,6 @@ Jesus answered and said to him, “Truly, truly, I say to you, unless one is bor
 >... easily reconcilable with the principle that future blessings are spoken of as present, as exemplified in Heb. 12:22, 23, etc. (comp. Prop. 65, Obs. 9).
 >p. 35 Vol. 2 Prop 109 Obs. 3
 
->Commentators (as e.g. Bloomfield, loci) frankly admit this explanation and think that reference is made to the hope of the Kingdom expressed in verse 6. Hence John declares in the most decided manner his strong faith and hope of sharing in the Kingdom.
->p. 36 Vol. 2 Prop 109 Obs. 3
-
 #### Col. 1:13
 Who rescued us from the authority of darkness, and transferred us to the kingdom of the Son of His love,
 #### Rev. 1:9
