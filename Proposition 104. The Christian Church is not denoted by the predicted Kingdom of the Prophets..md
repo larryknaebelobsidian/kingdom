@@ -8,67 +8,69 @@ tags:
 ---
 # Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.
 
->Obs. 1. Taking the establishment of the Kingdom for granted, and overlooking the postponement, has led to a wholesale appropriation by the church of predictions relating exclusively to the Kingdom still future.
+>Obs. 1. Taking the establishment of the Kingdom for granted, and overlooking the postponement, has led to a wholesale appropriation by the church of predictions relating *exclusively* to the Kingdom still future.
+>p. 671 Vol. 1 Prop 104 Obs. 1
 
->the church cannot be meant by the Kingdom, for the prophecy locates the appearance of the Ancient of Days and the bestowment of the Kingdom after the horns have appeared.
->Obs. 2
+>We remind the reader of one fact as fully presented in past Propositions, and demonstrated *both* historically and scripturally, viz. : That the view we take of the prophecies pertaining to the Kingdom accords in every respect with those entertained by the Church in the first centuries.  It is passing strange, to say the least, that the early believers, east and west, north and south, should, under the leadership of men who organized and perpetuated the Church, place, as we do, the fulfillment of those predictions *at the Sec. Advent of Jesus*, and not, as many now do, at the founding of the Ch. Church. These prophecies, too, are so prominent, so magnificent in proportions, such landmarks in the Divine Redemptive plan, that they must have largely occupied the attention of the apostolic and succeeding age.
+>p. 671 Vol. 1 Prop 104 Obs. 1 Note
 
->after three have fallen, and after the rise and extended progress of another horn called the “little horn,”
->Obs. 2
+>... the church *cannot* be meant by the Kingdom, for the prophecy locates the appearance of the Ancient of Days and the bestowment of the Kingdom *after* the horns have appeared.
+>p. 672 Vol. 1 Prop 104 Obs. 2 Reason 3
 
->The stone comes, the Son of man comes, at the time when the Kingdoms are to be destroyed, and the prophecy proclaims this to be one of the objects contemplated by the Coming.
->Obs. 2
+>... *after* three have fallen, and *after* the rise and extended progress of another horn called the “little horn,” which is in correspondence with what precedes the Advent in Rev. 19. The church, therefore, *cannot possibly* be this Kingdom, as the time of its establishment *so widely differs* from that of the prophecy.
+>p. 672 Vol. 1 Prop 104 Obs. 2 Reason 4
 
->This Kingdom is only given to the Son of man at this Coming, referred by Jesus not to the first but a future one, and therefore it is not the church. (Comp. Prop. 121).
->Obs. 2
+>The stone comes, the Son of man comes, at the time when the Kingdoms are to be destroyed, and the prophecy proclaims this to be *one* of the objects contemplated by the Coming. The fact that the church, instead of destroying earthly Kingdoms, has herself been in danger, been persecuted and terribly smitten by such Kingdoms, again shows that the church is *not* intended.
+>p. 673 Vol. 1 Prop 104 Obs. 2 Reason 6
 
->The horns and the little horn are represented as existing down to this Coming, and during their presence and exertion of power, the saints, just as has occurred in the church but will not in the Kingdom, have been oppressed and persecuted.
->Obs. 2
+>This Kingdom is only given to the Son of man at this Coming, referred by Jesus not to *the first but a future one*, and therefore it is *not* the church. (Comp. Prop. 121).
+>p. 673 Vol. 1 Prop 104 Obs. 2 Reason 7
 
->a Coming in triumph to rescue saints after they have endured a period of trial, etc. Hence this is not the Coming which preceded the Ch. Church, but must be the same alluded to in Rev. as preceding the Mill. age.
->Obs. 2
+>The horns and the little horn are represented as existing down *to this* Coming, and during their presence and exertion of power, the saints, just as has occurred in the church but will not in the Kingdom, have been oppressed and persecuted. Such a condition of the saints is not *in accord* with their condition in the Kingdom, and hence the church and the Kingdom are *not* the same.
+>p. 673 Vol. 1 Prop 104 Obs. 2 Reason 8
 
->The declaration of the prophecy is, that the church was in a struggling condition “until” “the time came that the saints possessed the Kingdom.” This language clearly implies that during the period when this oppressing hostile power existed, the saints did not possess the Kingdom.
->Obs. 2
+>... a Coming in *triumph* to rescue saints *after* they have endured a period of trial, etc. Hence this is not the Coming which preceded the Ch. Church, but must be the same alluded to in Rev. as preceding the Mill. age. From this Paul evidently obtains "His *appearing and Kingdom," admitted by all to be future.
+>p. 673 Vol. 1 Prop 104 Obs. 2 Reason 9
 
->The setting up (as Tregelles, Fairbairn, etc.) of thrones (not casting down), “the judgment set and the books opened etc., locates the coming of the Ancient of Days and that of the Son of man, just where John locates the judgment under the last trumpet—Rev. 11:15-19; Rev. 15:15 -19; Rev. 20:4—still in the future. Therefore, these are not descriptions of events preceding the establishment of the Christian Church. (Comp. Props. 121, 132, 133, 134, etc.)
->Obs. 2
+>The declaration of the prophecy is, that the church was in a struggling condition “*until*” “*the time came that the saints possessed the Kingdom.*” This language clearly implies that during the period when this oppressing hostile power existed, the saints did *not possess* the Kingdom.
+>p. 673 Vol. 1 Prop 104 Obs. 2 Reason 10
 
->The giving of the Kingdom, dominion, etc., implies at once a rulership, power, exaltation, etc., a fulfilment of which is thus far contradicted by the history of the church. It embraces actual dominion over nations, their subjection, etc., which has never been realized.
->Obs. 2
+>The setting up (as Tregelles, Fairbairn, etc.) of thrones (not casting down), “*the judgment set* and *the books opened* etc., locates the coming of the Ancient of Days and that of the Son of man, just where John locates the judgment *under the last trumpet*—Rev. 11:15-19; Rev. 15:15 -19; Rev. 20:4—still in the future. Therefore, these are not descriptions of events preceding the establishment of the Christian Church. (Comp. Props. 121, 132, 133, 134, etc.)
+>p. 673 Vol. 1 Prop 104 Obs. 2 Reason 11
 
->When the power of this Kingdom is once exerted, it includes a continued, unremitted exertion and manifestation of the same, which does not correspond with the wavering, often weakened condition, relapses, losses, etc., of the church. (Comp. Prop. 159.)
->Obs. 2
+>The giving of the Kingdom, dominion, etc., implies at once a rulership, power, exaltation, etc., a fulfilment of which is thus far *contradicted* by the history of the church. It embraces *actual* dominion over nations, their subjection, etc., which has *never* been realized.
+>p. 673 Vol. 1 Prop 104 Obs. 2 Reason 12
 
->The time when this Kingdom is set up is a time of dire vengeance, as the slaying of the beast, giving his body to the burning flame indicates; this agrees with the vengeance to be inflicted at a future coming recorded in Rev. 19, etc. Hence, a Kingdom before this period of retribution is not described. (Comp. Props. 115, 123, 147, 161, etc.)
->Obs. 2
+>When the power of this Kingdom is once exerted, it includes *a continued, unremitted exertion and manifestation of the same*, which does not correspond with the wavering, often weakened condition, relapses, losses, etc., of the church. (Comp. Prop. 159.)
+>p. 673 Vol. 1 Prop 104 Obs. 2 Reason 13
 
->The smiting of the stone is also a representation of vengeance. It demolishes, breaks into pieces, makes like chaff or dust, and utterly roots out. This teaches violence, not conversion, etc., as some contend to support a theory, but the utter removal of hostile powers, as our argument demands, and as illustrated in’ the closing portions of the Apocalypse. Kingdoms antagonistic to the truth, wars resultant from them, etc., exist down to the Second Advent; but that period, as Paul tells the Thessalonians, is a time of terrible smiting or vengeance. The church has exhibited no such power, and therefore is not denoted.
->Obs. 2
+>The time when this Kingdom is set up is a time of *dire vengeance*, as the slaying of the beast, giving his body to the burning flame indicates; this *agrees* with the vengeance to be inflicted at a future coming recorded in Rev. 19, etc. Hence, a Kingdom before this period of retribution is not described. (Comp. Props. 115, 123, 147, 161, etc.)
+>p. 674 Vol. 1 Prop 104 Obs. 2 Reason 15
 
->The entire narration of the prophecy makes the natural impression that this Kingdom is not set up beside the image or beasts to be contemporaneous with them, and to be engaged in a continued series of smiting processes, but that at a certain period (as Rev. 11:15) it will be manifested, and that in connection with their removal.
->Obs. 2
+>The smiting of the stone is also a representation of vengeance. It demolishes, breaks into pieces, makes like chaff or dust, and utterly roots out. This teaches *violence*, not conversion, etc., as some contend to support a theory, but the *utter removal* of hostile powers, as our argument demands, and as illustrated in’ the closing portions of the Apocalypse. Kingdoms antagonistic to the truth, wars resultant from them, etc., exist down to the Second Advent; but that period, as Paul tells the Thessalonians, is a time of terrible smiting or vengeance. The church has exhibited *no such power*, and therefore is not denoted.
+>p. 674 Vol. 1 Prop 104 Obs. 2 Reason 16
 
->The condition of the world at the Sec. Advent does not coincide with the proposed conquest of the world attributed by interpreters to the church.
->Obs. 2
+>The entire narration of the prophecy makes the natural impression that this Kingdom is not set up *beside* the image or beasts to be *contemporaneous* with them, and to be engaged in a continued series of smiting processes, but that at a certain period (as Rev. 11:15) it will be manifested, and that in connection with their removal.
+>p. 674 Vol. 1 Prop 104 Obs. 2 Reason 17
 
->The Kingdom, dominion, etc., is to be in the territorial limits, the very place occupied by the image and beasts, but if the church is meant, how comes it, unless we indorse the assumptions of the Romish and Greek Churches, which do not meet the conditions of the prophecy, that the church after so long a trial has never exercised such dominion within those limits?
->Obs. 2
+>The condition of the world at the Sec. Advent *does not coincide* with the proposed conquest of the world attributed by interpreters to the church.
+>p. 674 Vol. 1 Prop 104 Obs. 2 Reason 18
 
->A real, visible, outward Kingdom is to be witnessed.
->Obs. 2
+>The Kingdom, dominion, etc., is to be in the territorial limits, *the very place* occupied by the image and beasts, but if the church is meant, how comes it, unless we indorse the assumptions of the Romish and Greek Churches, which do *not meet* the conditions of the prophecy, that the church *after* so long a trial has *never* exercised such dominion within those limits?
+>p. 674 Vol. 1 Prop 104 Obs. 2 Reason 20
 
->The prophecy implies forcibly that when this Kingdom is set up it will be done so conspicuously that all will know definitely the period of its setting up.
->Obs. 2
+>A *real, visible, outward* Kingdom is to be witnessed.
+>p. 675 Vol. 1 Prop 104 Obs. 2 Reason 21
 
->From these considerations, and especially from that arising in a preservation of covenanted promise, of Divine Unity of Purpose, of consistency between earlier and later prediction, we are forced to the conclusion that the church by no means meets the conditions imposed by the prophecy.
->Obs. 2
+>The prophecy implies forcibly that when this Kingdom is set up it will be done *so conspicuously* that all will *know* definitely the period of its setting up.
+>p. 675 Vol. 1 Prop 104 Obs. 2 Reason 22
 
+>From these considerations, and especially from that arising in *a preservation of covenanted promise, of Divine Unity of Purpose, of consistency* between earlier and later prediction, we are forced to the conclusion that the church *by no means meets the conditions* imposed by the prophecy.
+>p. 675 Vol. 1 Prop 104 Obs. 2
 
 NOTE: Scripture quotes from LSB 
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
-
 ### [Dan. 2:31-45](https://read.lsbible.org/?q=Dan.+2%3A31-45)
 “You, O king, were looking, and behold, there was a single great image; that image, which was large and of extraordinary splendor, was rising up in front of you, and its appearance was awesome. 32 The head of that image _was made_ of fine gold, its breast and its arms of silver, its belly and its thighs of bronze, 33 its legs of iron, its feet partly of iron and partly of clay. 34 You continued looking until a stone was cut out without hands, and it struck the image on its feet of iron and clay and crushed them. 35 Then the iron, the clay, the bronze, the silver, and the gold were crushed all at the same time and became like chaff from the summer threshing floors; and the wind carried them away so that not a trace of them was found. But the stone that struck the image became a great mountain and filled the whole earth. 36 “This _was_ the dream; now we will say its interpretation before the king. 37 You, O king, are the king of kings, to whom the God of heaven has given the kingdom, the power, the strength, and the glory; 38 and wherever the sons of men inhabit, _or_ the beasts of the field, or the birds of the sky, He has given _them_ into your hand and has made you rule with power over them all. You are the head of gold. 39 But after you there will arise another kingdom inferior to you, then another third kingdom of bronze, which will rule with power over all the earth. 40 Then there will be a fourth kingdom as strong as iron; inasmuch as iron crushes and shatters all things, so, like iron that breaks in pieces, it will crush and break all these in pieces. 41 Now in that you saw the feet and toes, partly of potter’s clay and partly of iron; it will be a divided kingdom; but it will have in it the toughness of iron, inasmuch as you saw the iron mixed with common clay. 42 _And as_ the toes of the feet _were_ partly of iron and partly of clay, _so_ some of the kingdom will be strong and part of it will be brittle. 43 And in that you saw the iron mixed with common clay; they will combine with one another in the seed of men; but they will not cling to one another, even as iron does not combine with clay. 44 And in the days of those kings the God of heaven will cause a kingdom to rise up which will never be destroyed, and _that_ kingdom will not be left for another people; it will crush and put an end to all these kingdoms, but it will itself stand forever. 45 Inasmuch as you saw that a stone was cut out of the mountain without hands and that it crushed the iron, the bronze, the clay, the silver, and the gold, the great God has made known to the king what will happen in the future; so the dream is certain, and its interpretation is trustworthy.”
 
@@ -105,5 +107,3 @@ Behold, a day is coming for Yahweh when the spoil _taken_ from you will be divid
 Who is this who comes from Edom, With garments of glowing colors from Bozrah, This One who is majestic in His clothing, Marching in the greatness of His power? “It is I who speak in righteousness, mighty to save.” 2 Why is Your clothing red, And Your garments like the one who treads in the wine press? 3 “I have trodden the wine trough alone, And from the peoples there was no man with Me. I also trod them in My anger And trampled them in My wrath; And their lifeblood is sprinkled on My garments, And I stained all My clothes. 4 For the day of vengeance was in My heart, And My year of redemption has come. 5 I looked, and there was no one to help, And I was astonished, and there was no one to uphold; So My own arm brought salvation to Me, And My wrath upheld Me. 6 I trod down the peoples in My anger And made them drunk in My wrath, And I brought down their lifeblood to the earth.”
 
 
->We remind the reader of one fact as fully presented in past Propositions, and demonstrated *both* historically and scripturally, viz. : That the view we take of the prophecies pertaining to the Kingdom accords in every respect with those entertained by the Church in the first centuries.  It is passing strange, to say the least, that the early believers, east and west, north and south, should, under the leadership of men who organized and perpetuated the Church, place, as we do, the fulfillment of those predictions *at the Sec. Advent of Jesus*, and not, as many now do, at the founding of the Ch. Church. These prophecies, too, are so prominent, so magnificent in proportions, such landmarks in the Divine Redemptive plan, that they must have largely occupied the attention of the apostolic and succeeding age.
->p. 671 Vol. 1 Prop 104 Obs. 1 Note
