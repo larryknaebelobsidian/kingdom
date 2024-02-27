@@ -14,7 +14,8 @@ Legacy Standard Bible
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
 
->This is a decided landmark in prophecy, and nearly every prophet dilates, more or less, on this feature, viz., that Antichrist is destroyed at the personal presence of the Christ. We, for the present, only direct attention to three: Paul in 2 Thess. 2, Daniel in ch. 7, and John in Rev. 19. The early Church and a long line of witnesses held that these synchronize;
+>This is a decided landmark in prophecy, and nearly every prophet dilates, more or less, on this feature, viz., that Antichrist is destroyed *at the personal presence* of the Christ. We, for the present, only direct attention to three: Paul in 2 Thess. 2, Daniel in ch. 7, and John in Rev. 19. The early Church and a long line of witnesses held that these synchronize; ...
+>p. 208 Vol. 2 Prop. 123
 
 ### Key passages
 #### 2 Thess. 2:1-12
@@ -24,42 +25,44 @@ In the first year of Belshazzar king of Babylon Daniel saw a dream and visions i
 #### Revelation 19
 After these things I heard something like a loud voice of a great crowd in heaven, saying,“Hallelujah! Salvation and glory and power belong to our God; 2 because His judgments are true and righteous; for He has judged the great harlot who was corrupting the earth with her sexual immorality, and He has avenged the blood of His slaves _shed_ by her hand.” 3 And a second time they said, “Hallelujah! Her smoke rises up forever and ever.” 4 And the twenty-four elders and the four living creatures fell down and worshiped God who sits on the throne saying, “Amen. Hallelujah!” 5 And a voice came from the throne, saying,“Give praise to our God, all you His slaves, you who fear Him, the small and the great.” 6 Then I heard _something_ like the voice of a great crowd and like the sound of many waters and like the sound of mighty peals of thunder, saying,“Hallelujah! For the Lord our God, the Almighty, reigns. 7 Let us rejoice and be glad and give the glory to Him, for the marriage of the Lamb has come and His bride has made herself ready.” 8 And it was given to her to clothe herself in fine linen, bright _and_ clean; for the fine linen is the righteous acts of the saints. 9 Then he said to me, “Write, ‘Blessed are those who are invited to the marriage supper of the Lamb.’” And he said to me, “These are true words of God.” 10 Then I fell at his feet to worship him. But he said to me, “Do not do that! I am a fellow slave with you and your brothers who have the witness of Jesus. Worship God! For the witness of Jesus is the spirit of prophecy.” 11 Then I saw heaven opened, and behold, a white horse, and He who sits on it _is_ called Faithful and True, and in righteousness He judges and wages war. 12 His eyes _are_ a flame of fire, and on His head _are_ many diadems; having a name written _on Him_ which no one knows except Himself, 13 and being clothed with a garment dipped in blood, His name is also called The Word of God. 14 And the armies which are in heaven, clothed in fine linen, white _and_ clean, were following Him on white horses. 15 And from His mouth comes a sharp sword, so that with it He may strike down the nations, and He will rule them with a rod of iron; and He treads the wine press of the wrath of the rage of God, the Almighty. 16 And He has on His garment and on His thigh a name written, “KING OF KINGS, AND LORD OF LORDS.” 17 Then I saw an angel standing in the sun, and he cried out with a loud voice, saying to all the birds which fly in midheaven, “Come, assemble for the great supper of God, 18 so that you may eat the flesh of kings and the flesh of commanders and the flesh of strong men and the flesh of horses and of those who sit on them and the flesh of all men, both free men and slaves, and small and great.” 19 Then I saw the beast and the kings of the earth and their armies assembled to make war with Him who sits on the horse and with His army. 20 And the beast was seized, and with him the false prophet who did the signs in his presence, by which he deceived those who had received the mark of the beast and those who worshiped his image. These two were thrown alive into the lake of fire which burns with brimstone. 21 And the rest were killed with the sword which came from the mouth of Him who sits on the horse, and all the birds were filled with their flesh.
 ### Importance of anti-christ's destruction at the coming of Christ
->Obs. 1. It is admitted by all our recent prophetical writers that Antichrist shall exist previous to the Millennial age—this is so plain in the confederation of nations existing then, that it needs no additional proof— now if we can show that he is destroyed by the personal Coming of Jesus, we have a personal Pre-Mill. Coming. Christ. 
+>Obs. 1. It is admitted by all our recent prophetical writers that Antichrist shall exist *previous* to the Millennial age—this is so plain in the confederation of nations existing then, that it needs no additional proof— now if we can show that he is destroyed by the personal Coming of Jesus, we have *a personal Pre-Mill. Coming*.  
+>p. 208 Vol. 2 Prop. 123 Obs. 1
 
->The predictions relating to the Millennium clearly portray the removal of the man of sin and of his adherents before that age; and they reveal the impossibility of reconciling their presence with the realization of that age of blessedness.
->Obs. 1
+>The predictions relating to the Millennium clearly portray the removal of the man of sin and of his adherents *before* that age; and they reveal the impossibility of reconciling their presence with the realization of that age of blessedness.
+>p. 208 Vol. 2 Prop. 123 Obs. 1
 ### Destroyed with "the brightness of His coming"
->Obs. 2. The passage to which special attention is called reads: “And then shall that wicked be revealed, whom the Lord shall consume with the spirit of His mouth, and shall destroy with the brightness of His Coming,” 2 Thess. 2:8. Owing to its importance and the efforts made to give it an interpretation adapted to the modern Whitbyan theory, it will be best to examine it in detail.
+>Obs. 2. The passage to which special attention is called reads: “*And then shall that wicked be revealed, whom the Lord shall consume with the spirit of His mouth, and shall destroy with the brightness of His Coming*,” 2 Thess. 2:8. Owing to its importance and the efforts made to give it an interpretation adapted to the modern Whitbyan theory, it will be best to examine it in detail.
+>p. 209 Vol. 2 Prop. 123 Obs. 2
 
 >A. Those to whom Paul wrote were looking for the personal Advent of Christ.
 >...
 >The period when the Messiah is to be personally manifested as the Judge, the King, etc., is often called “His day" etc., and was so understood both by the Jews and early Christians.
 >...
->Obs. 2
+>p. 209 Vol. 2 Prop. 123 Obs. 2
 
->B. The Apostle then designs to correct the mistake respecting the presence or nearness of that personal Coming in which they believed, and the manner in which he does this confirms the allusion to the personal Coming.
+>B. The Apostle then designs to correct the mistake respecting the presence or nearness of that personal Coming in which they believed, and the manner in which he does this *confirms* the allusion to the personal Coming.
 >...
->it shall not come until at least a certain event, viz., the appearing and power of the man of sin, was first witnessed;
+>it shall *not come until* at least a certain event, viz., the appearing and power of the man of sin, was first witnessed;
 >...
->he introduces the predicted fact that before that visible Advent or day of Christ, the wicked one must arise and be exalted in power. It legitimately follows from the tenor of the proof given, that this personal Advent is not “at hand” or “present;” that it will, after an intervening event has been fulfilled, then come to pass.
+>he introduces the predicted fact that *before* that visible Advent or day of Christ, the wicked one must arise and be exalted in power. It legitimately follows from the tenor of the proof given, that this personal Advent is not “at hand” or “present;” that it will, *after* an intervening event has been fulfilled, *then* come to pass.
 >...
->Obs. 2
+>p. 210 Vol. 2 Prop. 123 Obs. 2
 
->C. The Apostle’s proof of the day of Christ and hence also the personal Advent not being “at hand” or “present,” thus fully accords with the analogy of Scripture. Many are the predictions and pointed allusions that Christ's visible personal Advent only takes place at a time when Antichrist or a mighty confederation of wickedness is developed, and that He will at such a Coming take vengeance and utterly destroy the wicked arrayed against Him. All prophecy agrees in uniting the destruction of the Antichristian power with a personal Advent.
+>C. The Apostle’s proof of the day of Christ and hence also the personal Advent not being “at hand” or “present,” thus fully accords with *the analogy* of Scripture. Many are the predictions and pointed allusions that Christ's visible personal Advent *only takes place at a time* when Antichrist or a mighty confederation of wickedness is developed, and that He will at such a Coming take vengeance and utterly destroy the wicked arrayed against Him. All prophecy agrees in uniting the destruction of the Antichristian power with a personal Advent.
 >...
 >acts of judgment and the destruction of the ungodly are united with, in passages admitted to relate to the Sec. Advent
 >...
->Obs. 2
+>p. 210 Vol. 2 Prop. 123 Obs. 2
 
->D. The Apostle, in introducing the Coming of the Lord Jesus to destroy this Antichrist, was undoubtedly aware of the views of the Jews on this subject. The Jews, impelled by the prophecies, looked for a personal Coming of the Messiah to destroy the wicked one.
->Obs. 2
+>D. The Apostle, in introducing the Coming of the Lord Jesus to destroy this Antichrist, was undoubtedly aware of *the views* of the Jews on this subject. The Jews, impelled by the prophecies, looked for *a personal Coming* of the Messiah to destroy the wicked one.
+>p. 210-211 Vol. 2 Prop. 123 Obs. 2
 
 >E. The import of the two words rendered “brightness of His Coming.” Epiphaneia, ἐπιφανεία, called here “brightness,” and Parousia, παρουσία, translated “Coming.”
 >...
 >(a) The word Epiphaneia occurs six times, 1 Tim. 6:14; 2 Tim. 1:10; 2 Tim. 4:1 and 8; Tit. 2:13, and in this place.
 >...
->(b) The word Parousia is used in the New Test, twenty-four times, Matt. 24:3, 27, 37, 39; 1 Cor. 15:23, and 16:17; 2 Cor. 7:6, 7, and 10:10; Phil. 1:26, and 2:3; 1 Thess. 2:19, and 3:13, and 4:15, and 5:23; 2 Thess. 2:1, 8, 9; James 5:7, 8; 2 Pet. 1:16, and 3:4, 12, and 1 John 2:18.
->Obs. 2
+>(b) The word Parousia is used in the New Test, twenty-four times, Matt. 24:3, 27, 37, 39; 1 Cor. 15:23, and 16:17; 2 Cor. 7:6, 7, and 10:10; Phil. 1:26, and 2:3; 1 Thess. 2:19, and 3:13, and 4:15, and 5:23; 2 Thess. 2:1, 8, 9; James 5:7, 8; 2 Pet. 1:16, and 3:4, 12, and 1 John 2:18. In all places where applied to persons it denotes, as all admit, a personal presence or arrival, and hence we have no just reason to discard that meaning in this place, especially since the argument of the Apostle makes the retention of the meaning thus given necessary.
+>p. 211 Vol. 2 Prop. 123 Obs. 2
 
 >F. The opinions of commentators—of the class who have no sympathy with our views, but yet are candid enough to concede this vital point, and of others who express themselves independently of any theory or bias, etc.
 >Obs. 2
