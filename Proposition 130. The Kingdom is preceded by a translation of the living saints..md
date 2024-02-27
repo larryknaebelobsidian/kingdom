@@ -107,7 +107,7 @@ Rev 7 - great multitude from every nation
 > ... surely those who believe in God's Word and are [[left behind]] will be most wonderfully affected by the event. 
 > p. 327 Vol 2 Prop. 130 Obs. 7
 
-> (The writer has often, often felt that it is specially for this period that he is laboring, when his work will be appreciated, etc.) 
+> (The writer has *often, often felt* that it is *specially* for this period that he is laboring, when his work will be appreciated, etc.) 
 >  p. 327 Vol 2 Prop. 130 Obs. 7
 
 > The Church, *then* starting up with Abrahamic faith *will recognize its chronological position*, will *see what* is before it, and, energetically infused by fear and hope, *prepare itself* for the fearful ordeal through which it must pass. And we are assured that the Church in this contest, overpowered as she will be, will sustain the persecution *with triumphant faith*, feeling convinced from the events occurring and the time elapsed, that the Son of Man is even *already present*, waiting for the moment of direct interference." (p. 327-328 Vol 2)
