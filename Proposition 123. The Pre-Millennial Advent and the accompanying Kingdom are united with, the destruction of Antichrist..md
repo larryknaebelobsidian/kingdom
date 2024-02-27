@@ -61,7 +61,7 @@ After these things I heard something like a loud voice of a great crowd in heave
 >...
 >(a) The word Epiphaneia occurs six times, 1 Tim. 6:14; 2 Tim. 1:10; 2 Tim. 4:1 and 8; Tit. 2:13, and in this place.
 >...
->(b) The word Parousia is used in the New Test, twenty-four times, Matt. 24:3, 27, 37, 39; 1 Cor. 15:23, and 16:17; 2 Cor. 7:6, 7, and 10:10; Phil. 1:26, and 2:3; 1 Thess. 2:19, and 3:13, and 4:15, and 5:23; 2 Thess. 2:1, 8, 9; James 5:7, 8; 2 Pet. 1:16, and 3:4, 12, and 1 John 2:18. In all places where applied to persons it denotes, as all admit, a personal presence or arrival, and hence we have no just reason to discard that meaning in this place, especially since the argument of the Apostle makes the retention of the meaning thus given necessary.
+>(b) The word Parousia is used in the New Test, twenty-four times, Matt. 24:3, 27, 37, 39; 1 Cor. 15:23, and 16:17; 2 Cor. 7:6, 7, and 10:10; Phil. 1:26, and 2:3; 1 Thess. 2:19, and 3:13, and 4:15, and 5:23; 2 Thess. 2:1, 8, 9; James 5:7, 8; 2 Pet. 1:16, and 3:4, 12, and 1 John 2:18. In all places where applied *to persons* it denotes, as all admit, a personal presence or arrival, and hence we have *no just reason* to discard that meaning in this place, especially since the argument of the Apostle makes the retention of the meaning thus given necessary.
 >p. 211 Vol. 2 Prop. 123 Obs. 2
 
 >F. The opinions of commentators—of the class who have no sympathy with our views, but yet are candid enough to concede this vital point, and of others who express themselves independently of any theory or bias, etc.
