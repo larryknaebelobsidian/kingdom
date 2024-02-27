@@ -53,6 +53,7 @@ p. 21 Vol. 2 Prop 108 Obs. 3
 - kingdom = the final result, the end
 - at the end of the age
 - use of present tense is for emphasis on certainty
+
 [Matt. 13:37-43](https://read.lsbible.org/?q=matt+13%3A37-43)
 - one who sows = Son of Man
 - field = world

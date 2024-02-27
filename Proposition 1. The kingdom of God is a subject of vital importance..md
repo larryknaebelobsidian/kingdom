@@ -63,4 +63,4 @@ title: Proposition 1. The kingdom of God is a subject of vital importance.
 >Obs. 7. When surveying the vast array of facts and events, some the greatest that the world has ever witnessed, all pointing to this kingdom as a contemplated end; when looking at the same as they occur and exist to-day, preparatory to the kingdom; and when contemplating the host of remarkable, astounding events predicted to come to pass in connection with the kingdom still future, surely this forms a subject worthy, beyond all others, of the earnest, devout and patient study of every student of the world’s eventful and, without this key, perplexing history. The kingdom embraces so much, both in preparation and in actual realization, that, in view of its extent, the doctrine exceeds all others in magnitude, enfolding in itself nearly all doctrine.
 >p. 33 Vol. 1 Prop. 1 Obs. 7
 ### Deeper investigation removes old stigmas
-Obs. 8
+p. 33 Vol. 1 Prop. 1 Obs. 8
