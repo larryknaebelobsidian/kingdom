@@ -65,21 +65,22 @@ After these things I heard something like a loud voice of a great crowd in heave
 >p. 211 Vol. 2 Prop. 123 Obs. 2
 
 >F. The opinions of commentators—of the class who have no sympathy with our views, but yet are candid enough to concede this vital point, and of others who express themselves independently of any theory or bias, etc.
->Obs. 2
+>p. 213 Vol. 2 Prop. 123 Obs. 2
 
->G. It is important to notice the opinions of the early Apostolic Fathers, who being acquainted with the language as a living spoken one, and who receiving their interpretation of a passage which would excite special attention from the hands of the apostles or their immediate disciples, may thus afford strong corroborative evidence.
->Obs. 2
+>G. It is important to notice the opinions of the early Apostolic Fathers, who being acquainted with the language as a living spoken one, and who receiving their interpretation of a passage which would excite *special attention* from the hands of the apostles or their immediate disciples, may thus afford strong corroborative evidence. Knowing that they were all decidedly Millenarian, that they all believed that Antichrist would be destroyed *by the personal Sec. Advent*, we have sufficient testimony concerning their mode of interpreting 2 Thess. 2:8.
+>p. 214 Vol. 2 Prop. 123 Obs. 2
 
->H. Even after the allegorizing interpretation, introduced by the Alexandrian school, by which such passages as these are so readily transformed into various meanings, the Divines still insisted that this Scripture taught a personal coming to destroy Antichrist.
->Obs. 2
+>H. Even after the allegorizing interpretation, introduced by the Alexandrian school, by which such passages as these are so readily transformed into various meanings, the Divines still insisted that this Scripture taught *a personal coming* to destroy Antichrist.
+>p. 214 Vol. 2 Prop. 123 Obs. 2
 
 >I. The Popish writers, however they may apply it, ascribe it to a personal Advent.
->Obs. 2
+>p. 215 Vol. 2 Prop. 123 Obs. 2
 
 >J. The opinions of the Reformers, although making the apostasy and the man of sin to be one and the same, are distinctly in our favor.
->Obs. 2
+>p. 215 Vol. 2 Prop. 123 Obs. 2
 
 >K. The opinions of eminent Divines who endorsed the Whitbyan theory.
->Obs. 2
+>p. 216 Vol. 2 Prop. 123 Obs. 2
 ### Early Fathers agreed
->Obs. 4. It is scarcely necessary to add anything additional to Dan. 7:13 to indicate a personal Advent. All the early Fathers, as well as those who followed them, even such a writer as Jerome (Bickersteth’s Guide, p. 112, quotes from, and also shows how Jerome made the little horn of Daniel 7 synchronize with the man of sin 2 Thess. 2) made it refer to the personal Sec. Advent.
+>Obs. 4. It is scarcely necessary to add anything additional to Dan. 7:13 to indicate a personal Advent. All the early Fathers, as well as those who followed them, even such a writer as Jerome (Bickersteth’s *Guide*, p. 112, quotes from, and also shows how Jerome made the little horn of Daniel 7 synchronize with the man of sin 2 Thess. 2) made it refer to the personal Sec. Advent.
+>p. 222 Vol. 2 Prop. 123 Obs. 4
