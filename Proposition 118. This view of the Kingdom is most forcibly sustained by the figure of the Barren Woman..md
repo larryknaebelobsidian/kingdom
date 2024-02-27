@@ -31,7 +31,7 @@ tags:
 >If we open the Bible and read *what follows* the rejection of the Jewish nation and its miserable fall, we find that God *during this period of abandonment* proceeds to raise up *a seed* unto Abraham of those, out of all nations, who fear and obey God. (See Prop, on election and continued election.) It is this seed, this nation thus gathered to whom the Kingdom in a high, *special sense* is to be given—i.e. they also will *be married*, i.e., *enter into this Theocratical relationship with God*. This seed is said in the New Test, in its aggregate (not before) to form “*the chaste virgin*” “*the Bride*” that is to be married *just previous* to the ushering in of the Millennial age at the Sec. Advent of Christ, 2 Cor. 11:2; Eph. 5:27; Rev. 19:7, 9. This too, of course, as intimated in the text, and as necessarily included in our argument, occurs *here on earth previous* to the restoration of the Jews.
 >p. 131-132 Vol. 2 Prop. 118 Obs. 3
 
-Larry is not sure of the accuracy of Peter's above conclusions about the "married wife/woman".  The "married woman" is a linguistic contrast used to emphasize the condition of the "barren woman".  Any attempt to try to identify the married woman seems to take the use of the language too far.
+Personal note:  I am not convinced of the accuracy of Peter's above conclusions about the "married wife/woman".  The "married woman" is a linguistic contrast used to emphasize the condition of the "barren woman".  Any attempt to try to identify the married woman seems to take the use of the language too far.
 
 
 
