@@ -13,7 +13,7 @@ tags:
 ### Props Mentioned
 [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”|163]] [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.|49]] 
 
->We have conclusively shown that the covenant necessitates a resurrection; that the description of David’s Son, who is to reign, demands a descendant of David possessing, in some way, immortality, seeing that His rule is everlasting, thus implying a resurrection—that a resurrection is predicted of Him, etc.—and now the fair inference is that those selected to be His co-heirs, being gathered out during a long period of time, and having died “without receiving the promises,” must also experience the power of the resurrection before they can inherit the Kingdom of God.
+>We have conclusively shown that the covenant *necessitates* a resurrection; that the description of David’s Son, who is to reign, demands a descendant of David possessing, in some way, immortality, seeing that His rule is everlasting, thus implying a resurrection—that a resurrection is predicted of Him, etc.—and now the fair inference is that those selected to be *His co-heirs*, being gathered out during a long period of time, and having died “without receiving the promises,” *must also* experience the power of the resurrection before they can inherit the Kingdom of God.
 >p. 227 Vol 2 Prop. 125
 ### First the kingdom, then the reception and enjoyment of it
 >Leaving the proof of this union of resurrection and Kingdom for the following Propositions (as we only desire now to introduce the subject of the resurrection), every reader, keeping in view that Christ’s appearing and Kingdom are united, 2 Tim. 4:1, that a resurrection follows His Second Advent, and that an inheriting of the Kingdom succeeds this appearing and resurrection, must concede that when the righteous “are recompensed at the resurrection of the just” (Luke 14:14), this also includes the inheriting of a Kingdom. So that, for the present, we are content with *the general tenor* of the Word, indicating *first* a resurrection and *then* the reception and enjoyment of a Kingdom.
@@ -22,7 +22,7 @@ tags:
 >All along, the position has been taken that, owing to the postponement of the Kingdom, *a preliminary* dispensation of grace to us Gentiles has intervened, and that even the dead saints, whatever their position in this interval, are *waiting* until “*the day of Redemption*” the time of the resurrection for their inheritance, etc. This is confirmed by the language of Paul in 1 Cor. 15:32, who lays the greatest stress on the resurrection as *the necessary and appointed means* by which the blessings that are covenanted can be obtained.
 >p. 227 Vol 2 Prop. 125 Obs. 2
 
->one of the doctrinal defects of the Reformation was, that the resurrection of Christ was not made sufficiently prominent as compared with His sacrificial death, while in the apostolic preaching the Crucified and the Risen held equal place. And this feature extended finally in an undue exaltation of the intermediate state, until the resurrection is almost practically ignored as of comparative little consequence to the honor, glory, etc., of the deceased saint. To appreciate the force and pertinency of the resurrection, there must be a return to the scriptural presentation of the matter.
+>... one of the doctrinal defects of the Reformation was, that the resurrection of Christ was not made sufficiently prominent as compared with His sacrificial death, while in the apostolic preaching the Crucified and the Risen held equal place. And this feature extended finally in an undue exaltation of the intermediate state, *until* the resurrection is almost practically ignored as of comparative little consequence to the honor, glory, etc., of the deceased saint. To appreciate the force and pertinency of the resurrection, there must be a return to the scriptural presentation of the matter.
 >p. 228 Vol 2 Prop. 125 Obs. 2
 
 >Hence, being penal and a result of the fall, perfect redemption through a perfect Redeemer must recover us from the same. (Comp. Prop. 163)
@@ -67,20 +67,20 @@ tags:
 >The Church is rapidly drifting away from the idea of a corporeal resurrection.
 >p. 230 Vol 2 Prop. 125 Obs. 3 note
 ### Attempts to change its meaning
->men have endeavored either to spiritualize the language, or to explain it away as an accommodation, or to refer it to the bestowment of something new immediately after death.
->p. 230 Vol 2 Prop. 125 Obs. 4
+>... men have endeavored either to spiritualize the language, or to explain it away as an accommodation, or to refer it to the bestowment of something new immediately after death.
+>p. 231 Vol 2 Prop. 125 Obs. 4
 
 >Dwight asserts that the word here translated resurrection denotes throughout the New Test., “existence beyond the grave,” or “a future state or existence.” It is a matter of amazement that so able a writer, to make out a special case of interpretation, should commit himself *so erroneously*, and thus aid the efforts of those who deny a bodily resurrection.
->p. 230 Vol 2 Prop. 125 Obs. 4
+>p. 231 Vol 2 Prop. 125 Obs. 4
 
->Hence, our ablest critics and most talented theologians, as a matter of simple consistency, accept of the word “anastasis” or “resurrection” as legitimately denoting a revivification of the dead, a restoration to life.
->p. 230 Vol 2 Prop. 125 Obs. 4
+>Hence, our ablest critics and most talented theologians, as a matter of simple consistency, accept of the word “anastasis” or “resurrection” *as legitimately denoting* a revivification of the dead, a restoration to life.
+>p. 231 Vol 2 Prop. 125 Obs. 4
 
->the word was used by the Greeks, by the Grecian-Jews, and by the Scriptures to denote a restoration to life of the dead.
->p. 230 Vol 2 Prop. 125 Obs. 4
+>the word was used by the Greeks, by the Grecian-Jews, and by the Scriptures to denote *a restoration to life of the dead*.
+>p. 231 Vol 2 Prop. 125 Obs. 4
 
 >if a spiritual resurrection or existence beyond the grave is meant by the resurrection, no word could have been selected better calculated *to deceive* hearers and readers.
->p. 230 Vol 2 Prop. 125 Obs. 4
+>p. 231 Vol 2 Prop. 125 Obs. 4
 ### Pious Jews believed in the resurrection at the coming of Messiah
 >An important feature that ought to be noticed in this discussion, is this: Commentators and others quote largely from the writings of the Jews, showing that they derived from the Old Testament the belief that the pious dead would be raised up *at the Coming* of the Messiah, and that they would remain with Him *here on earth* in His Kingdom.
 >p. 234-235 Vol 2 Prop. 125 Obs. 5
