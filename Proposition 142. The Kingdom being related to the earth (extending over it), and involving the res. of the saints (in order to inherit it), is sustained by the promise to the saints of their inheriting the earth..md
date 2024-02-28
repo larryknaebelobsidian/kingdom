@@ -8,10 +8,11 @@ tags:
 ---
 # Proposition 142. The Kingdom being related to the earth (extending over it), and involving the res. of the saints (in order to inherit it), is sustained by the promise to the saints of their inheriting the earth.
 ### The meek shall inherit the earth
->Obs. 2. The declaration of Jesus, Matt. 5:5, that the meek shall inherit the earth, ought to be decisive. But men under the influence of a plastic system of interpretation, urged on by a preconceived notion, leave the plain meaning of the promise and explain it away.
+>Obs. 2. The declaration of Jesus, Matt. 5:5, that *the meek shall inherit the earth*, ought to be decisive. But men under the influence of a plastic system of interpretation, urged on by a preconceived notion, leave the plain meaning of the promise and explain it away.
+>p. 439 Vol. 2 Prop. 142 Obs. 2
 
->Let the reader turn to Psalm 37, where this same promise is repeated five times, and he will find it in vs. 9, 11, 22, 29, 34,
->Obs. 1
+>Let the reader turn to *Psalm 37*, where this same promise is repeated five times, and he will find it in vs. 9, 11, 22, 29, 34, *directly joined to and following a complete removal of evil-doers,* not preceding it or contemporaneous with the continued presence of the wicked.  
+>p. 440 Vol. 2 Prop. 142 Obs. 2
 ### Earthly blessings
 >Obs. 3. Attention is again called to the confirmation our doctrine receives from the alleged omission of any but earthly blessings promised to believers in the Mosaic record, and long after.
 
