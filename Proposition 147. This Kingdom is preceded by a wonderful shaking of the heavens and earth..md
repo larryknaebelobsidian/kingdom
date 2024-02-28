@@ -14,6 +14,7 @@ tags:
 >p. 494 Vol. 2 Prop. 147
 ### Incorrect interpretations
 >Obs. 1. Unfortunately with the rejection of the doctrine of the Kingdom, many writers not knowing what else to do with the passages quoted, apply them to the First Advent, thus forsaking the Early Church view which understood them to refer to the future Advent.
+>p. 494 Vol. 2 Prop. 147 Obs. 1
 
 >The re-established Theocracy under David’s Son introduces the Desire of all nations, bestows peace and prosperity, brings a glory to the Davidic and Lord’s house transcendently greater than the world has ever yet witnessed. But this can never be realized without the most extraordinary revolutions, the most unprecedented changes and convulsions, which are characterized as “a shaking of the heavens and earth” Jesus (Matt. 24:29; Mark 13:25; Luke 21:26), in accord with the general tenor of prophecy, predicts that “the powers of the heavens shall be shaken” which is linked with “distress of nations” “mourning of the tribes of the earth” “men’s hearts failing them for fear, and for looking after those things which are coming on the earth” and “the Coming of the Son of man in the clouds of heaven.”
 >...
