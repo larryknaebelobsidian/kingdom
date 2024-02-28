@@ -28,22 +28,26 @@ tags:
 >Obs. 1. Those who apply this passage to a general assize can only do so by taking for granted two *suppositions*, which are, in order to make out their sense, engrafted upon it. (1) It is supposed that the “*all nations*” mean “*all the generations of men* that ever existed but this is a mere inference, and, being unproven, is a mere begging of the question. (2) In order to sustain the first supposition, it is conjectured that this necessarily implies *a previous resurrection of all the dead*; but this also is mere inference, unsupported by a particle of proof.
 >p. 373 Vol. 2 Prop. 134 Obs. 1
 
->The word translated “nations” is never, according to the uniform testimony of critics and scholars, used to designate “the dead,” unless this be a solitary exception.
+>(2) The word translated “nations” is *never*, according to the uniform testimony of critics and scholars, used to designate “*the dead*,” unless this be a solitary exception.
+>p. 374 Vol. 2 Prop. 134 Obs. 2 Item 7.
 
->The Spirit gives us abundant testimony that precisely such a gathering of living nations shall take place just before the Mill, age commences, and that there shall be both an Advent and judging.
+>(4) The Spirit gives us abundant testimony that precisely *such a gathering of living nations* shall take place *just before* the Mill, age commences, and that there shall be *both* an Advent and judging.
+>p. 374 Vol. 2 Prop. 134 Obs. 2 Item 7.
 
->The phrase “all nations” does not by any means include every individual, much less the generations past
+>(8) The phrase “*all* nations” does not by any means include every individual, *much less* the generations past ...
+>p. 375 Vol. 2 Prop. 134 Obs. 2 Item 7.
 
->The wicked are represented as cast into “a fire.” Now precisely this will occur at the Pre-Mill. Advent of Jesus. The reader is urged to compare e.g. on this point, Rev. 19:20; Dan. 7:10,11; Isa. 66:15, 16, 24; Mai. 4:1-3, etc. Fire, as indicating the vengeance of God, is frequently predicted as belonging to the introduction of the Kingdom or the Mill, blessedness.
+>The wicked are represented as cast into “a fire.” Now *precisely this* will occur at *the Pre-Mill. Advent* of Jesus. The reader is urged *to compare* e.g. on this point, Rev. 19:20; Dan. 7:10,11; Isa. 66:15, 16, 24; Mai. 4:1-3, etc. Fire, as indicating the vengeance of God, is frequently predicted as belonging to the introduction of the Kingdom or the Mill, blessedness.
+>p. 377 Vol. 2 Prop. 134 Obs. 2 Item 16.
 
->The wicked are represented as cast into “a fire.” Now precisely this will occur at the Pre-Mill. Advent of Jesus. The reader is urged to compare e.g. on this point, Rev. 19:20; Dan. 7:10,11; Isa. 66:15, 16, 24; Mai. 4:1-3, etc. Fire, as indicating the vengeance of God, is frequently predicted as belonging to the introduction of the Kingdom or the Mill, blessedness.
+>The saints that come with Jesus, as other passages show, *participate* in this judgment, judgment, for they have obtained *a priority* of rulership or Judgeship, and the intended dealing of King Jesus with the nations, as preparatory to the establishment of His Kingdom, is thus briefly and powerfully stated in the line of thought suggested by the manner in which rulership is secured in it.
+>p. 378 Vol. 2 Prop. 134 Obs. 2
 
->The saints that come with Jesus, as other passages show, participate in this judgment, judgment, for they have obtained a priority of rulership or Judgeship, and the intended dealing of King Jesus with the nations, as preparatory to the establishment of His Kingdom, is thus briefly and powerfully stated in the line of thought suggested by the manner in which rulership is secured in it.
-
->There is no intimation that either former tares or wheat are raised up to be mixed and then separated, while the burning of existing “tares’ and the elevation of then living “wheat” coincides with abundant Pre-Mill, prophecy. The consistency of our doctrine is seen in this: that after the one thousand years are ended the dead tares—“the rest of the dead,” who “lived not again until the thousand years were finished,” are also raised up and their destiny awarded.
+>There is no intimation that either former tares or wheat are raised up to be mixed and then separated, while the burning of existing “tares’ and the elevation of then living “wheat” *coincides* with abundant Pre-Mill, prophecy. The consistency of our doctrine is seen in this: that *after* the one thousand years are ended the dead tares—“the rest of the dead,” who “lived not again until the thousand years were finished,” are *also* raised up and their destiny awarded.
+>p. 382 Vol. 2 Prop. 134 Obs. 3
 
 >Obs. 5. The disciples to whom this passage was addressed, preachers of the Kingdom and specially instructed, held to the Jewish views of the Judgment at the Coming of the Messiah, to be followed by a glorious Messianic reign under the restored Theocratic-Davidic throne and Kingdom.
-
+>p. 382 Vol. 2 Prop. 134 Obs. 5
 ### Some conclusions 
 1. There is not one general judgement
 2. All men (dead and living) will not be judged at the same time
