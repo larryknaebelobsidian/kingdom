@@ -88,14 +88,14 @@ And every pot in Jerusalem and in Judah will be holy to Yahweh of hosts; and all
 >All are raised from the dead, but each in his own order; so also all shall stand before His throne, but each in his order.
 >p. 364 Vol. 2 Prop. 133 Obs. 2
 
->Obs. 3. The Judgment Day is inseparably linked with the personal presence of the Judge, and therefore, as we proceed, it is unnecessary to repeat what all admit. It is very essential to our doctrine to find the judgment united with the Coming of the Son of Man. 
+>Obs. 3. The Judgment Day is inseparably linked with *the personal presence* of the Judge, and therefore, as we proceed, it is unnecessary to repeat what all admit. It is very essential to our doctrine to find the judgment united with the Coming of the Son of Man. 
+>p. 364 Vol. 2 Prop. 133 Obs. 3
 
 >Mede (Works, B. 3, p. 762) long ago observed that Dan. 7 contains “*The mother text of Scripture, whence the Jews grounded the name and expectation of the Great Day of Judgment*.”
 >p. 364 Vol. 2 Prop. 133 Obs. 3
 
 >The facts (1) that the phrases *originated* with Jewish believers, and (2) that they are employed without the least intimation that they are to be understood *differently*, certainly ought to have *some weight* with the student.
->p. 364 Vol. 2 Prop. 133 Obs. 3
-
+>p. 365 Vol. 2 Prop. 133 Obs. 3
 ### A day
 >Obs. 4. The Judgment Day is designated, Acts 17:31, “*He hath appointed a day wherein He will judge the world in righteousness*,” etc.
 >p. 365 Vol. 2 Prop. 133 Obs. 4
