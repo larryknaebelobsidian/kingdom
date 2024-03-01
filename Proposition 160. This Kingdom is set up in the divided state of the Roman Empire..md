@@ -16,8 +16,7 @@ tags:
 ### Historical tracing
 >... we have *a continuous headship of the Roman Empire* existing from the days of Augustus down to A.D. 1806, and in connection with it, descended also from the divided state of the Empire, the Papacy with its claims Empire derived.
 >p. 642 Vol. 2 Prop. 160 Obs. 2
-
-### A theory
+### A theory to be carefully noted
 >Obs. 3. It would be well if the Church, until a better explanation is given, would *carefully note* the interpretation presented by G. S. Faber in his *Revival of the French Emperorship*.
 >p. 643 Vol. 2 Prop. 160 Obs. 3
 
