@@ -12,28 +12,37 @@ tags:
 # Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.
 ### In accordance with the views of the Jews
 >Obs. 1. As stated in preceding Proposition, the language of Peter was in accordance with the views of the Jews.
+>p. 510 Vol. 2 Prop. 150 Obs. 1
 
->The proof is, that all the Jewish converts and churches, as far as we know, never supposed that this passage controverted such an opinion. Instead of being a stumbling-block in the way, this passage was thought to be confirmatory of their belief of the dreadful fire which should devour the adversaries (Dan. 7:10, 11, “fiery stream,” “the burning flame”), when the Messiah would come.
+>The proof is, that all the Jewish converts and churches, as far as we know, *never supposed* that this passage *controverted* such an opinion. Instead of being a stumbling-block in the way, this passage was thought to be *confirmatory* of their belief of the dreadful fire which should devour the adversaries (Dan. 7:10, 11, “fiery stream,” “the burning flame”), when the Messiah would come.
+>p. 510-511 Vol. 2 Prop. 150 Obs. 1
 ### In accordance with the early Church
->Obs. 2. The early Church, receiving its teaching direct from inspired teachers (and appealing to them, as Papias, Justin, Irenaeus), found no such limitation as was afterward engrafted upon Peter’s language.
+>Obs. 2. The early Church, receiving its teaching direct from inspired teachers (and appealing to them, as Papias, Justin, Irenaeus), found *no such limitation* as was afterward engrafted upon Peter’s language.
+>p. 511 Vol. 2 Prop. 150 Obs. 2
 
->One and all held to the fulfilment of the covenant and the prophecies based upon it as succeeding this conflagration: This is clearly announced in their writings.
+>One and all held to the fulfilment of the covenant and the prophecies based upon it *as succeeding* this conflagration: This is clearly announced in their writings.
+>p. 511 Vol. 2 Prop. 150 Obs. 2
 ### Canonical doubts of 2 Peter are not taken advantage of
 >Obs. 3. It is noticeable that no Millenarian author has taken advantage of the doubts cast upon the canonical authority of the Second Epistle.
+>p. 512 Vol. 2 Prop. 150 Obs. 3
 ### Extent of this fire subject to extravagant estimates
 >Obs. 5. Peter’s representation of the Kingdom, as given in his own writings, would be vitiated, if we accept of the extravagant estimates made concerning the extent of this fire.
+>p. 513 Vol. 2 Prop. 150 Obs. 5
 ### Total destruction inconsistent with Divine Purpose
->Obs. 7. As just intimated, any view of Peter’s statement which makes an imperfect Redemption, in not restoring the earth, the animate creation, and the race of man to their forfeited position, ought at once to be rejected as inconsistent with the Divine Purpose respecting Redemption as given in covenant and promise, and with the perfection, honor, and glory of the Redeemer (Prop. 140, Obs. 7). To make this earth, animated creation, and the race of man, as such, all to be destroyed, rooted out of existence, or (as a climax) to have it all one mass of fire, perpetuated in this state to constitute (so Pres. Edwards’ His. Redemp., p. 421) an eternal hell (!) for sinners and devils—this is to make Redemption incomplete, to keep this earth forever under the curse, to restore only a few of the forfeited blessings, and to diminish, with fearful rigor, some of the most comprehensively precious promises that the Bible contains. Strange indeed that men should allow one passage to crush the hope engendered in a groaning creation, in a sin-cursed earth, in the longings of nations, and to limit the rich and full restitution of all things and the expressed ability and willingness of the Mighty King to perform it. The early Church could not be so illogical.
+>Obs. 7. As just intimated, any view of Peter’s statement which makes *an imperfect Redemption*, in not restoring the earth, the animate creation, and the race of man to their forfeited position, ought at once to be rejected *as inconsistent* with the Divine Purpose respecting Redemption as given in covenant and promise, and with the perfection, honor, and glory of the Redeemer (Prop. 140, Obs. 7). To make this earth, animated creation, and the race of man, as such, all to be destroyed, rooted out of existence, or (as a climax) to have it all one mass of fire, perpetuated in this state to constitute (so Pres. Edwards’ *His. Redemp.*, p. 421) an eternal hell (!) for sinners and devils—this is to make Redemption *incomplete*, to keep this earth *forever* under the curse, to restore only *a few* of the forfeited blessings, and to *diminish*, with fearful rigor, some of the most comprehensively precious promises that the Bible contains. Strange indeed that men should allow one passage *to crush the hope* engendered in a groaning creation, in a sin-cursed earth, in the longings of nations, and *to limit* the rich and full restitution of all things and the expressed ability and willingness of the Mighty King to perform it. The early Church could not be so *illogical*.
+>p. 515 Vol. 2 Prop. 150 Obs. 7
 ### Time of fire is at the time of the "harvest of the earth"
->Obs. 9. The time of this fire is the time when “the harvest of the earth” is gathered and the tares (Matt. 13:30, 39, 40) shall be “burned in the fire” (as “the ungodly men” mentioned by Peter), but this harvest (Rev. 14:14-20) occurs under the seventh trumpet preceding the Millennial age. When this conflagration takes place it is associated with the resurrection of the saints, for Peter encourages believers to expect a glorious deliverance at that period; this accurately corresponds with the resurrection (Rev. 11:15-18) and rewarding of the saints under the last trumpet when “the sovereignty of this world” shall be wielded by Christ. The mention of “the Day of Judgment” (comp. Props. 133 and 134) with a knowledge of the Jewish and Scriptural method of speaking of that day, viz., to be followed by Messiah’s Kingdom here on earth as the Millennial prophecies declare;
+>Obs. 9. The time of this fire is the time when “the harvest of the earth” is gathered and the tares (Matt. 13:30, 39, 40) shall be “*burned in the fire*” (as “the ungodly men” mentioned by Peter), but this harvest (Rev. 14:14-20) occurs under the seventh trumpet *preceding* the Millennial age. When this conflagration takes place it is associated with the resurrection of the saints, for Peter encourages believers to expect a glorious deliverance at that period; this accurately *corresponds* with the resurrection (Rev. 11:15-18) and rewarding of the saints under the last trumpet when “the sovereignty of this world” shall be wielded by Christ. The mention of “*the Day of Judgment*” (comp. Props. 133 and 134) with a knowledge of the Jewish and Scriptural method of speaking of that day, viz., to be followed by Messiah’s Kingdom here on earth as the Millennial prophecies declare; ...
+>p. 516 Vol. 2 Prop. 150 Obs. 9
 
 ### Views
-Obs. 10
+p. 517-521 Vol. 2 Prop. 150 Obs. 10
 #### Utter destruction of earth and planets (post-Millennial)
 #### Universal burning of all things but new creation out of left-overs (post-Millennial)
 #### Universal burning but pre-Millennial
 
->These three classes, by the extent of the fire advocated, make no provision for the Kingdom to exist in its expressed covenanted terms, and none for the deliverance of inanimate and animate creation, having the same destroyed and an entire new creation erected from the ashes, etc. Instead of the curse being removed from the existing world, the world falls beneath the curse and is sacrificed, so that an entire new one which has never borne a curse may be created.
+>These three classes, by the extent of the fire advocated, make no provision for the Kingdom to exist *in its expressed covenanted terms*, and none for the deliverance of inanimate and animate creation, having the same destroyed and an entire new creation erected from the ashes, etc. Instead of the curse being removed *from* the existing world, the world falls *beneath* the curse and is *sacrificed*, so that an entire new one which has *never borne* a curse may be created.
+>p. 517 Vol. 2 Prop. 150 Obs. 10
 #### The fire is entirely figurative
 
 #### Literal fire confined to localities
