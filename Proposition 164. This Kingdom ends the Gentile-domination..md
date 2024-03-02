@@ -51,7 +51,7 @@ tags:
 
 >When He comes again, the time selected is also one in which this Gentile dominion shall be manifested in a vast confederation (Prop. 160, etc.), and when, humanely speaking, the Church shall so experience its persecuting power that no hope for its continuance appears possible.
 >p. 777 Vol. 2 Prop. 164 Obs. 8
-### No christian nation has ever existed among the Gentiles
+### No Christian nation has ever existed among the Gentiles
 >Obs: 9. It is a significant fact, fully attested by history, past and present, that no *Christian* nation has ever existed among the Gentiles.
 >p. 778 Vol. 2 Prop. 164 Obs. 9
 ### No approval from God on any other government
