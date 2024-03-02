@@ -21,12 +21,12 @@ tags:
 >p. 751 Prop. 163 Vol. 2 note
 
 ### Great civil and military leader
-Obs. 1
+p. 751-752 Prop. 163 Vol. 2 Obs. 1
 
 Joel 3:16; Ps. 92:7-9, Micah 4:11, 12; Ps. 37 and 73; Heb. 1:12-17; Isa. 35:4,
 
 ### Mighty confederation
-Obs. 2
+p. 752-754 Prop. 163 Vol. 2 Obs. 2
 10 horns
 
 ### Out of and forms part of the revived Roman Empire
@@ -42,12 +42,11 @@ Obs. 3
 >p. 756 Prop. 163 Vol. 2 Obs. 5
 
 ### Overcome, yet victorious
-Obs. 7
-
+p. 758-759 Prop. 163 Vol. 2 Obs. 7
 ### Root cause of this war -- hatred to His truth
-Obs. 8
+p. 759-761 Prop. 163 Vol. 2 Obs. 8
 ### Location
-Obs. 9
+p. 761-762 Prop. 163 Vol. 2 Obs. 9
 ###### Between the seas in the glorious holy mountain - Dan. 11
 ###### Valley of Jehoshaphat - Joel 3:2,12
 ###### The mountains of Israel - Ezek. 38-39
@@ -60,18 +59,17 @@ Obs. 9
 >p. 761-762 Prop. 163 Vol. 2 Obs. 9
 
 ### Armageddon
->we agree with him that a prevailing mistake has been long current and adopted, unthinkingly, by able writers, viz., that this gathering of Antichrist’s forces is to *Armageddon*, from whence springs the popular phrase, “the Battle of Armageddon”—a phrase not found in the Bible, but still adopted as the title of some books, under the plea that it is biblical.
+>... we agree with him that a prevailing mistake has been long current and adopted, unthinkingly, by able writers, viz., that this gathering of Antichrist’s forces is to *Armageddon*, from whence springs the popular phrase, “the Battle of Armageddon”—a phrase not found in the Bible, but still adopted as the title of some books, under the plea that it is biblical.
 >p. 762 Prop. 163 Vol. 2 Obs. 10
 
->His open revelation with the saints, which occurs *only when* Antichrist has reached Jerusalem,
+>... His open revelation with the saints, which occurs *only when* Antichrist has reached Jerusalem, etc.
 >p. 763 Prop. 163 Vol. 2 Obs. 10
 
->a gathering takes place at the first stage of the Advent; that these are taken to Mt. Sinai; that there will be an assembling of the saints at that mountain previous to going forth to the destruction of Antichrist; that this gathering here is also one allied with the Advent, it is reasonable to conclude, that the gathering here is to the same “*mountain of assembly*,” where precious gifts are indeed bestowed.
+>... a gathering takes place at the first stage of the Advent; that these are taken to Mt. Sinai; that there will be an assembling of the saints at that mountain previous to going forth to the destruction of Antichrist; that this gathering here is also one allied with the Advent, it is reasonable to conclude, that the gathering here is to the same “*mountain of assembly*,” where precious gifts are indeed bestowed.
 >p. 763 Prop. 163 Vol. 2 Obs. 10
 
 #### [Rev. 19:15-20](https://read.lsbible.org/?q=rev+19%3A15-20)
 And from His mouth comes a sharp sword, so that with it He may strike down the nations, and He will rule them with a rod of iron; and He treads the wine press of the wrath of the rage of God, the Almighty. 16 And He has on His garment and on His thigh a name written, “KING OF KINGS, AND LORD OF LORDS.” 17 Then I saw an angel standing in the sun, and he cried out with a loud voice, saying to all the birds which fly in midheaven, “Come, assemble for the great supper of God, 18 so that you may eat the flesh of kings and the flesh of commanders and the flesh of strong men and the flesh of horses and of those who sit on them and the flesh of all men, both free men and slaves, and small and great.” 19 Then I saw the beast and the kings of the earth and their armies assembled to make war with Him who sits on the horse and with His army. 20 And the beast was seized, and with him the false prophet who did the signs in his presence, by which he deceived those who had received the mark of the beast and those who worshiped his image. These two were thrown alive into the lake of fire which burns with brimstone.
-
 
 #### [Isaiah 63:1-6](https://read.lsbible.org/?q=isa+63%3A1-6)
 Who is this who comes from Edom,
