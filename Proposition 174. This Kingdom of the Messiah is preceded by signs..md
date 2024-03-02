@@ -94,13 +94,17 @@ Observation 5 (p. 165-167)
 - the re-establishment of the David throne and Kingdom, 
 - embracing also the conversion and restoration of the Jewish nation. 
 
->The event itself secretly occurring, and making itself known and felt by the removal here and there of a small minority of watching ones! That, that will so startle, move, and deeply affect them that they will proclaim, with mighty energy, the long neglected signs connected with a Second Advent.
+>The event itself secretly occurring, and making itself known and felt by the removal here and there of a small minority of watching ones! *That, that* will so startle, move, and *deeply affect* them that they will proclaim, with mighty energy, *the long neglected signs* connected with a Second Advent.
+>p. 166 Vol. 3 Prop. 174 Obs. 5
 
 >A surprising feature connected with these signs, and precisely that which ought to exist provided the injunction of constant watching is to be observed, is, that they all previous to the first stage, are of a nature observable from the early Church down to the present day.
+>p. 166 Vol. 3 Prop. 174 Obs. 5
 
->Let them indeed be mistaken in their apprehension of its nearness, yet the observance of such faith, the practical results attained by it, the honoring of Christ evinced by it, the hope and prayer elicited by it, etc., will not—as little as the cup of water—fail in its reward at the Revelation of Jesus.
+>Let them indeed be mistaken in their apprehension of its nearness, yet the observance of such faith, the practical results attained by it, the honoring of Christ evinced by it, the hope and prayer elicited by it, etc., will not—as little as the cup of water—*fail in its reward* at the Revelation of Jesus.
+>p. 166 Vol. 3 Prop. 174 Obs. 5
 
->These signs, so saddening because of the evil unfolding, should not unduly depress the believer. They should rather confirm his faith, urge to increased watching and prayer, influence to a firm and vigilant occupying until He comes, and fill him with renewed hope and love at the speedy Coming of the Beloved One. Yea, as the Master declared (Luke 21:28) we should “look up and lift up our heads, for our redemption draweth nigh.” For these purposes they are given, and hence a practical application of them to heart and life is designed, and not a mere theoretical acquiescence without a corresponding influence.
+>These signs, so saddening because of the evil unfolding, should not unduly depress the believer. They should rather confirm his faith, urge to increased watching and prayer, influence to a firm and vigilant occupying until He comes, and fill him with renewed hope and love at the speedy Coming of the Beloved One. Yea, as the Master declared (Luke 21:28) we should “*look up and lift up our heads, for our redemption draweth nigh.*” For these purposes they are given, and hence a practical application of them to heart and life is designed, and not a mere theoretical acquiescence without a corresponding influence.
+>p. 170 Vol. 3 Prop. 174 Obs. 9
 
 
 
