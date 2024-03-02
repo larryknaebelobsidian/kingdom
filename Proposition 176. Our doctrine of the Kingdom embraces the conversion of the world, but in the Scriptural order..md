@@ -15,16 +15,14 @@ tags:
 >While rejecting the Whitbyan theory of a future conversion of the world *previous* to the Second Advent of Jesus as unscriptural and misleading, we at the same time firmly hold to a future blessed and glorious conversion of the Jews and Gentiles *after* the Sec. Advent, as plainly taught in the Word.
 >p. 210 Vol. 3 Prop. 176 
 
->He is now doing His work in the process of gathering a people for God, and this, we contend, is only the earnest of a greater still to come. (Comp. Prop. 171.)
+>He is now doing His work in the process of gathering a people for God, and this, we contend, is only *the earnest* of a greater still to come. (*Comp. Prop.* 171.)
 >p. 213 Vol. 3 Prop. 176 Obs. 5
 
 >In view of our doctrines respecting the conversion of the world, the Kingdom of Christ, etc., we are unjustly accused as "traitors to the Church," or, at least, of taking "little interest in her welfare."
 >p. 214 Vol. 3 Prop. 176 Obs. 5 note
 
->When the Theocratic ordering is in full sway, then this will be forcibly realized. To this period belong such passages as the following: Ps. 22:27,28, "*All the ends of the world shall remember and turn unto the Lord; and all the Kindreds of the nations shall worship before thee. For the Kingdom is the Lord's; and He is the Governor among the nations." Ps. 9:1-8; Ps. 21:7-13, etc.
+>When the Theocratic ordering is in full sway, then this will be forcibly realized. To this period belong such passages as the following: Ps. 22:27,28, "*All the ends of the world shall remember and turn unto the Lord; and all the Kindreds of the nations shall worship before thee. For the Kingdom is the Lord's; and He is the Governor among the nations.*" Ps. 9:1-8; Ps. 21:7-13, etc.
 >p. 215 Vol. 3 Prop. 176 Obs. 6 note
-
-
 ### Psalm 9:1-8
 I will give thanks to Yahweh with all my heart;
 I will recount all Your wondrous deeds.
