@@ -14,7 +14,7 @@ tags:
 # Proposition 174. This Kingdom of the Messiah is preceded by signs.
 ## Signs preceeding First Stage (secret resurrection and secret translation) of the Advent
 
-Observation 3 discusses 38 signs. 
+Observation 3 (p. 114-160) discusses 38 signs. 
 
 1. Relative peace and prosperity, man engaged in normal world endeavors
 2. Widespread unbelief in the warning and words of God
@@ -61,7 +61,7 @@ Observation 3 discusses 38 signs.
 
 ## Signs between First (hidden) and Second (public) stage of the Second Advent
 
-Observation 4
+Observation 4 (p. 160-165)
 
 1. Translation of the living saints and resurrection (secret) [[Proposition 130. The Kingdom is preceded by a translation of the living saints.|Prop 130]] 
 2. Denial of Christ's Advent ("where is the promise of His coming")
@@ -86,7 +86,7 @@ Observation 4
 	- Three unclean spirits
 ## Main, Leading Signs that precede the Coming Kingdom 
 
-Observation 5
+Observation 5 (p. 165-167)
 
 - those that pertain to the first stage
 - those that pertain to its preliminary ordering at Mt. Sinai
