@@ -9,6 +9,7 @@ tags:
 # Proposition 185. This doctrine enforces that of Divine Providence.
 
 >God is not indifferent to the establishment of this Theocratic Kingdom, and His divine oversight respecting it is constantly made manifest, e.g. in the selection, training, and covenant with Abraham, in the selection, adoption, and covenant with David, in the selection of Mary and the birth of Jesus, in the announcements made of His Purpose, in the provisions established to carry out to ultimate completion the Theocratic conception.
+>p. 340 Vol. 3 Prop. 185
 ### God is personally interested
 >Obs. 1. God has 
 >1. a Divine Sovereignty and exercises it (Props. 79, so); 
@@ -17,8 +18,8 @@ tags:
 >4. oath-bound designs, which will be realized (Prop. 50); 
 >5. an omnipotence in Providence that is irresistible (Jer. 18:2—G); 
 >6. an end in view that will result according to His will (Horn. 9:9-21). 
->From the beginning to the end of this doctrine, as given in Scripture, from the inception of the Theocratic idea to its final perfect realization, God stands before us as One who personally interested in the matter, and who, for the sake of His own honor, praise, and glory, overrules all to bring forth, at the appointed time, a glorious consummation that shall vindicate and embellish the Divine perfections enlisted and employed in this grand redemptive work.
->-- reformatted
+>From the beginning to the end of this doctrine, as given in Scripture, from the inception of the Theocratic idea to its final perfect realization, God stands before us as One who *personally interested* in the matter, and who, for the sake of His own honor, praise, and glory, overrules all to bring forth, at the appointed time, a glorious consummation that shall vindicate and embellish the Divine perfections enlisted and employed in this grand redemptive work.
+>p. 340 Vol. 3 Prop. 185 Obs. 1 -- reformatted
 ### Providence of God richly evidenced
 >Obs. 2. The Providence of God, both general and particular, is sufficiently evidenced in 
 >1. the call of Abraham; 
@@ -35,10 +36,10 @@ tags:
 >12. the rejection of the nation; 
 >13. the call of the Gentiles; 
 >14. the destruction of Jerusalem, and 
->15. in hundreds of particulars; so much so that the student of the Theocratic Plan is constantly impressed with it, and feels it to be a living reality in which he can evermore trustingly confide.
->-- reformatted
+>15. in hundreds of particulars; so much so that the student of the Theocratic Plan is constantly impressed with it, and feels it to be *a living reality* in which he can evermore trustingly confide.
+>p. 340-341 Vol. 3 Prop. 185 Obs. 2 -- reformatted
 ### Special providence of God
->Obs. 3. The special Providence of God is most remarkably enforced and illustrated 
+>Obs. 3. The *special* Providence of God is most remarkably enforced and illustrated 
 >1. in the birth and life of David’s Son, and 
 >2. in the continuous provision made for the future re-establishment of the Theocracy under the supervision of this Son and His associated rulers. It is seen 
 >3. in the striking acts of that life and its results; it is witnessed 
@@ -60,4 +61,4 @@ tags:
 >19. the gathering out of the nations—all in 
 >20. the work of procuring co-heirs with the Christ, announce it. 
 >We behold this Providence encircling us, embracing us, aiding us, elevating us, and finally crowning us.
->-- reformatted
+>p. 341 Vol. 3 Prop. 185 Obs. 3 -- reformatted
