@@ -8,15 +8,19 @@ tags:
 ---
 # Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.
 ### Affects interpretation of the Bible
->Obs. 2. Its decisive and far-reaching influence is seen in the fact that it materially affects the interpretations of the Bible
+>Obs. 2. Its decisive and far-reaching influence is seen in the fact that it materially affects the interpretations of the Bible (see e.g. Prop. 4).
+>p. 321 Vol. 3 Prop. 183 Obs. 2
 ### Eschatology
->Obs. 3. Our doctrine deals largely in Eschatology,
+>Obs. 3. Our doctrine deals largely in *Eschatology*, ...
+>p. 321 Vol. 3 Prop. 183 Obs. 3
 ### Completes christian character
->Obs. 4. Indeed, some things connected with our doctrine are regarded so essential to the completeness of Christian character, that the true believer is represented as in possession of them.
+>Obs. 4. Indeed, some things connected with our doctrine are regarded so *essential* to the completeness of Christian character, that the true believer is represented as in possession of them.
 >. . .
->A symmetrical character demands the heart and attitude of a waiting, watching servant. Dr. Klink (Lange’s Com. loci) observes: “This constant expectation of our Lord’s Second Coming (Rom. 8:19, etc.), when He shall be revealed in His glory unto all (Col. 3:4), is one of the characteristic features of primitive Christianity.” (Comp. Phil. 3:20; 1 Thess. 1:10; Tit. 2:13; 2 Tim. 4:8.) No matter how we may interpret the connection, it is a fact, plainly evidenced by the passage, that the believers specially trained under the apostleship had this characteristic, and are commended for its possession.
+>A symmetrical character demands the heart and attitude of a waiting, watching servant. Dr. Klink (Lange’s *Com. loci*) observes: “This constant expectation of our Lord’s Second Coming (Rom. 8:19, etc.), when He shall be revealed in His glory unto all (Col. 3:4), is one of the characteristic features of primitive Christianity.” (Comp. Phil. 3:20; 1 Thess. 1:10; Tit. 2:13; 2 Tim. 4:8.) No matter how we may interpret the connection, it is a fact, plainly evidenced by the passage, that the believers specially trained under the apostleship *had this characteristic*, and are *commended* for its possession.
+>p. 321-322 Vol. 3 Prop. 183 Obs. 4
 ### Essential to doctrine, duty, character
 >Obs. 5. It is only requisite to point out how the New Test, uses the doctrine of the Second Advent, in order to show how essential it is to Christian doctrine, duty, and character.
+>p. 323 Vol. 3 Prop. 183 Obs. 5
 ### Reasons
 >It is given 
 >1. to interest us in a blessed coming, Matt. 23:39; Luke 13:35 and 21:27; 2 Thess. 1:10; Heb. 9:28; 1 Pet. 1:7, 13; Rev. 22:7, 20; 
@@ -69,7 +73,7 @@ tags:
 >48. 48, to enforce obedience, 1 Tim. 4:13, 14; 2 Tim. 4:1; 
 >49. 49, to bring salvation, Heb. 9:28; 
 >50. 50, to coming gladness and exceeding joy, 1 Pet. 4:13.
->Obs. 5
+>p. 323-324 Vol. 3 Prop. 183 Obs. 5
 ### Throws light on doctrines
 >Obs. 6. The light that it throws on single doctrines is something worthy of consideration, such as e.g. 
 >1. the resurrection, making a distinctive first and second resurrection; 
@@ -84,22 +88,23 @@ tags:
 >10. the design of the dispensation and its practical accomplishment; 
 >11. the Day of Judgment and its manifestations, etc. 
 >Indeed, there is scarcely a subject in the Bible with which it is not linked, and upon which, either directly or indirectly, it does not impart information.
+>p. 324 Vol. 3 Prop. 183 Obs. 6
 ### Sanctifies the heart
->This expectation is a powerful means, in the hand of God, for raising and sanctifying the heart; 
->. . . the proof and the nourishment of love to Him; we look for Him because we love Him, and could not love Him if we were not looking for Him; we look for Him because we have already experienced love to Him when absent, 1 Pet. 1:8; and this expectancy toward Christ’s Coming and preparation for it, is the leading purpose and main concern of all true Christians, Col. 3:1, ss.”
->Obs. 8
+>This expectation is a *powerful means*, in the hand of God, for raising and sanctifying the heart; 
+>. . . *the proof and the nourishment of love* to Him; we look for Him because we love Him, and could not love Him if we were not looking for Him; we look for Him because we have already experienced love to Him when absent, 1 Pet. 1:8; and this expectancy toward Christ’s Coming and preparation for it, is *the leading purpose and main concern of all true Christians*, Col. 3:1, ss.”
+>p. 326 Vol. 3 Prop. 183 Obs. 8
 ### Produces brotherly love
 >The doctrine legitimately produces love, brotherly love.
->Obs. 9
+>p. 327 Vol. 3 Prop. 183 Obs. 9
 ### Ultimate reward
->by the ultimate benefit to be derived from such a position, the divine approval and reward at the judgment of believers (Prop. 135 and 130). We may rest assured that a reverent reception of the commands and teaching on these subjects will not only prevent our suffering loss, but increase our ultimate reward, because those who thus honor God will eventually be honored by Him.
->Obs. 10
+>... by *the ultimate benefit* to be derived from such a position, the divine approval and reward at the judgment of believers (Prop. 135 and 130). We may rest assured that a reverent reception of the commands and teaching on these subjects will not only prevent our suffering loss, but increase our ultimate reward, because those who *thus honor* God will eventually *be honored* by Him.
+>p. 328 Vol. 3 Prop. 183 Obs. 10
 ### Conducive to piety and godly love
->serves to make it most conducive to piety and godly love.
->Obs. 11
+>... serves to make it most conducive to piety and godly love.
+>p. 329 Vol. 3 Prop. 183 Obs. 11
 ### Promotes missions
 >It is asserted that our doctrine tends to injure missions and destroy their spirit.
->Obs. 12
+>p. 330 Vol. 3 Prop. 183 Obs. 12
 
 
 
