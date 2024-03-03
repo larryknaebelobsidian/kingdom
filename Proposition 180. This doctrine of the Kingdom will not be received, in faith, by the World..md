@@ -46,8 +46,8 @@ tags:
 >Dr. Dawson (before Evang. Alliance of 1873) expressed this fully: “When you talk of Darwinism you talk of theories that make *vaster demands on our faith* than on our science.”
 >p. 291 Vol. 3 Prop 180 Obs. 5
 
->The condition of the world as delineated in the Word just previous to the Second Advent presents to us the nations under the influence of an unbelieving Naturalism and self-glorified Humanity, arrayed in open hostility to the Lord Jesus Christ.
->Obs. 5
+>The condition of the world as delineated in the Word just previous to the Second Advent presents to us the nations *under the influence of an unbelieving Naturalism and self-glorified Humanity, arrayed in open hostility to the Lord Jesus Christ*.
+>p. 293 Vol. 3 Prop 180 Obs. 5
 ### Weak faith
 >Obs. 6. No faith, aside from other reasons, will be exercised in this Kingdom because of *the manner* of its introduction through Supernatural intervention, and of *the Personage* Jesus Christ, through whom it is to be accomplished.
 >p. 295 Vol. 3 Prop 180 Obs. 6
