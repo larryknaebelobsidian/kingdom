@@ -13,17 +13,17 @@ tags:
 >3. (3) in a complete fulfilment of both covenant and prophecy at the Sec. Advent; 
 >4. (4) in locating the covenanted Messianic Kingdom in the future at the Sec. Coming of Jesus:
 >5. (5) and in urging all to accept Jesus as the promised Messiah, so that they may become qualified to enter into His coming Kingdom.
->--reformatted
+>p. 361 Vol. 3 Prop. 188 --reformatted
 
 ### Romans
-Obs. 1
+p. 361-362 Vol. 3 Prop. 188 Obs. 1
 ### Pauline Epistles
-Obs. 2
+p. 362-363 Vol. 3 Prop. 188 Obs. 2
 ### Hebrews
-Obs. 3
+p. 363-364 Vol. 3 Prop. 188 Obs. 3
 ### James
-Obs. 4
+p. 364-365 Vol. 3 Prop. 188 Obs. 4
 ### Peter
-Obs. 5
+p. 365 Vol. 3 Prop. 188 Obs. 5
 ### John
-Obs. 6
+p. 365 Vol. 3 Prop. 188 Obs. 6
