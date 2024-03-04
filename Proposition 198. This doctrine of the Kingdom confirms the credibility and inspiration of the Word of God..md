@@ -33,7 +33,6 @@ tags:
 
 >Unless it can be shown that such a consecutive plan, in itself opposed to the wishes, etc., of the nation, would be suggested by reason, or is a natural result flowing from the powers of man, it is *the most reasonable* to accept of the only explanation which thus far alone covers the ground, viz., that of inspiration.
 >p. 468 Vol. 3 Prop. 198 Obs. 1
-
 ### One continuous plan - Is it worthy of God? Is it adapted to produce what it intends?
 >It is a fact, however, worthy of especial notice that not one of our opponents from the early Church down to the present day has ventured to consider the Bible *as a whole*, as containing *one continuous plan*, and has noticed the Rise, Progress, and Result *purposed* by it. In this consists *the strength* of the Bible; in this is found *the great, and overwhelming proof* of its inspiration.
 >p. 469 Vol. 3 Prop. 198 Obs. 2
@@ -43,26 +42,22 @@ tags:
 
 >While it is reasonable in studying a locomotive to consider its separate portions and descant on their form, etc., it would be folly to confine ourselves only to these and neglect what is of far greater moment to consider, the locomotive as one whole—its capability of performing the work designed by its builder—and then to look at its various parts—not as misshapen or wrongfully constructed when contemplated by themselves irrespective of their designed use—but only in their adaptedness to subserve *the intended end*.
 >p. 469 Vol. 3 Prop. 198 Obs. 2
-
 ### Relationship to the whole
->Reason, if true to itself, ought not so much to look at things, or facts, or doctrines, etc., isolated, torn from their connection, but in the relationship that they sustain to a system or purpose. This is true philosophy. Reason is given to discern truth; and to find out *the whole truth*, the most important part of truth, is to ascertain its bearing or affinity to other and more leading or general truths. It is the is feature introduced into science, art, etc., correctly appreciated and carried out, that enhances their interest and value; and the time has arrived when reason conducting the attack upon, or the defence of Bible statements should firmly plant itself on the same ground, viz., rejecting or receiving alleged truths in their unsustained or sustained relationship to the whole.
+>Reason, if true to itself, ought not so much to look at things, or facts, or doctrines, etc., isolated, torn from their connection, but in the relationship that they sustain to a system or purpose. This is true philosophy. Reason is given to discern truth; and to find out *the whole truth*, the most important part of truth, is to ascertain its bearing or affinity to other and more leading or general truths. It is this feature introduced into science, art, etc., correctly appreciated and carried out, that enhances their interest and value; and the time has arrived when reason conducting the attack upon, or the defence of Bible statements should firmly plant itself on the same ground, viz., rejecting or receiving alleged truths in their unsustained or sustained relationship to the whole.
 >p. 472 Vol. 3 Prop. 198 Obs. 3
-
 ### The Kingdom is worthy of God and adapted to fulfil its intent
->it is of the *utmost importance* that in a discussion involving the inspiration of God’s professed Word, two things should be observed: 
+>... it is of *the utmost importance* that in a discussion involving the inspiration of God’s professed Word, two things should be observed: 
 >(1) that a proper knowledge and estimate of the Kingdom itself should be attained, and 
 >(2) that in virtue of this Kingdom being the End proposed in the Redemptive process, all other announcements, facts, etc., must be regarded in their relationship
 >p. 475 Vol. 3 Prop. 198 Obs. 4 slightly reformatted
 
->let it be traced in its initiatory establishment, its overthrow, its promised restoration, its predicted glory, etc., and with all this before the mind, lot reason carefully examine its design, its merits, its adaptability to secure the deliverance of man, the race, and the world, and reason must confess that if carried out according to the pre-determined programme laid down in the Word, it will *fully and most perfectly* meet the wants and the desires of humanity.
+>... let it be traced in its initiatory establishment, its overthrow, its promised restoration, its predicted glory, etc., and with all this before the mind, lot reason carefully examine its design, its merits, its adaptability to secure the deliverance of man, the race, and the world, and reason must confess that if carried out according to the pre-determined programme laid down in the Word, it will *fully and most perfectly* meet the wants and the desires of humanity.
 >p. 475 Vol. 3 Prop. 198 Obs. 4
 
->there is *no phase* of imperfection, suffering, and evil which it does not propose to remove, and that there is *no blessing* which the heart of man has longed for both for himself and society which it does not intend to bestow.
+>... there is *no phase* of imperfection, suffering, and evil which it does not propose to remove, and that there is *no blessing* which the heart of man has longed for both for himself and society which it does not intend to bestow.
 >p. 475 Vol. 3 Prop. 198 Obs. 4
-
 ### Are the agencies adapted to secure the Kingdom ?
 #### Divinity and Humanity of Jesus
-
 >Take the *Divinity and Humanity* of Jesus, the Christ, and view these, not isolated, disconnected from the Divine Plan, but as forming *an indispensable part* of that Plan, and we have at once the strongest possible proof in favor of the Divinity of Jesus.
 >p. 477 Vol. 3 Prop. 198 Obs. 5
 
@@ -78,15 +73,14 @@ tags:
 >He in virtue of His divinity has Pre-Existence, (John 8:58; 13:3, etc.); 
 >He is the Preserver (Col. 1:17; Heb. 1:3, etc.); 
 >He is worthy of worship (John 5:23; Phil. 2:10; Heb. 1:6; Ps. 72:15, 17; Rev. 5:8-13, etc.), etc. 
->Thus to qualify Him to act in the capacity of a Theocratic King, everything essential to God is fully ascribed to, and possessed in its fulness by Him. Admitting then the simple record as given, we have the very Person described whom the Plan contemplates as the One suitable to act as the ‘predetermined Theocratic King.
+>Thus to qualify Him to act in the capacity of *a Theocratic King*, everything essential to God is fully ascribed to, and possessed in its fulness by Him. Admitting then the simple record as given, we have *the very Person described* whom the Plan contemplates as the One suitable to act as *the predetermined Theocratic King*.
 >p. 478-479 Vol. 3 Prop. 198 Obs. 5 slightly reformatted
 
 >All that we assert at this stage is, that thus far there is *no discrepancy* between the Plan proposed and the great leading Agency by which it is to be accomplished.
 >p. 479 Vol. 3 Prop. 198 Obs. 5 
 
->let reason decide whether such a Being, as we find described in Jesus Christ, is not indispensable to carry out the Plan as given.
+>... let reason decide whether such a Being, as we find described in Jesus Christ, is not indispensable to carry out the Plan as given.
 >p. 479 Vol. 3 Prop. 198 Obs. 5 
-
 ### Requires Supernatural Power
 
 #### The Death of Jesus
@@ -105,7 +99,6 @@ tags:
 
 >Now let this principle of judgment, every day practically observed and enforced, be applied, in judging the inspiration of the Word. Let this doctrine of the Kingdom running from Genesis to Revelation (and which embraces the Divine Purpose) be duly considered, its initiatory form, its modification to bring it into closer relationship with humanity, its provisionary measures, etc., and it will be found at once that it contemplates a scheme *so noble* in conception, *so admirably* adapted to secure deliverance, *so extended* in its capacity to bring the much desired and wanted blessings to man, *so confirmed* by past and present fulfilments which form history, *so far beyond* anything that can be suggested by mere intelligence to remove existing evils, that *it commends itself* in design, adaptability and end contemplated as being of Divine origin.
 >p. 487 Vol. 3 Prop. 198 Obs. 7
-
 ### Adapted for the Kingdom of God
 >It professes to be the Kingdom of God, and to judge correctly whether it comes from God we must not merely confine ourselves to the manner in which it is presented (the mediumship) but observe whether it is *worthy* of God and *conducive* to the highest interests of humanity, and the answer to this becomes the leading proof of inspiration. 
 >
@@ -119,36 +112,33 @@ tags:
 >
 >these and other considerations inspire *such confidence* in its representations (confirmed as they are by personal observation in present fulfilments and present experience in the reception of the Word) that the alleged discrepancies and difficulties (if even unsusceptible of explanation or reconciliation) give place to a film belief in its divine inspiration.
 >p. 488 Vol. 3 Prop. 198 Obs. 7 slightly reformatted
-
 ### Books of Moses
 >The inspiration of the books of Moses is shown not by this or that statement, but by their design as a whole and their relationship to the rest of the Word;
 >p. 488 Vol. 3 Prop. 198 Obs. 7 
-
 ### First chapters of Genesis
 >The God who appears in Creation, who manifests His love for man and then His displeasure at sin, again appears in love and mercy, manifested by the most extraordinary admirably adapted measures of grace looking forward to a magnificent re-creation, and thus stamps the first record as divine.
 >p. 494 Vol. 3 Prop. 198 Obs. 8 
 
->In Genesis, as explained and enforced by the tenor of the entire Word, we have a personal God presented who takes a deep and abiding interest in the welfare of man, not only filling out a proper conception of the absolute, but bringing Him into intimate relationship with this world. We have evolution proceeding from Infinite Intelligence, according with Divine Purpose, manifesting a Divine Plan, previously entertained and now carried out. This is eminently more satisfactory than that reasoning which removes this personal Creator and introduces matter and force as the original producers of life, making a self-creative matter and force (although some writers on both sides advocate an intelligent cause directing this evolution), out of which, in some way unexplained, the first organisms are self;developed.
+>In Genesis, as explained and enforced by the tenor of the entire Word, we have *a personal God* presented who takes a deep and abiding interest in the welfare of man, not only filling out a proper conception of the absolute, but bringing Him into intimate relationship with this world. We have evolution proceeding from Infinite Intelligence, according with Divine Purpose, manifesting a Divine Plan, previously entertained and now carried out. This is eminently more satisfactory than that reasoning which removes this personal Creator and introduces matter and force as the original producers of life, making *a self-creative* matter and force (although some writers on both sides advocate an intelligent cause directing this evolution), out of which, in some way *unexplained*, the first organisms are self;developed.
 >p. 494 Vol. 3 Prop. 198 Obs. 8 
-
->In other words, the retention of the Jewish covenanted Messianic idea of the Kingdom, and its universally received postponement to the period of the Second Advent, is the most powerful proof of the strict historical unity extending from the ministry of Christ down to near the fourth century.
+### Proof of strict historical unity
+>In other words, the retention of *the Jewish covenanted Messianic* idea of the Kingdom, and its *universally received* postponement to the period of the Second Advent, is the most powerful proof of *the strict historical unity* extending from the ministry of Christ down to near the fourth century.
 >p. 502 Vol. 3 Prop. 198 Obs. 9
-
 ## Denial of supernatural is an outgrowth of scientific unbelief
 >The logical, consistent outgrowth of scientific unbelief is the denial of the Supernatural.
 >p. 506 Vol. 3 Prop. 198 Obs. 10
 
->Their whole creed is, in fact, pre-eminently based upon this assumed uniformity of nature.”
+>Their whole creed is, in fact, pre-eminently based upon this assumed uniformity of nature.
 >p. 506 Vol. 3 Prop. 198 Obs. 10
 
->this conclusion of unintelligent physical causes dominating over all, is pressed upon us from all sides as the legitimate one to be received.
+>... this conclusion of *unintelligent* physical causes dominating over all, is pressed upon us from all sides as the legitimate one to be received.
 >p. 507 Vol. 3 Prop. 198 Obs. 10
 
 >We see in this, viewed from the standpoint of our doctrine, three things inevitably resulting: 
 >1. That it is vain for men to imagine that even a compromise between such antagonisms can be effected; 
 >2. that it is absurd and foolish to hide from ourselves the existence of such a conflict; and 
->3. that it is only preparatory to that naturalism and humanitarianism which is to introduce the culminated Antichrist.
->p. 507 Vol. 3 Prop. 198 Obs. 10
+>3. that it is *only preparatory* to that naturalism and humanitarianism which is to introduce the culminated Antichrist.
+>p. 507 Vol. 3 Prop. 198 Obs. 10 reformatted
 
 
 
