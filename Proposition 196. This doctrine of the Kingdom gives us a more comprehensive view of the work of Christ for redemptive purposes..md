@@ -5,67 +5,73 @@ id: 196
 completion: 1
 tags:
   - toc
+subjects:
+  - intermediate state
 ---
 # Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.
 
->This is seen in the fact that our doctrine makes much of what Christ is yet to do at His Sec. Advent.
+>This is seen in the fact that our doctrine makes much of what Christ *is yet to do* at His Sec. Advent.
+>p. 449 Vol. 3 Prop. 196
 
->But our view embraces not merely the completion of salvation in the saints of this and former ages by experiencing the resurrection, etc., but includes salvation in restoration to all forfeited blessings pertaining to saints, to the Jewish nation and the race. The Kingdom itself, while embracing salvation, becomes the medium of salvation to the world. When this period of re-establishment comes, then to the preparatory work of Christ is added the direct supernatural Theocratic power by which deliverance is obtained and evermore sustained.
+>But our view embraces not merely the completion of salvation in the saints of this and former ages by experiencing the resurrection, etc., but includes salvation in restoration to *all forfeited* blessings pertaining to saints, to the Jewish nation and the race. The Kingdom itself, while embracing salvation, becomes *the medium* of salvation to the world. When this period of re-establishment comes, then to the preparatory work of Christ is *added* the direct supernatural Theocratic power by which deliverance is obtained and evermore sustained.
+>p. 449 Vol. 3 Prop. 196
 ### "The Salvation"
->Obs. 1. The careful student will have noticed that the Jews before and at the Advent of Jesus were accustomed to designate the period or results when the throne and Kingdom of David should be restored under the Messiah, as “the Salvation.”
+>Obs. 1. The careful student will have noticed that the Jews before and at the Advent of Jesus were accustomed to designate the period or results when the throne and Kingdom of David should be restored under the Messiah, as “*the Salvation*.”
+>p. 449 Vol. 3 Prop. 196 Obs. 1
 
->The Kingdom of the Messiah and salvation were in the Jewish mind convertible terms;
->Obs. 1
-
+>The Kingdom of the Messiah and salvation were in the Jewish mind convertible terms; ...
+>p. 449 Vol. 3 Prop. 196 Obs. 1
 
 >The term “salvation,” correctly apprehended by the primitive Church, was from Origen’s time applied too much to the present life and to the intermediate state.
->Obs. 1
+>p. 449 Vol. 3 Prop. 196 Obs. 1
 ### Now an "earnest"
->The reader will notice, as e.g. in Eph. 1:13, 14; Phil. 1:27-29, that, whatever we now receive from “the Gospel of salvation,” it is only “the earnest” of the distinguishing salvation—the specific salvation—held forth by the covenant and promises.
->Obs. 2
+>The reader will notice, as e.g. in Eph. 1:13, 14; Phil. 1:27-29, that, whatever we now receive from “the Gospel of salvation,” it is only “*the earnest*” of the distinguishing salvation—the specific salvation—held forth by the covenant and promises.
+>p. 450 Vol. 3 Prop. 196 Obs. 2
 
->the intermediate state, whatever it may be, with the body in the grave, the non-fulfilment of covenant promises, the postponement of the reign on earth, etc., the saint is not enjoying the predicted inheritance, crown, reward, etc., only to be given at the Sec. Advent.
->Obs. 2
+>... the intermediate state, whatever it may be, with the body in the grave, the non-fulfilment of covenant promises, the postponement of the reign on earth, etc., the saint is not enjoying the predicted inheritance, crown, reward, etc., only to be given at the Sec. Advent.
+>p. 450 Vol. 3 Prop. 196 Obs. 2
 
->The great, the emphatic salvation is then still future, and hence, the work of Christ, is not yet completed. The solid foundation is indeed laid, the preparatory work is progressing, but the lime for the perfect realization of salvation has not yet arrived.
->Obs. 2
+>The great, the *emphatic salvation* is then still future, and hence, *the work of Christ*, is not yet completed. The solid foundation is indeed laid, the preparatory work is progressing, but *the time* for the *perfect realization* of salvation has not yet arrived.
+>p. 451 Vol. 3 Prop. 196 Obs. 2
 ### Salvation includes the Second Advent
->Obs. 3. The apostles not only freely adopt the current phraseology of the Jews concerning salvation—thus endorsing them—but in the most positive manner point out that the expected salvation to which the tribes hope to come is delayed to the Sec. Advent.
->Obs. 3
+>Obs. 3. The apostles not only freely adopt the current phraseology of the Jews concerning salvation—thus endorsing them—but in the most positive manner point out that the expected salvation to which the tribes hope to come is *delayed* to the Sec. Advent.
+>p. 451 Vol. 3 Prop. 196 Obs. 3
 ### Some prophecies
->Obs. 4. Seeing that the apostles refer the salvation spoken of by the prophets to the time of the Sec. Advent, it may be corroborative of our position to glance at some of the prophecies which describe it, and notice, briefly, what things are included under the phrase.
+>Obs. 4. Seeing that the apostles refer the salvation spoken of by the prophets to *the time* of the Sec. Advent, it may be corroborative of our position to glance at some of the prophecies which describe it, and notice, briefly, what things are included under the phrase.
+>p. 452 Vol. 3 Prop. 196 Obs. 4
 
 >Isa. 25:9
 >1. the reign of the Messiah in Jerusalem, 
 >2. the resurrection of the righteous, 
 >3. the overthrow of all enemies, 
 >4. universal dominion, etc.
->Obs. 4 reformatted
+>p. 452 Vol. 3 Prop. 196 Obs. 4 reformatted
 
 >Ps. 9:14
 >1. “the lifting up from the gates of death,” 
 >2. the removal of enemies, 
 >3. the judging of the world in righteousness, etc.
->Obs. 4
+>p. 452 Vol. 3 Prop. 196 Obs. 4 reformatted
 
 >Ps. 37:39
 >the inheriting of the earth when the wicked are utterly rooted out of it.
->Obs. 4
+>p. 452 Vol. 3 Prop. 196 Obs. 4 reformatted
 
 >Ps. 98:2
 >When “the Lord makes known His salvation” Ps. 98:2 it is, when He comes “to judge the earth,” when He has done “marvellous things,” and “His right hand and His holy arm hath gotten Him the victory,” and “tie hath remembered His mercy and His truth toward the house of Israel.”
->Obs. 4
+>p. 452 Vol. 3 Prop. 196 Obs. 4 reformatted
 
 >Ps. 118:14,
 >When “the Lord becomes our salvation” Ps. 118:14, He overthrows the confederation of nations that compass the righteous, He remembers mercy for the elect nation and doeth valiantly; the righteous “shall not die but live,” for He will not give them “over unto death.”
->Obs. 4
+>p. 452 Vol. 3 Prop. 196 Obs. 4 reformatted
 
 >Ps. 132:10,
->“When God will “clothe the Priests with salvation” Ps. 132:10, it is said that David’s Son shall sit upon David’s throne, “for the Lord hath chosen Zion, He hath desired it for His habitation. This is my rest forever; here will I dwell, for I have desired it”—“there will I make the horn of David to bud” and “His enemies will I clothe with shame, but upon Himself shall His crown flourish,” etc.
->Obs. 4
+>“When God will “clothe the Priests with salvation” Ps. 132:16, it is said that David’s Son shall sit upon David’s throne, “for the Lord hath chosen Zion, He hath desired it for His habitation. This is my rest forever; here will I dwell, for I have desired it”—“there will I make the horn of David to bud” and “His enemies will I clothe with shame, but upon Himself shall His crown flourish,” etc.
+>p. 452 Vol. 3 Prop. 196 Obs. 4 reformatted
 
 >Ps. 149:4,
->At the time the Lord “will beautify (comp. 2 Thess. 1:10) the meek with salvation” Ps. 149:4, then 1. Israel will rejoice in their King, 
+>At the time the Lord “will beautify (comp. 2 Thess. 1:10) the meek with salvation” Ps. 149:4, then 
+>1. Israel will rejoice in their King, 
 >2. the saints will be joyful in glory, and 
 >3. the honor of executing judgment is conferred upon them.
 >Obs. 4
@@ -73,7 +79,7 @@ tags:
 >One of the most mournful and pathetic representations of the downfall of the nation, the desolations of Zion, the treading down of God’s own inheritance, is found in Ps. 74,
 >Obs. 4
 
->Such references could be multiplied, the prophets being filled with them, in which this salvation is connected with 
+>Such references could be multiplied, the prophets being filled with them, in which this salvation is *connected* with 
 >1. the Coming of the Lord, 
 >2. the resurrection of saints, 
 >3. the entire removal of enemies, 
