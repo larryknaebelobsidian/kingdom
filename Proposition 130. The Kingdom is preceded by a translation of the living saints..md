@@ -32,7 +32,7 @@ Personal Note: My view, before reading Peters, is that the Bible word "rapture" 
 >Leading prophetical writers justly have no hesitancy in asserting that no mortal eye of unbelief shall behold the resurrection.
 >p. 315 Vol 2 Prop 130 Obs. 1
 ### Invisible Translation
->This at once places the translation of the saints in a new aspect, and indicates, as it accompanies accompanies the resurrection, that it also is unseen (like Enoch’s and Elijah’s) by the world.
+>This at once places the translation of the saints in a new aspect, and indicates, as it accompanies the resurrection, that it also is unseen (like Enoch’s and Elijah’s) by the world.
 >p. 315 Vol 2 Prop 130 Obs. 1
 ### Rev. 20 Resurrection of Great Tribulation Saints Only
 >Again, careful students of the Word felt satisfied that the resurrection of the saints in Rev. 20:4-6 was *specifically* that of those who passed through *the great* tribulation under the culminated Antichrist, and was *preceded* by that of others, as implied in Rev. 14:1-6, etc.
