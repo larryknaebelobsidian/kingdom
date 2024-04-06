@@ -70,6 +70,7 @@ Personal Note: My view, before reading Peters, is that the Bible word "rapture" 
 >p. 316-317 Vol 2 Prop. 130 Obs. 1
 
 ### FOR and WITH
+Obs. 2 p. 318-319 Vol 2 Prop. 130 
 Jesus coming "for or in behalf" of His saints (1 Thess. 3:14-17; 1 Cor. 15:51,52) and Jesus coming "with all" His saints (Zech. 14:5; Rev. 19:14; 1 Thess. 3:13; Jude 14,15)
 
 | FOR His saints 1 Th. 3:14-17; 1 Cor. 15:51-52                                 |     | WITH His saints Zech. 14:5; Rev. 19:14; 1 Th. 3:13; Jude 14,15 |
@@ -79,13 +80,15 @@ Jesus coming "for or in behalf" of His saints (1 Thess. 3:14-17; 1 Cor. 15:51,52
 | first-fruits                                                                  |     | general harvest                                                |
 
 ### Vultures
+Obs. 3 p. 319-322 Vol 2 Prop. 130 
 Luke 17:34-37 - Translation
 
 eagles/vultures - saints
 body - followers of the antichrist
 
 ### Partial
-### ***One class of believers kept from the great tribulation and another class goes into it.***
+Obs. 4 p. 322-325 Vol 2 Prop. 130 
+***One class of believers kept from the great tribulation and another class goes into it.***
 
 Rev 7 - 144,000 - note: Peters says this 144,000 is a different group than the 144,000 of chapter 14
 
@@ -101,10 +104,10 @@ Rev 7 - great multitude from every nation
 > In all probability, "*the sign of the Son of Man*" (Matt. 24:30) will be something connected with this translation ... 
 > p. 327 Vol 2 Prop. 130 Obs. 6
 ### Multiple Translations
-> ... *this astonishing [[removal of certain chosen ones]], accounted worthy*, owing to their distinctive faith in God's promises, *to escape*.
+> ... *this astonishing removal of certain chosen ones, accounted worthy*, owing to their distinctive faith in God's promises, *to escape*.
 > p. 327 Vol 2 Prop. 130 Obs. 7
 
-> ... surely those who believe in God's Word and are [[left behind]] will be most wonderfully affected by the event. 
+> ... surely those who believe in God's Word and are left behind will be most wonderfully affected by the event. 
 > p. 327 Vol 2 Prop. 130 Obs. 7
 
 > (The writer has *often, often felt* that it is *specially* for this period that he is laboring, when his work will be appreciated, etc.) 
@@ -113,14 +116,14 @@ Rev 7 - great multitude from every nation
 > The Church, *then* starting up with Abrahamic faith *will recognize its chronological position*, will *see what* is before it, and, energetically infused by fear and hope, *prepare itself* for the fearful ordeal through which it must pass. And we are assured that the Church in this contest, overpowered as she will be, will sustain the persecution *with triumphant faith*, feeling convinced from the events occurring and the time elapsed, that the Son of Man is even *already present*, waiting for the moment of direct interference." (p. 327-328 Vol 2)
 > p. 327-328 Vol 2 Prop. 130 Obs. 7
 
-***Peters believes that the majority of Christians (but not all) will be [[left behind]] to experience the tribulation***
+***Peters believes that the majority of Christians (but not all) will be left behind to experience the tribulation***
 ### Restrainer
 The Restrainer 2 Thess 2:6,7
 
 Peters suggests Theodoret's opinion is perhaps correct: "the decree of God's Providence"
 
 ### Two Translations
-Peters believes there will be 2 translations: before ("[[the first-fruits]]") and after ("[[the harvest]]") the great tribulation (p. 329 Vol 2 )
+Peters believes there will be 2 translations: before ("the first-fruits") and after ("the harvest") the great tribulation (p. 329 Vol 2 )
 
 
 
