@@ -15,6 +15,11 @@ Paul does not say that the resurrection and translation comes *before* that day,
 
 Peters states that the day cannot come until a visible coming of Christ and the Antichrist is destroyed.  Paul does not say this in Thessalonians.  Paul clearly says: 1. "The apostasy comes first" (2:3), 2. Then "the man of lawless is revealed" (2:3), 3. Then "the Lord will slay with the breath of his mouth and bring to an end by the appearance of His coming" (2:8).
 
-Therefore, Paul says
+"The coming of our Lord Jesus Christ and our gathering together to Him" in 2:1 is the same as "the day of the Lord" in 2:2.
+
+Therefore, Paul says Christ comes on "the day of the Lord" when He will destroy Antichrist. And Paul also says that "the day of the Lord" will not come until the apostasy comes first and the man of lawlessness is revealed.
+
+The revealing of the lawless one will not come until "he who now restrains is taken out of the way" (2:7).
+
 
 
