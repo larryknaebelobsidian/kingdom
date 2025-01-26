@@ -36,7 +36,7 @@ Obs. 6
 >What must we say then to that large class of professed believers, who establish unbelief in themselves and others by denouncing our doctrine of the Kingdom (under the garb of superior piety, spirituality, etc.), as “*sensual*", "*carnal*,” “*fleshly*," etc. Do they not see that by so doing they not only *caricature* the faith of the early Church at the expense of Christianity, but direct *a deadly blow* at the preaching of the Kingdom as given in the opening of the New Testament by which the knowledge, integrity, etc., of the first preachers, specially and divinely sent forth, are sacrificed?
 >p. 229 Vol. 3 Prop. 177 Obs. 7
 
->Any theory, no matter by whom advocated, that introduces *so fatal an antagonism* between primitive and present faith, is to be discarded as *irreconcilable* with the truth. Bat instead of this, the masses follow such reasoning and the substitutions intended, led by the authority, reputation, etc. of others, and swayed by the reproach cast upon our faith.
+>Any theory, no matter by whom advocated, that introduces *so fatal an antagonism* between primitive and present faith, is to be discarded as *irreconcilable* with the truth. But instead of this, the masses follow such reasoning and the substitutions intended, led by the authority, reputation, etc. of others, and swayed by the reproach cast upon our faith.
 >p. 231 Vol. 3 Prop. 177 Obs. 7
 ### Personal abuse
 p. 231-235 Vol. 3 Prop. 177 Obs. 8
