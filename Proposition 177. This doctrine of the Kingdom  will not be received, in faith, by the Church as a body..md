@@ -44,7 +44,7 @@ p. 231-235 Vol. 3 Prop. 177 Obs. 8
 p. 235-236 Vol. 3 Prop. 177 Obs. 9 
 ### Whitbyanism leads to lack of faith in Chiliasm (Kingdom)
 p. 236-238 Vol. 3 Prop. 177 Obs. 10
-### Lack is faith is inexcusable because it is against the plain grammatical sense of the Word
+### Lack of faith is inexcusable because it is against the plain grammatical sense of the Word
 p. 238-241 Vol. 3 Prop. 177 Obs. 11
 ### Recent works show unbelief
 p. 241-243 Vol. 3 Prop. 177 Obs. 12
