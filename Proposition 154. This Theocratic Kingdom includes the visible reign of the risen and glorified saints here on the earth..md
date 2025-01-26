@@ -38,16 +38,15 @@ tags:
 ### Where - on the earth
 >The *place* where this reign is to be manifested is expressly stated: “*We shall reign on* (or as Stuart, *over*) *the earth*.” In the very nature of the case, if they inherit with David’s Son, the restored Theocratic-Davidic Kingdom, it *must be* a reign here on and over the earth.
 >p. 574 Vol. 2 Prop. 154 Obs. 3
-### The LORD will come and all the holy ones with him
-Zech. 14:5
-Joel 3:11; Matt. 24:30, 31; 2 Thess. 2:1; 1 Thess. 4:16, 17,
+### The proofs verifying the reign of the saints
+Zech. 14:5;Joel 3:11; Matt. 24:30, 31; 2 Thess. 2:1; 1 Thess. 4:16, 17,
 >Reference is again made to this in order that the reader may consider that “*heirship of a Kingdom*,” and “*the inheriting of a Kingdom*” embraces much more than a mere admittance into and enjoyment of the blessings of a Kingdom. It evinces the coming into *such actual possession* of a Kingdom as is alone met by the idea of *a participancy in government and of regal authority*.
 >p. 578 Vol. 2 Prop. 154 Obs. 5
 
->Thus Rev. 2:26-27 And he that overcometh and keepeth My words unto the end, *to him will I give power over the nations, and he shall rule them with a rod of iron, as the vessels of a potter shall they be broken in shivers, even as I received from My Father*.”
+>Thus Rev. 2:26-27:  "And he that overcometh and keepeth My words unto the end, *to him will I give power over the nations, and he shall rule them with a rod of iron, as the vessels of a potter shall they be broken in shivers, even as I received from My Father*.”
 >p. 578 Vol. 2 Prop. 154 Obs. 5
 
->So also the Psalmist (Ps. 140:5-9) makes “the saints joyful in glory” at the appearance of “their king” and declares:  "*Let the high praises of God be in their mouth and a two-edged sword in their hand; to execute vengeance upon the heathen, and punishments upon the people; to bind their kings with chains, and their nobles with fetters of iron; to execute upon them the judgment written:—this honor have all His saints. Praise ye the Lord*.”
+>So also the Psalmist (Ps. 149:5-9) makes “the saints joyful in glory” at the appearance of “their king” and declares:  "*Let the high praises of God be in their mouth and a two-edged sword in their hand; to execute vengeance upon the heathen, and punishments upon the people; to bind their kings with chains, and their nobles with fetters of iron; to execute upon them the judgment written:—this honor have all His saints. Praise ye the Lord*.”
 >p. 578 Vol. 2 Prop. 154 Obs. 5
 ### Judgement given to the saints
 >The wonderful Plan of God is shown in gathering out an elect body which shall, in the Coming Theocracy, be associated with the Christ in rulership *in order to promote the redemptive process of the race*, and to fill the earth with the praises and glory of the Lord. Instead of being *defeated* in His Theocratic purpose, God has been steadily making *preparation* for its sudden and overwhelming appearance.
