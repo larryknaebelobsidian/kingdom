@@ -39,7 +39,7 @@ tags:
 >The *place* where this reign is to be manifested is expressly stated: “*We shall reign on* (or as Stuart, *over*) *the earth*.” In the very nature of the case, if they inherit with David’s Son, the restored Theocratic-Davidic Kingdom, it *must be* a reign here on and over the earth.
 >p. 574 Vol. 2 Prop. 154 Obs. 3
 ### The proofs verifying the reign of the saints
-Zech. 14:5;Joel 3:11; Matt. 24:30, 31; 2 Thess. 2:1; 1 Thess. 4:16, 17, many others found in this section
+Zech. 14:5;Joel 3:11; Matt. 24:30, 31; 2 Thess. 2:1; 1 Thess. 4:16, 17; many others found in this section
 >Reference is again made to this in order that the reader may consider that “*heirship of a Kingdom*,” and “*the inheriting of a Kingdom*” embraces much more than a mere admittance into and enjoyment of the blessings of a Kingdom. It evinces the coming into *such actual possession* of a Kingdom as is alone met by the idea of *a participancy in government and of regal authority*.
 >p. 578 Vol. 2 Prop. 154 Obs. 5
 
