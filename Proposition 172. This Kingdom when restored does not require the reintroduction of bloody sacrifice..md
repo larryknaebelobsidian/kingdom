@@ -33,6 +33,21 @@ tags:
 >Obs 4. Having thus shown the conditionality of the prediction fairly expressed within itself, we may now add, that *the entire structure* of the prophecy indicates that it by no means refers to the final fulfilment of the covenant, but is also *preparative* to such a fulfilment.
 >p. 86 Vol. 3 Prop 172 Obs. 4
 
+>... it is *simply impossible*, with any degree of consistency, to apply and interpret this prophecy as relating to the promised Messiah’s reign. To do this, is *to violate* the intent of this Scripture, the sublime descriptions of the character and perfection of Christ, and to fasten upon our doctrine *an unnecessary, and unbelief producing*, interpretation.
+>p. 87 Vol. 3 Prop 172 Obs. 4
+### Theocratic in nature, not identity
+>Obs. 5. The highly significant phraseology combined with this prophecy, such as “*the name of the city from that day shall be, the Lord is there*,” etc., has led many to suppose that this alone is applicable to the era after the Second Advent when Christ shall personally come and reign, and thus “the Lord is there,” etc.
+>...
+>The fact, that similar language can be used in reference to Christ’s reign, does not prove identity, but only shows, that His rule is also Theocratic in its nature and results.
+>p. 88 Vol. 3 Prop 172 Obs. 5
+### Not proof against the Kingdom
+>Obs. 6. The conditionality of this prophecy, by no means can be adduced as proof (so Waggoner, etc.) that the Jews *will never* be restored and the Davidic kingdom *will never* be rebuilt.
+>...
+>Being strictly in the line of conditional prophecies, and delineating only *a provisional, preparatory stage* (not realized owing to sin), it does *not fall within the category of predictions relating to the fulfilment of the covenant in the person and the rule of Jesus Christ*. 
+  p. 88-89 Vol. 3 Prop 172 Obs. 6
+
+
+
 
 
 
