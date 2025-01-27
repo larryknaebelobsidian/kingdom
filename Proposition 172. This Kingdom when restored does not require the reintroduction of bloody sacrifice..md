@@ -45,9 +45,22 @@ tags:
 >...
 >Being strictly in the line of conditional prophecies, and delineating only *a provisional, preparatory stage* (not realized owing to sin), it does *not fall within the category of predictions relating to the fulfilment of the covenant in the person and the rule of Jesus Christ*. 
   p. 88-89 Vol. 3 Prop 172 Obs. 6
+### Hypocatastasis
+>... *it is sufficient* to call attention to a mode of speech introduced into the Word which solves all such difficulties. It is a figure of speech called by Lord and others “hypocatastasis” by which one thing is employed as a substitute or equivalent for another.
+>p. 89 Vol. 3 Prop 172 Obs. 7
+### Sacrifice (hypocatastasis)
+>This usage of the word, ‘sacrifice” shows that it is employed as *an equivalent* for worship or religious conduct in this dispensation, and to place the matter beyond all dispute it is expressly affirmed by Peter (1 Pet. 2:5, 9), that the design of this new order of priests, when thus gathered out and forming “a holy priesthood” “a royal priesthood,” is “*to offer up spiritual sacrifices*”and not bloody ones. This again is confirmed by what is stated in Mill, descriptions, and in promises pertaining to this future priesthood. Nowhere, including the last testimony given by Jesus (*Apoc.*), do we find these priests represented as offering to God the victims of a Mosaic ritual. Hence those isolated passages which speak of worship and sacrifice, even if they are clad in language which at first sight might suggest a return to the Mosaic ritual, are to be interpreted in the light of *the more extended* predictions, of *the changes* that are to be introduced in the coming dispensation, of *the express affirmations* concerning the future priesthood, and of *the examples* given in the usage of the word “sacrifice.” Otherwise an antagonism is raised, which is altogether unnecessary, and which leads to unfriendly doubt, and to rejection of other truths. If the ancient sacrifices were typical, if they were only “a shadow of things to come,” *then* we are fully warranted to regard such passages as presenting under a tropical sense (customary to all language) another kind of sacrifice, *suitable to the then existing dispensation*, and that *a new order* of priests, under the name of the old because a prolongation or continuation of a priesthood, are introduced as forever associated with Jesus in the age to come. Hence Heb. 9:28 will be realized.
+>p. 89-90 Vol. 3 Prop 172 Obs. 7
+### Temple (hypocatastasis)
+>Admitting that in the earthly Jerusalem a temple will be rebuilt in order to manifest in a public manner the worship of God, yet much confusion of ideas is found in not noticing that the way in which the word is employed fully shows, that it does *not necessarily involve* the notion of a restoration of sacrifices.
+>p. 90 Vol. 3 Prop 172 Obs. 8
 
+Temple of Christ's body - John 2:19
+Temple of The saints - 1 Cor. 3:16; 2 Cor. 6:16
+Temple of The Lord God Almighty and the Lamb - Rev. 21:22
 
-
+>This teaches us, that if we are not to press the word “temple” beyond its legitimate use in the Word, so also ought we not to press the word “sacrifice” which is associated with the temple. Figures of speech, lawfully drawn from the structure of language, and indicated thus by the Spirit, should have due weight in our interpretation.
+>p. 90 Vol. 3 Prop 172 Obs. 8
 
 
 
