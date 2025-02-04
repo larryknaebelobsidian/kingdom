@@ -10,4 +10,5 @@ longform:
     - Selected Quotations from The Theocratic Kingdom
     - Secomd Coming Bible Notes
     - generatedmanuscript
+    - the Second Coming Bible Notes
 ---
