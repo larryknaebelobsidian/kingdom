@@ -1,5 +1,1 @@
-
 Published on `=dateformat(date(now), "yyyy-MM-dd HH:mm")`
-
-
-![[The SECOND COMING BIBLE]]

@@ -5,6 +5,7 @@ longform:
   workflow: TheocraticKingdomWF
   sceneFolder: /
   scenes:
+    - Last Published
     - CreditPage
     - List of Propositions
     - Prop 1
