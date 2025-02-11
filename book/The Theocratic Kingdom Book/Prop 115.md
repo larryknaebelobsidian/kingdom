@@ -1,1 +1,1 @@
-![[Proposition 115. The Kingdom is not established without a period of violence or war.]]
+![Proposition 115. The Kingdom is not established without a period of violence or war.](Proposition%20115.%20The%20Kingdom%20is%20not%20established%20without%20a%20period%20of%20violence%20or%20war..md)

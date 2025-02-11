@@ -10,7 +10,7 @@ tags:
 ---
 # Proposition 152. This Kingdom is connected with the perpetuation of the human race.
 ## Props Mentioned
-[[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.|154]] [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.|156]] 
+[154](Proposition%20154.%20This%20Theocratic%20Kingdom%20includes%20the%20visible%20reign%20of%20the%20risen%20and%20glorified%20saints%20here%20on%20the%20earth..md) [156](Proposition%20156.%20The%20doctrine%20of%20the%20Kingdom%20enforces%20the%20future%20priesthood%20of%20the%20saints..md) 
 ### Perpetual, eternal continuation not denied
 >Able writers (as D. N. Lord, Rev. Newton, etc.), contend for an eternal, everlasting perpetuation of the race, perpetual and strictly never-ending, and rely exclusively upon the words rendered “eternal,” “perpetual,” “forever,” etc. The argument thus presented looks plausible and weighty; sufficiently so, that while not fully accepting of it, we at the same time do not deny it.
 >p. 538 Vol. 2 Prop. 152 Obs. 2

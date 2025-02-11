@@ -1,1 +1,1 @@
-![[Proposition 53. The genealogies of our Lord form an important link in the comprehension of this Kingdom.]]
+![Proposition 53. The genealogies of our Lord form an important link in the comprehension of this Kingdom.](Proposition%2053.%20The%20genealogies%20of%20our%20Lord%20form%20an%20important%20link%20in%20the%20comprehension%20of%20this%20Kingdom..md)

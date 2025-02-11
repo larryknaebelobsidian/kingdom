@@ -1,1 +1,1 @@
-![[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]]
+![Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.](Proposition%20191.%20Our%20doctrine%20enforced%20by%20the%20general%20tenor%20of%20the%20Apocalypse..md)

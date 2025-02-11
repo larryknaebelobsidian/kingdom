@@ -1,1 +1,1 @@
-[[Davidic Covenant]]
+[Davidic Covenant](Davidic%20Covenant.md)

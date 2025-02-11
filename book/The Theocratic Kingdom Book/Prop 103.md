@@ -1,1 +1,1 @@
-![[Proposition 103. This Kingdom is not a Kingdom in the third heaven.]]
+![Proposition 103. This Kingdom is not a Kingdom in the third heaven.](Proposition%20103.%20This%20Kingdom%20is%20not%20a%20Kingdom%20in%20the%20third%20heaven..md)

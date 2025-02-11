@@ -1,1 +1,1 @@
-![[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]]
+![Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.](Proposition%2047.%20The%20Jews%20had%20the%20strongest%20possible%20assurance%20given%20to%20them%20that%20the%20Kingdom%20based%20on%20these%20covenants%20would%20be%20realized..md)

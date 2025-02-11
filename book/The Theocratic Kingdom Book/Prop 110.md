@@ -1,1 +1,1 @@
-![[Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it.]]
+![Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it.](Proposition%20110.%20The%20passage%20most%20relied%20on%20to%20prove%20the%20Church-Kingdom%20theory%20utterly%20disproves%20it..md)

@@ -1,1 +1,1 @@
-![[Proposition 9. The nature of, and the things pertaining to the kingdom, can only be ascertained within the limits of Scripture.]]
+![Proposition 9. The nature of, and the things pertaining to the kingdom, can only be ascertained within the limits of Scripture.](Proposition%209.%20The%20nature%20of,%20and%20the%20things%20pertaining%20to%20the%20kingdom,%20can%20only%20be%20ascertained%20within%20the%20limits%20of%20Scripture..md)

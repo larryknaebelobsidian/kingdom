@@ -1,1 +1,1 @@
-![[Proposition 1. The kingdom of God is a subject of vital importance.]] 
+![Proposition 1. The kingdom of God is a subject of vital importance.](Proposition%201.%20The%20kingdom%20of%20God%20is%20a%20subject%20of%20vital%20importance..md) 

@@ -1,1 +1,1 @@
-![[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]]
+![Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”](Proposition%20133.%20This%20view%20of%20the%20Kingdom%20is%20confirmed%20by%20“the%20Day%20of%20Judgment.”.md)

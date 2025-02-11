@@ -1,1 +1,1 @@
-![[Proposition 77. The doctrine of the Kingdom, as held by the early church was finally almost exterminated under the teaching and power of the Papacy.]]
+![Proposition 77. The doctrine of the Kingdom, as held by the early church was finally almost exterminated under the teaching and power of the Papacy.](Proposition%2077.%20The%20doctrine%20of%20the%20Kingdom,%20as%20held%20by%20the%20early%20church%20was%20finally%20almost%20exterminated%20under%20the%20teaching%20and%20power%20of%20the%20Papacy..md)

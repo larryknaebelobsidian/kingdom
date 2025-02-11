@@ -1,1 +1,1 @@
-![[Proposition 76. The doctrine of the Kingdom was changed under the Gnostic and Alexandrian influence.]]
+![Proposition 76. The doctrine of the Kingdom was changed under the Gnostic and Alexandrian influence.](Proposition%2076.%20The%20doctrine%20of%20the%20Kingdom%20was%20changed%20under%20the%20Gnostic%20and%20Alexandrian%20influence..md)

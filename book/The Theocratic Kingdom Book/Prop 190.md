@@ -1,1 +1,1 @@
-![[Proposition 190. Our views sustained by the addresses to the Seven Churches.]]
+![Proposition 190. Our views sustained by the addresses to the Seven Churches.](Proposition%20190.%20Our%20views%20sustained%20by%20the%20addresses%20to%20the%20Seven%20Churches..md)

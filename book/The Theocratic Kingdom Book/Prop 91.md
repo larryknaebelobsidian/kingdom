@@ -1,1 +1,1 @@
-![[Proposition 91. The Kingdom of God is not the Jewish Church.]]
+![Proposition 91. The Kingdom of God is not the Jewish Church.](Proposition%2091.%20The%20Kingdom%20of%20God%20is%20not%20the%20Jewish%20Church..md)

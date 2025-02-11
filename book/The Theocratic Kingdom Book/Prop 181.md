@@ -1,1 +1,1 @@
-![[Proposition 181. Our doctrinal position illustrated and enforced by the Parable of the Ten Virgins.]]
+![Proposition 181. Our doctrinal position illustrated and enforced by the Parable of the Ten Virgins.](Proposition%20181.%20Our%20doctrinal%20position%20illustrated%20and%20enforced%20by%20the%20Parable%20of%20the%20Ten%20Virgins..md)

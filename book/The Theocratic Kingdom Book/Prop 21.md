@@ -1,1 +1,1 @@
-![[Proposition 21. The Prophecies of the Kingdom, interpreted literally, sustain the expectations and hopes of the pious Jews.]]
+![Proposition 21. The Prophecies of the Kingdom, interpreted literally, sustain the expectations and hopes of the pious Jews.](Proposition%2021.%20The%20Prophecies%20of%20the%20Kingdom,%20interpreted%20literally,%20sustain%20the%20expectations%20and%20hopes%20of%20the%20pious%20Jews..md)

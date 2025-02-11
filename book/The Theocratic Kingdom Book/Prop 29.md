@@ -1,1 +1,1 @@
-![[Proposition 29. This Theocracy or Kingdom is exclusively given to the natural descendants of Abraham, in their corporate capacity.]]
+![Proposition 29. This Theocracy or Kingdom is exclusively given to the natural descendants of Abraham, in their corporate capacity.](Proposition%2029.%20This%20Theocracy%20or%20Kingdom%20is%20exclusively%20given%20to%20the%20natural%20descendants%20of%20Abraham,%20in%20their%20corporate%20capacity..md)

@@ -1,1 +1,1 @@
-![[Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.]]
+![Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.](Proposition%2075.%20The%20doctrine%20of%20the%20Kingdom,%20as%20held%20by%20the%20churches%20established%20by%20the%20Apostles,%20was%20perpetuated..md)

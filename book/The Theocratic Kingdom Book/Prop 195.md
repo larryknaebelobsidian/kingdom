@@ -1,1 +1,1 @@
-![[Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds.]]
+![Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds.](Proposition%20195.%20This%20doctrine%20of%20the%20Kingdom%20may,%20analogically%20give%20in%20a%20clew%20to%20the%20Government%20of%20other%20worlds..md)

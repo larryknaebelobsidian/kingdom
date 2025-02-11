@@ -1,1 +1,1 @@
-[[Mosaic Covenant]]
+[Mosaic Covenant](Mosaic%20Covenant.md)

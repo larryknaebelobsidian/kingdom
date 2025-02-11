@@ -1,1 +1,1 @@
-![[Proposition 101. The invisible Church is not the covenanted Kingdom of Christ.]]
+![Proposition 101. The invisible Church is not the covenanted Kingdom of Christ.](Proposition%20101.%20The%20invisible%20Church%20is%20not%20the%20covenanted%20Kingdom%20of%20Christ..md)

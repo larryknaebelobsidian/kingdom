@@ -1,1 +1,1 @@
-![[Proposition 168. This Kingdom has its place of manifested royalty.]]
+![Proposition 168. This Kingdom has its place of manifested royalty.](Proposition%20168.%20This%20Kingdom%20has%20its%20place%20of%20manifested%20royalty..md)

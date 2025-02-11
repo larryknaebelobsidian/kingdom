@@ -1,1 +1,1 @@
-![[Proposition 17. Without study of the prophecies, no adequate idea can be obtained of the kingdom.]]
+![Proposition 17. Without study of the prophecies, no adequate idea can be obtained of the kingdom.](Proposition%2017.%20Without%20study%20of%20the%20prophecies,%20no%20adequate%20idea%20can%20be%20obtained%20of%20the%20kingdom..md)

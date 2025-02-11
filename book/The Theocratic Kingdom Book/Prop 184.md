@@ -1,1 +1,1 @@
-![[Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]]
+![Proposition 184. In this Kingdom will be exhibited a Manifested Unity.](Proposition%20184.%20In%20this%20Kingdom%20will%20be%20exhibited%20a%20Manifested%20Unity..md)

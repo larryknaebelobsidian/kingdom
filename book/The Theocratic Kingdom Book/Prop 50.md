@@ -1,1 +1,1 @@
-![[Proposition 50. The Kingdom will be the outgrowth of the renewed Abrahamic covenant, under which renewal we now live.]]
+![Proposition 50. The Kingdom will be the outgrowth of the renewed Abrahamic covenant, under which renewal we now live.](Proposition%2050.%20The%20Kingdom%20will%20be%20the%20outgrowth%20of%20the%20renewed%20Abrahamic%20covenant,%20under%20which%20renewal%20we%20now%20live..md)

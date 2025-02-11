@@ -1,1 +1,1 @@
-![[Proposition 194. This doctrine of the Kingdom materially aids to explain the Worlds History.]]
+![Proposition 194. This doctrine of the Kingdom materially aids to explain the Worlds History.](Proposition%20194.%20This%20doctrine%20of%20the%20Kingdom%20materially%20aids%20to%20explain%20the%20Worlds%20History..md)

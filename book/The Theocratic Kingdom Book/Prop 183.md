@@ -1,1 +1,1 @@
-![[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]]
+![Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.](Proposition%20183.%20The%20doctrine%20of%20the%20Kingdom%20and%20its%20related%20subjects%20have%20a%20direct%20practical%20tendency..md)

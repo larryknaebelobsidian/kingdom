@@ -1,1 +1,1 @@
-![[Proposition 189. It is only through this doctrine of the Kingdom that the Apocalypse can or will be understood and consistently interpreted.]]
+![Proposition 189. It is only through this doctrine of the Kingdom that the Apocalypse can or will be understood and consistently interpreted.](Proposition%20189.%20It%20is%20only%20through%20this%20doctrine%20of%20the%20Kingdom%20that%20the%20Apocalypse%20can%20or%20will%20be%20understood%20and%20consistently%20interpreted..md)

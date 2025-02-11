@@ -1,1 +1,1 @@
-![[Proposition 41. The Kingdom was not established under John’s ministry.]]
+![Proposition 41. The Kingdom was not established under John’s ministry.](Proposition%2041.%20The%20Kingdom%20was%20not%20established%20under%20John’s%20ministry..md)

@@ -1,1 +1,1 @@
-![[Proposition 37. The Kingdom, thus predicted and promised, was not in existence when the Forerunner of Jesus appeared.]]
+![Proposition 37. The Kingdom, thus predicted and promised, was not in existence when the Forerunner of Jesus appeared.](Proposition%2037.%20The%20Kingdom,%20thus%20predicted%20and%20promised,%20was%20not%20in%20existence%20when%20the%20Forerunner%20of%20Jesus%20appeared..md)

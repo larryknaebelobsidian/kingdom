@@ -1,1 +1,1 @@
-![[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]]
+![Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.](Proposition%20136.%20The%20doctrine%20of%20the%20Kingdom%20in%20agreement%20with%20the%20doctrine%20of%20the%20intermediate%20state..md)

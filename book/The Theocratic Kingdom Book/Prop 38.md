@@ -1,1 +1,1 @@
-![[Proposition 38. John the Baptist preached that this Kingdom, predicted by the Prophets, was “nigh at hand”]]
+![Proposition 38. John the Baptist preached that this Kingdom, predicted by the Prophets, was “nigh at hand”](Proposition%2038.%20John%20the%20Baptist%20preached%20that%20this%20Kingdom,%20predicted%20by%20the%20Prophets,%20was%20“nigh%20at%20hand”.md)

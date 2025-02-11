@@ -1,1 +1,1 @@
-![[Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”]]
+![Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”](Proposition%20140.%20This%20doctrine%20of%20the%20Kingdom%20confirmed%20by%20the%20phraseology%20of%20the%20New%20Testament%20respecting%20“the%20end%20of%20the%20age.”.md)

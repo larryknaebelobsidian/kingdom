@@ -1,1 +1,1 @@
-![[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]]
+![Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.](Proposition%20127.%20In%20support%20of%20our%20view,%20the%20Apocalypse%20unmistakably%20teaches%20a%20Pre-Millennial%20resurrection%20of%20the%20saints..md)

@@ -1,1 +1,1 @@
-![[Proposition 12. There is some mystery yet connected with the things of the kingdom.]]
+![Proposition 12. There is some mystery yet connected with the things of the kingdom.](Proposition%2012.%20There%20is%20some%20mystery%20yet%20connected%20with%20the%20things%20of%20the%20kingdom..md)

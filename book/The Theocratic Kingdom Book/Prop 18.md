@@ -1,1 +1,1 @@
-![[Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned.]]
+![Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned.](Proposition%2018.%20The%20prophecies%20relating%20to%20the%20establishment%20of%20the%20Kingdom%20of%20God%20are%20both%20conditioned%20and%20unconditioned..md)

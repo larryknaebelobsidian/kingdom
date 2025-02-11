@@ -1,1 +1,1 @@
-![[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]]
+![Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.](Proposition%2094.%20The%20overlooking%20of%20the%20postponement%20of%20this%20Kingdom%20is%20a%20fundamental%20mistake,%20and%20a%20fruitful%20source%20of%20error%20in%20many%20systems%20of%20Theology..md)

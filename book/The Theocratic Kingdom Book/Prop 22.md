@@ -1,1 +1,1 @@
-![[Proposition 22. John the Baptist, Jesus, and the disciples, employed the phrases “Kingdom of heaven,” “Kingdom of God,” etc., in accordance with the usage of the Jews.]]
+![Proposition 22. John the Baptist, Jesus, and the disciples, employed the phrases “Kingdom of heaven,” “Kingdom of God,” etc., in accordance with the usage of the Jews.](Proposition%2022.%20John%20the%20Baptist,%20Jesus,%20and%20the%20disciples,%20employed%20the%20phrases%20“Kingdom%20of%20heaven,”%20“Kingdom%20of%20God,”%20etc.,%20in%20accordance%20with%20the%20usage%20of%20the%20Jews..md)

@@ -1,1 +1,1 @@
-![[Proposition 87. The postponement of the Kingdom is the key to the understanding of the meaning of this dispensation.]]
+![Proposition 87. The postponement of the Kingdom is the key to the understanding of the meaning of this dispensation.](Proposition%2087.%20The%20postponement%20of%20the%20Kingdom%20is%20the%20key%20to%20the%20understanding%20of%20the%20meaning%20of%20this%20dispensation..md)

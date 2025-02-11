@@ -1,1 +1,1 @@
-![[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]]
+![Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.](Proposition%20104.%20The%20Christian%20Church%20is%20not%20denoted%20by%20the%20predicted%20Kingdom%20of%20the%20Prophets..md)

@@ -1,1 +1,1 @@
-![[Proposition 188. This doctrine indicates the unity of the Epistles.]]
+![Proposition 188. This doctrine indicates the unity of the Epistles.](Proposition%20188.%20This%20doctrine%20indicates%20the%20unity%20of%20the%20Epistles..md)

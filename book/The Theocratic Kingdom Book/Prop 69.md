@@ -1,1 +1,1 @@
-![[Proposition 69. The death of Jesus did not remove the notion entertained by the disciples and apostles concerning the Kingdom.]]
+![Proposition 69. The death of Jesus did not remove the notion entertained by the disciples and apostles concerning the Kingdom.](Proposition%2069.%20The%20death%20of%20Jesus%20did%20not%20remove%20the%20notion%20entertained%20by%20the%20disciples%20and%20apostles%20concerning%20the%20Kingdom..md)

@@ -1,1 +1,1 @@
-![[Proposition 167. The re-establishment of this Kingdom embraces also the reception of a New Revelation of the Divine Will.]]
+![Proposition 167. The re-establishment of this Kingdom embraces also the reception of a New Revelation of the Divine Will.](Proposition%20167.%20The%20re-establishment%20of%20this%20Kingdom%20embraces%20also%20the%20reception%20of%20a%20New%20Revelation%20of%20the%20Divine%20Will..md)

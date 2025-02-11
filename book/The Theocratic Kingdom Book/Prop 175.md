@@ -1,1 +1,1 @@
-![[Proposition 175. The doctrine of the Kingdom is greatly obscured and perverted by the prevailing one of the conversion of the world prior to the Advent of Jesus.]]
+![Proposition 175. The doctrine of the Kingdom is greatly obscured and perverted by the prevailing one of the conversion of the world prior to the Advent of Jesus.](Proposition%20175.%20The%20doctrine%20of%20the%20Kingdom%20is%20greatly%20obscured%20and%20perverted%20by%20the%20prevailing%20one%20of%20the%20conversion%20of%20the%20world%20prior%20to%20the%20Advent%20of%20Jesus..md)

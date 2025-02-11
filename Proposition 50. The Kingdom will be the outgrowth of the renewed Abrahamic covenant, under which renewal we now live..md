@@ -10,7 +10,7 @@ tags:
 ---
 # Proposition 50. The Kingdom will be the outgrowth of the renewed Abrahamic covenant, under which renewal we now live.
 
-[[Abrahamic Covenant]]
+[Abrahamic Covenant](Abrahamic%20Covenant.md)
 
 There are 24 observations in this proposition.
 ### The New Covenant is the renewed Abrahamic covenant 

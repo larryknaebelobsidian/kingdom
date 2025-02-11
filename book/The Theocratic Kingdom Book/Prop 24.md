@@ -1,1 +1,1 @@
-![[Proposition 24. The Kingdom is offered to an elect nation, viz. the Jewish nation.]]
+![Proposition 24. The Kingdom is offered to an elect nation, viz. the Jewish nation.](Proposition%2024.%20The%20Kingdom%20is%20offered%20to%20an%20elect%20nation,%20viz.%20the%20Jewish%20nation..md)

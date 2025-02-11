@@ -1,1 +1,1 @@
-![[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]]
+![Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”](Proposition%20205.%20The%20doctrine%20of%20the%20Kingdom%20materially%20aids%20us%20in%20preaching%20“the%20Christ”—%20the%20distinctive%20“Messiah.”.md)

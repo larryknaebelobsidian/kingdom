@@ -1,1 +1,1 @@
-![[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]]
+![Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.](Proposition%20199.%20This%20doctrine%20of%20the%20Kingdom%20materially%20aids%20in%20deciding%20the%20great%20Christological%20question%20of%20the%20day..md)

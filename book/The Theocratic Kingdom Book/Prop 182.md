@@ -1,1 +1,1 @@
-![[Proposition 182. This Kingdom embraces the “One Hope”]]
+![Proposition 182. This Kingdom embraces the “One Hope”](Proposition%20182.%20This%20Kingdom%20embraces%20the%20“One%20Hope”.md)

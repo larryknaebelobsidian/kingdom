@@ -1,1 +1,1 @@
-![[Proposition 23. There must be some substantial reason why the phrases “Kingdom of God,” etc., were thus adopted.]]
+![Proposition 23. There must be some substantial reason why the phrases “Kingdom of God,” etc., were thus adopted.](Proposition%2023.%20There%20must%20be%20some%20substantial%20reason%20why%20the%20phrases%20“Kingdom%20of%20God,”%20etc.,%20were%20thus%20adopted..md)

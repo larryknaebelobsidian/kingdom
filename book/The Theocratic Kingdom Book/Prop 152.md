@@ -1,1 +1,1 @@
-![[Proposition 152. This Kingdom is connected with the perpetuation of the human race.]]
+![Proposition 152. This Kingdom is connected with the perpetuation of the human race.](Proposition%20152.%20This%20Kingdom%20is%20connected%20with%20the%20perpetuation%20of%20the%20human%20race..md)

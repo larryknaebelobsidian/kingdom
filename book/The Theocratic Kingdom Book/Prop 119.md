@@ -1,1 +1,1 @@
-![[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]]
+![Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.](Proposition%20119.%20The%20Kingdom%20of%20God%20in%20the%20Millennial%20descriptions%20is%20represented%20as%20restoring%20all%20the%20forfeited%20blessings..md)

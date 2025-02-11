@@ -1,1 +1,1 @@
-![[Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ.]]
+![Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ.](Proposition%20121.%20This%20Kingdom,%20of%20necessity,%20requires%20a%20Pre-Millennial%20Personal%20Advent%20of%20Jesus%20Christ..md)

@@ -1,1 +1,1 @@
-![[Proposition 27. The demand of the nation for an earthly king was a virtual abandonment of this Theocratic Kingdom by the nation.]]
+![Proposition 27. The demand of the nation for an earthly king was a virtual abandonment of this Theocratic Kingdom by the nation.](Proposition%2027.%20The%20demand%20of%20the%20nation%20for%20an%20earthly%20king%20was%20a%20virtual%20abandonment%20of%20this%20Theocratic%20Kingdom%20by%20the%20nation..md)

@@ -1,1 +1,1 @@
-![[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]]
+![Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.](Proposition%2072.%20The%20doctrine%20of%20the%20Kingdom,%20as%20preached%20by%20the%20apostles,%20was%20received%20by%20the%20early%20churches..md)

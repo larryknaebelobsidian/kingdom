@@ -1,1 +1,1 @@
-![[Proposition 39. John the Baptist was not ignorant of the Kingdom that he preached.]]
+![Proposition 39. John the Baptist was not ignorant of the Kingdom that he preached.](Proposition%2039.%20John%20the%20Baptist%20was%20not%20ignorant%20of%20the%20Kingdom%20that%20he%20preached..md)

@@ -1,1 +1,1 @@
-![[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]]
+![Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.](Proposition%20125.%20The%20Kingdom%20to%20be%20inherited%20by%20these%20gathered%20saints%20requires%20their%20resurrection%20from%20among%20the%20dead..md)

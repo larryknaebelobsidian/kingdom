@@ -1,7 +1,7 @@
 ---
 ---
-[[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”|Prop 205]]
-[[Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.|Prop 206]]
+[Prop 205](Proposition%20205.%20The%20doctrine%20of%20the%20Kingdom%20materially%20aids%20us%20in%20preaching%20“the%20Christ”—%20the%20distinctive%20“Messiah.”.md)
+[Prop 206](Proposition%20206.%20This%20earth%20will%20yet%20witness%20the%20re-establishment%20of%20a%20glorious%20Theocracy—a%20Theocracy%20in%20its%20perfected%20form..md)
 
 
 ## Nations
@@ -29,7 +29,7 @@ Is Peters' "translation" the same as the rapture?
 
 Is there more than one rapture per Peters ("translation" of living saints - this is the word used by Peters)? If so, how many?
 
-Who gets translated and when? (this seems to be related to rewards ([[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers,.|Prop. 135]]) for the faithful) 
+Who gets translated and when? (this seems to be related to rewards ([Prop. 135](Proposition%20135.%20The%20doctrine%20of%20the%20Kingdom%20in%20full%20accord%20with%20the%20Scriptural%20doctrine%20of%20the%20judgment%20of%20believers,..md)) for the faithful) 
 ## Conflagration
 Prop. 149 - Peters says the conflagration comes BEFORE the millennium.  How does this agree with Revelation 21 (AFTER) Revelation 20? Peters' conflagration is a renewing of the heavens and earth, not a total vaporization of them.  Precisely how some humans/animals survive is not known.
 

@@ -1,1 +1,1 @@
-![[Proposition 162. This Kingdom will be preceded by a fearful time of trouble both in the Church and the World.]]
+![Proposition 162. This Kingdom will be preceded by a fearful time of trouble both in the Church and the World.](Proposition%20162.%20This%20Kingdom%20will%20be%20preceded%20by%20a%20fearful%20time%20of%20trouble%20both%20in%20the%20Church%20and%20the%20World..md)

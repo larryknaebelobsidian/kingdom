@@ -1,1 +1,1 @@
-![[Proposition 48. The Kingdom being based on the covenants, the covenants must be carefully examined, and (Prop. 4) the literal language of the same must be maintained.]]
+![Proposition 48. The Kingdom being based on the covenants, the covenants must be carefully examined, and (Prop. 4) the literal language of the same must be maintained.](Proposition%2048.%20The%20Kingdom%20being%20based%20on%20the%20covenants,%20the%20covenants%20must%20be%20carefully%20examined,%20and%20(Prop.%204)%20the%20literal%20language%20of%20the%20same%20must%20be%20maintained..md)

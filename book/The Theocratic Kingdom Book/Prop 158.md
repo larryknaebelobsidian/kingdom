@@ -1,1 +1,1 @@
-![[Proposition 158. The doctrine of the Kingdom aids in locating the Millennial period.]]
+![Proposition 158. The doctrine of the Kingdom aids in locating the Millennial period.](Proposition%20158.%20The%20doctrine%20of%20the%20Kingdom%20aids%20in%20locating%20the%20Millennial%20period..md)

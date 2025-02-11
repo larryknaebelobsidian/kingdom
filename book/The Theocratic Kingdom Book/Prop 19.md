@@ -1,1 +1,1 @@
-![[Proposition 19. The New Testament begins the announcement of the kingdom in terms expressive of its being previously well known.]]
+![Proposition 19. The New Testament begins the announcement of the kingdom in terms expressive of its being previously well known.](Proposition%2019.%20The%20New%20Testament%20begins%20the%20announcement%20of%20the%20kingdom%20in%20terms%20expressive%20of%20its%20being%20previously%20well%20known..md)

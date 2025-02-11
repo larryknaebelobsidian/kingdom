@@ -1,1 +1,1 @@
-![[Proposition 120. This Kingdom with its Millennial blessings can only be introduced through the power of God in Christ Jesus.]]
+![Proposition 120. This Kingdom with its Millennial blessings can only be introduced through the power of God in Christ Jesus.](Proposition%20120.%20This%20Kingdom%20with%20its%20Millennial%20blessings%20can%20only%20be%20introduced%20through%20the%20power%20of%20God%20in%20Christ%20Jesus..md)

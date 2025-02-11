@@ -10,7 +10,7 @@ tags:
 ---
 # Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.
 
-Proposition 94. The overlooking of the [[postponement]] of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.
+Proposition 94. The overlooking of the [postponement](postponement) of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.
 
 ### Spiritualizing and mystical influence
 >Obs. 1. This doctrine, noticed by, and influencing the faith and hope of the Primitive Church, is now, under spiritualizing and mystical ascendency, passed by ...

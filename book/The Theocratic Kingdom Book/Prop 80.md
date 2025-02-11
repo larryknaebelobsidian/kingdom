@@ -1,1 +1,1 @@
-![[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]]
+![Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.](Proposition%2080.%20This%20Kingdom%20of%20covenant%20promise%20and%20prediction,%20is%20to%20be%20distinguished%20from%20the%20Sovereignty%20which%20Jesus%20exercises%20by%20virtue%20of%20His%20Divine%20nature..md)

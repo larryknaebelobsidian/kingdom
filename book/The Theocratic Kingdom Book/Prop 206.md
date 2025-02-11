@@ -1,1 +1,1 @@
-![[Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.]]
+![Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.](Proposition%20206.%20This%20earth%20will%20yet%20witness%20the%20re-establishment%20of%20a%20glorious%20Theocracy—a%20Theocracy%20in%20its%20perfected%20form..md)

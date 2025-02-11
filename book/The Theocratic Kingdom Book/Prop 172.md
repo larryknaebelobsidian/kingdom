@@ -1,1 +1,1 @@
-![[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]]
+![Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.](Proposition%20172.%20This%20Kingdom%20when%20restored%20does%20not%20require%20the%20reintroduction%20of%20bloody%20sacrifice..md)

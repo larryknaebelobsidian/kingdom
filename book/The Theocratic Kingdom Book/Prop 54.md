@@ -1,1 +1,1 @@
-![[Proposition 54. The preaching of the Kingdom by John, Jesus, and the disciples, was confined to the Jewish nation.]]
+![Proposition 54. The preaching of the Kingdom by John, Jesus, and the disciples, was confined to the Jewish nation.](Proposition%2054.%20The%20preaching%20of%20the%20Kingdom%20by%20John,%20Jesus,%20and%20the%20disciples,%20was%20confined%20to%20the%20Jewish%20nation..md)

@@ -1,1 +1,1 @@
-![[Proposition 81. This Kingdom, thus covenanted, belongs to Jesus as “the Son of Man.”]]
+![Proposition 81. This Kingdom, thus covenanted, belongs to Jesus as “the Son of Man.”](Proposition%2081.%20This%20Kingdom,%20thus%20covenanted,%20belongs%20to%20Jesus%20as%20“the%20Son%20of%20Man.”.md)

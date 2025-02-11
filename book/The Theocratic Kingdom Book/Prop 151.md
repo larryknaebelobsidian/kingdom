@@ -1,1 +1,1 @@
-![[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]]
+![Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.](Proposition%20151.%20This%20Kingdom%20is%20identified%20with,%20“the%20new%20heavens%20and%20new%20earth,”%20of%20Isa.%2065%2017%20and%2066%2022,%20of%202%20Pet.%203%2013,%20and%20of%20Rev.%2021%201..md)

@@ -1,1 +1,1 @@
-![[Proposition 3. The meanings usually given to this kingdom indicate that the most vague, indefinite notions exist concerning it.]] 
+![Proposition 3. The meanings usually given to this kingdom indicate that the most vague, indefinite notions exist concerning it.](Proposition%203.%20The%20meanings%20usually%20given%20to%20this%20kingdom%20indicate%20that%20the%20most%20vague,%20indefinite%20notions%20exist%20concerning%20it..md) 

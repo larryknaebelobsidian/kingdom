@@ -1,1 +1,1 @@
-![[Proposition 31. This Theocracy or Kingdom was identified with the Davidic Kingdom.]]
+![Proposition 31. This Theocracy or Kingdom was identified with the Davidic Kingdom.](Proposition%2031.%20This%20Theocracy%20or%20Kingdom%20was%20identified%20with%20the%20Davidic%20Kingdom..md)

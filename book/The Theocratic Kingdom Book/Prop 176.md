@@ -1,1 +1,1 @@
-![[Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order.]]
+![Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order.](Proposition%20176.%20Our%20doctrine%20of%20the%20Kingdom%20embraces%20the%20conversion%20of%20the%20world,%20but%20in%20the%20Scriptural%20order..md)

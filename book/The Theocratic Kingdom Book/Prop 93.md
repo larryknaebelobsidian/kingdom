@@ -1,1 +1,1 @@
-![[Proposition 93. The Covenanted Kingdom is not the Christian Church.]]
+![Proposition 93. The Covenanted Kingdom is not the Christian Church.](Proposition%2093.%20The%20Covenanted%20Kingdom%20is%20not%20the%20Christian%20Church..md)

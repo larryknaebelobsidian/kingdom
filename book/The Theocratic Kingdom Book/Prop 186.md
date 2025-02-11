@@ -1,1 +1,1 @@
-![[Proposition 186. This doctrine of the Kingdom sustained by the Analogy of Scripture, the Analogy of Faith, and the Analogy of Tradition.]]
+![Proposition 186. This doctrine of the Kingdom sustained by the Analogy of Scripture, the Analogy of Faith, and the Analogy of Tradition.](Proposition%20186.%20This%20doctrine%20of%20the%20Kingdom%20sustained%20by%20the%20Analogy%20of%20Scripture,%20the%20Analogy%20of%20Faith,%20and%20the%20Analogy%20of%20Tradition..md)

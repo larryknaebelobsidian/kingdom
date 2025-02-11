@@ -1,1 +1,1 @@
-![[Proposition 202. If the Kingdom of the Son of Man, as covenanted, is not established, then the earth will lack in its history the exhibition of a perfect government.]]
+![Proposition 202. If the Kingdom of the Son of Man, as covenanted, is not established, then the earth will lack in its history the exhibition of a perfect government.](Proposition%20202.%20If%20the%20Kingdom%20of%20the%20Son%20of%20Man,%20as%20covenanted,%20is%20not%20established,%20then%20the%20earth%20will%20lack%20in%20its%20history%20the%20exhibition%20of%20a%20perfect%20government..md)

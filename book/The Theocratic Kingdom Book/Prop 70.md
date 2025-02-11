@@ -1,1 +1,1 @@
-![[Proposition 70. The apostles, after Christ’s ascension, did not preach, either to Jews or Gentiles, that the Kingdom was established.]]
+![Proposition 70. The apostles, after Christ’s ascension, did not preach, either to Jews or Gentiles, that the Kingdom was established.](Proposition%2070.%20The%20apostles,%20after%20Christ’s%20ascension,%20did%20not%20preach,%20either%20to%20Jews%20or%20Gentiles,%20that%20the%20Kingdom%20was%20established..md)

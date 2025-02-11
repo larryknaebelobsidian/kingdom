@@ -1,1 +1,1 @@
-![[Proposition 102. Neither the visible nor the invisible church is the covenanted Kingdom.]]
+![Proposition 102. Neither the visible nor the invisible church is the covenanted Kingdom.](Proposition%20102.%20Neither%20the%20visible%20nor%20the%20invisible%20church%20is%20the%20covenanted%20Kingdom..md)

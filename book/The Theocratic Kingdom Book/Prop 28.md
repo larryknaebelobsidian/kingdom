@@ -1,1 +1,1 @@
-![[Proposition 28. God makes the Jewish King subordinate to His own Theocracy.]]
+![Proposition 28. God makes the Jewish King subordinate to His own Theocracy.](Proposition%2028.%20God%20makes%20the%20Jewish%20King%20subordinate%20to%20His%20own%20Theocracy..md)

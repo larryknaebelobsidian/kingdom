@@ -1,1 +1,1 @@
-![[Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.]]
+![Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.](Proposition%20160.%20This%20Kingdom%20is%20set%20up%20in%20the%20divided%20state%20of%20the%20Roman%20Empire..md)

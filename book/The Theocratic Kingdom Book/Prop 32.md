@@ -1,1 +1,1 @@
-![[Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown.]]
+![Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown.](Proposition%2032.%20This%20Theocratic%20Kingdom,%20thus%20incorporated%20with%20the%20Davidic,%20is%20removed%20when%20the%20Davidic%20Kingdom%20is%20overthrown..md)

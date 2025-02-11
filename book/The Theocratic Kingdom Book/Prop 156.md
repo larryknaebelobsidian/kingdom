@@ -1,1 +1,1 @@
-![[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.]]
+![Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.](Proposition%20156.%20The%20doctrine%20of%20the%20Kingdom%20enforces%20the%20future%20priesthood%20of%20the%20saints..md)

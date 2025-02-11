@@ -1,1 +1,1 @@
-![[Credits]]
+![Credits](Credits.md)

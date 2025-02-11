@@ -1,1 +1,1 @@
-![[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]]
+![Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.](Proposition%20198.%20This%20doctrine%20of%20the%20Kingdom%20confirms%20the%20credibility%20and%20inspiration%20of%20the%20Word%20of%20God..md)

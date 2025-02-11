@@ -1,1 +1,1 @@
-![[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]]
+![Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”](Proposition%20139.%20The%20Theocratic-Davidic%20Kingdom,%20as%20covenanted,%20is%20sustained%20by%20what%20is%20to%20take%20place%20in%20“the%20morning”%20of%20“the%20day%20of%20Christ.”.md)

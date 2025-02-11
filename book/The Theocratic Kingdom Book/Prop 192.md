@@ -1,1 +1,1 @@
-![[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]]
+![Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.](Proposition%20192.%20This%20doctrine%20of%20the%20Kingdom%20greatly%20serves%20to%20explain%20Scripture..md)

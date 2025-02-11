@@ -1,1 +1,1 @@
-![[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]]
+![Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.](Proposition%20150.%20The%20establishment%20of%20this%20Kingdom%20is%20not%20affected%20by%20the%20extent%20of%20Peter’s%20conflagration..md)

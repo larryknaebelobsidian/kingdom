@@ -1,1 +1,1 @@
-![[Proposition 35. The Prophets describe but one Kingdom.]]
+![Proposition 35. The Prophets describe but one Kingdom.](Proposition%2035.%20The%20Prophets%20describe%20but%20one%20Kingdom..md)

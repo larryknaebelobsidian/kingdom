@@ -1,1 +1,1 @@
-![[Proposition 98. That the church is not the Kingdom promised to David’s Son was the belief of the early church.]]
+![Proposition 98. That the church is not the Kingdom promised to David’s Son was the belief of the early church.](Proposition%2098.%20That%20the%20church%20is%20not%20the%20Kingdom%20promised%20to%20David’s%20Son%20was%20the%20belief%20of%20the%20early%20church..md)

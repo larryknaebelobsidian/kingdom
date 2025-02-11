@@ -63,7 +63,7 @@ Observation 3 (p. 114-160) discusses 38 signs.
 
 Observation 4 (p. 160-165)
 
-1. Translation of the living saints and resurrection (secret) [[Proposition 130. The Kingdom is preceded by a translation of the living saints.|Prop 130]] 
+1. Translation of the living saints and resurrection (secret) [Prop 130](Proposition%20130.%20The%20Kingdom%20is%20preceded%20by%20a%20translation%20of%20the%20living%20saints..md) 
 2. Denial of Christ's Advent ("where is the promise of His coming")
 3. Specific preaching over the whole earth. Fear God and give Him glory, and worship Him (Rev. 14) - for the unsaved and the saved that are left
 4. Increase of corruption. Moral signs more sharply defined and intensified

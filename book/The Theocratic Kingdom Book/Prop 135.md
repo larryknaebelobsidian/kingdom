@@ -1,1 +1,1 @@
-![[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers,.]]
+![Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers,.](Proposition%20135.%20The%20doctrine%20of%20the%20Kingdom%20in%20full%20accord%20with%20the%20Scriptural%20doctrine%20of%20the%20judgment%20of%20believers,..md)

@@ -1,1 +1,1 @@
-![[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]]
+![Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.](Proposition%20128.%20The%20language%20of%20the%20Gospels%20and%20Epistles%20is%20in%20strict%20accord%20with%20the%20requirements%20of%20a%20Pre-Millennial%20resurrection..md)

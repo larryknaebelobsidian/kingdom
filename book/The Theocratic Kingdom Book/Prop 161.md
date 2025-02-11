@@ -1,1 +1,1 @@
-![[Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown.]]
+![Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown.](Proposition%20161.%20This%20Kingdom%20will%20not%20be%20re-established%20until%20after%20Antichrist%20is%20overthrown..md)

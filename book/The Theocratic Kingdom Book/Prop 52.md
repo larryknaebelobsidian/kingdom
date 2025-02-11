@@ -1,1 +1,1 @@
-![[Proposition 52. The promises pertaining to the Kingdom, as given in the covenants, will be strictly fulfilled.]]
+![Proposition 52. The promises pertaining to the Kingdom, as given in the covenants, will be strictly fulfilled.](Proposition%2052.%20The%20promises%20pertaining%20to%20the%20Kingdom,%20as%20given%20in%20the%20covenants,%20will%20be%20strictly%20fulfilled..md)

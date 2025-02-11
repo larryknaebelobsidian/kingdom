@@ -1,1 +1,1 @@
-![[Proposition 84. As this Kingdom is specially given to the Son of Man as the result of his obedience, sufferings, and death, it must be something different]]
+![Proposition 84. As this Kingdom is specially given to the Son of Man as the result of his obedience, sufferings, and death, it must be something different](Proposition%2084.%20As%20this%20Kingdom%20is%20specially%20given%20to%20the%20Son%20of%20Man%20as%20the%20result%20of%20his%20obedience,%20sufferings,%20and%20death,%20it%20must%20be%20something%20different.md)

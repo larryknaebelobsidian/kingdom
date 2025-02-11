@@ -1,1 +1,1 @@
-![[Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.]]
+![Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.](Proposition%20173.%20This%20Kingdom%20of%20the%20Lord%20Jesus%20Christ%20may%20be%20near%20at%20hand..md)

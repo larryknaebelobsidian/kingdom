@@ -1,1 +1,1 @@
-![[Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration.]]
+![Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration.](Proposition%2033.%20The%20Prophets,%20some%20even%20before%20the%20Captivity,%20foreseeing%20the%20overthrow%20of%20the%20Kingdom,%20both%20foretell%20its%20downfall%20and%20its%20final%20restoration..md)

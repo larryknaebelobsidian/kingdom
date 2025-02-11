@@ -1,1 +1,1 @@
-![[Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth.]]
+![Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth.](Proposition%20131.%20This%20Kingdom%20embraces%20the%20visible%20reign%20of%20Jesus,%20the%20Christ,%20here%20on%20earth..md)

@@ -1,1 +1,1 @@
-![[Proposition 78. The early church doctrine was revived after the Reformation.]]
+![Proposition 78. The early church doctrine was revived after the Reformation.](Proposition%2078.%20The%20early%20church%20doctrine%20was%20revived%20after%20the%20Reformation..md)

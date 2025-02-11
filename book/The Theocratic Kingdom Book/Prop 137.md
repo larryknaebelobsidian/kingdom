@@ -1,1 +1,1 @@
-![[Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”]]
+![Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”](Proposition%20137.%20This%20doctrine%20of%20the%20Kingdom%20sustained%20by%20the%20phrase%20“the%20world%20to%20come.”.md)

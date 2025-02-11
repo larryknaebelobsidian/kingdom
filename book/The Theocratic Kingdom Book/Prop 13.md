@@ -1,1 +1,1 @@
-![[Proposition 13. Some things pertaining to the kingdom intentionally revealed somewhat obscurely.]]
+![Proposition 13. Some things pertaining to the kingdom intentionally revealed somewhat obscurely.](Proposition%2013.%20Some%20things%20pertaining%20to%20the%20kingdom%20intentionally%20revealed%20somewhat%20obscurely..md)

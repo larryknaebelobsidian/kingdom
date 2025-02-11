@@ -1,1 +1,1 @@
-![[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]]
+![Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.](Proposition%2065.%20Before%20this%20Kingdom%20can%20be%20given%20to%20this%20elect%20people,%20they%20must%20first%20be%20gathered%20out..md)

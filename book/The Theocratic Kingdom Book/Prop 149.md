@@ -1,1 +1,1 @@
-![[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]]
+![Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.](Proposition%20149.%20This%20Kingdom%20is%20preceded%20by%20the%20conflagration%20of%202%20Pet%203%2010-13..md)

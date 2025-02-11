@@ -1,1 +1,1 @@
-![[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]]
+![Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.](Proposition%20171.%20This%20Kingdom%20is%20connected%20with%20the%20Baptism%20of%20the%20Holy%20Ghost%20and%20of%20Fire..md)

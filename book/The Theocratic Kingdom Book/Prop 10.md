@@ -1,1 +1,1 @@
-![[Proposition 10. This kingdom should be studied in the light of the Holy Scriptures, and not merely in that of creeds, confessions, formulas of doctrine, etc.]] 
+![Proposition 10. This kingdom should be studied in the light of the Holy Scriptures, and not merely in that of creeds, confessions, formulas of doctrine, etc.](Proposition%2010.%20This%20kingdom%20should%20be%20studied%20in%20the%20light%20of%20the%20Holy%20Scriptures,%20and%20not%20merely%20in%20that%20of%20creeds,%20confessions,%20formulas%20of%20doctrine,%20etc..md) 

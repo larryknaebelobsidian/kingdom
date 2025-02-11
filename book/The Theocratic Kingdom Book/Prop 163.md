@@ -1,1 +1,1 @@
-![[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]]
+![Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”](Proposition%20163.%20This%20Kingdom%20will%20be%20preceded%20by%20the%20predicted%20“battle%20of%20that%20great%20day%20of%20God%20Almighty.”.md)

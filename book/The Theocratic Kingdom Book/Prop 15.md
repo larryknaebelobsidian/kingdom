@@ -1,1 +1,1 @@
-![[Proposition 15. The doctrine of the kingdom can become better understood and appreciated.]]
+![Proposition 15. The doctrine of the kingdom can become better understood and appreciated.](Proposition%2015.%20The%20doctrine%20of%20the%20kingdom%20can%20become%20better%20understood%20and%20appreciated..md)

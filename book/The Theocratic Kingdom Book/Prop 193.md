@@ -1,1 +1,1 @@
-![[Proposition 193. This doctrine of the Kingdom meets, and, consistently removes, the objections brought against Christianity by the Jews.]]
+![Proposition 193. This doctrine of the Kingdom meets, and, consistently removes, the objections brought against Christianity by the Jews.](Proposition%20193.%20This%20doctrine%20of%20the%20Kingdom%20meets,%20and,%20consistently%20removes,%20the%20objections%20brought%20against%20Christianity%20by%20the%20Jews..md)

@@ -1,1 +1,1 @@
-![[Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation.]]
+![Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation.](Proposition%2062.%20This%20people,%20to%20whom%20the%20Kingdom%20is%20to%20be%20given,%20gathered%20out%20of%20the%20nations,%20becomes%20the%20elect%20nation..md)

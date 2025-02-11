@@ -1,1 +1,1 @@
-![[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]]
+![Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.](Proposition%2036.%20The%20Prophets,%20with%20one%20voice,%20describe%20this%20one%20Kingdom,%20thus%20restored%20in%20terms%20expressive%20of%20the%20most%20glorious%20additions..md)

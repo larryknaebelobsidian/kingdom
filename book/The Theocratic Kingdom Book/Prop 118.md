@@ -1,1 +1,1 @@
-![[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]]
+![Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.](Proposition%20118.%20This%20view%20of%20the%20Kingdom%20is%20most%20forcibly%20sustained%20by%20the%20figure%20of%20the%20Barren%20Woman..md)

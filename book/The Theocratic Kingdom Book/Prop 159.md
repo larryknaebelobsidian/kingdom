@@ -1,1 +1,1 @@
-![[Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end.]]
+![Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end.](Proposition%20159.%20This%20Theocratic%20Kingdom%20of%20the%20Lord%20Jesus,%20the%20Christ,%20will%20never%20come%20to%20an%20end..md)

@@ -1,1 +1,1 @@
-![[Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]]
+![Proposition 68. This Kingdom is then essentially a Jewish Kingdom.](Proposition%2068.%20This%20Kingdom%20is%20then%20essentially%20a%20Jewish%20Kingdom..md)

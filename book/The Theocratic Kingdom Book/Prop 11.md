@@ -1,1 +1,1 @@
-![[Proposition 11. The mysteries of the kingdom were given to the apostles.]]
+![Proposition 11. The mysteries of the kingdom were given to the apostles.](Proposition%2011.%20The%20mysteries%20of%20the%20kingdom%20were%20given%20to%20the%20apostles..md)

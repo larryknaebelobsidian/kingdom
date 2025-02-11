@@ -1,1 +1,1 @@
-![[Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.]]
+![Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.](Proposition%20124.%20This%20Kingdom%20is%20delayed%20several%20thousand%20years,%20to%20raise%20up%20a%20nation%20or%20people%20capable%20of%20sustaining%20it..md)

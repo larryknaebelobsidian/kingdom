@@ -1,1 +1,1 @@
-![[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]]
+![Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.](Proposition%2055.%20It%20was%20necessary%20that%20Jesus%20and%20His%20disciples%20should%20at%20first%20preach%20the%20Kingdom%20as%20nigh%20to%20the%20Jewish%20nation..md)

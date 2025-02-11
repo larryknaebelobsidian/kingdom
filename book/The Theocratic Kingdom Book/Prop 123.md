@@ -1,1 +1,1 @@
-![[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]]
+![Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.](Proposition%20123.%20The%20Pre-Millennial%20Advent%20and%20the%20accompanying%20Kingdom%20are%20united%20with,%20the%20destruction%20of%20Antichrist..md)

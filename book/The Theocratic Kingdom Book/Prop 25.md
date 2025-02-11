@@ -1,1 +1,1 @@
-![[Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom.]]
+![Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom.](Proposition%2025.%20The%20Theocracy%20was%20an%20earnest,%20introductory,%20or%20initiatory%20form%20of%20this%20Kingdom..md)

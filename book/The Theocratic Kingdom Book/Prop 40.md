@@ -1,1 +1,1 @@
-![[Proposition 40. The hearers of John believed that he preached to them the Kingdom predicted by the Prophets, and in the sense held by themselves.]]
+![Proposition 40. The hearers of John believed that he preached to them the Kingdom predicted by the Prophets, and in the sense held by themselves.](Proposition%2040.%20The%20hearers%20of%20John%20believed%20that%20he%20preached%20to%20them%20the%20Kingdom%20predicted%20by%20the%20Prophets,%20and%20in%20the%20sense%20held%20by%20themselves..md)

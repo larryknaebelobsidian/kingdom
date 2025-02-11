@@ -1,1 +1,1 @@
-![[Proposition 164. This Kingdom ends the Gentile-domination.]]
+![Proposition 164. This Kingdom ends the Gentile-domination.](Proposition%20164.%20This%20Kingdom%20ends%20the%20Gentile-domination..md)

@@ -1,1 +1,1 @@
-![[Proposition 20. To comprehend the subject of the kingdom, it is necessary to notice the belief and the expectations of the more pious portion of the Jews.]]
+![Proposition 20. To comprehend the subject of the kingdom, it is necessary to notice the belief and the expectations of the more pious portion of the Jews.](Proposition%2020.%20To%20comprehend%20the%20subject%20of%20the%20kingdom,%20it%20is%20necessary%20to%20notice%20the%20belief%20and%20the%20expectations%20of%20the%20more%20pious%20portion%20of%20the%20Jews..md)

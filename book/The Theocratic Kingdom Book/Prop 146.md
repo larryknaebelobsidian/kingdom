@@ -1,1 +1,1 @@
-![[Proposition 146. This Kingdom is associated with the deliverance of creation.]]
+![Proposition 146. This Kingdom is associated with the deliverance of creation.](Proposition%20146.%20This%20Kingdom%20is%20associated%20with%20the%20deliverance%20of%20creation..md)

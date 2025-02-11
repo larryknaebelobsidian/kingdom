@@ -1,1 +1,1 @@
-![[Proposition 67. The Kingdom could not therefore have been set up at that time, viz.; at the First Advent.]]
+![Proposition 67. The Kingdom could not therefore have been set up at that time, viz.; at the First Advent.](Proposition%2067.%20The%20Kingdom%20could%20not%20therefore%20have%20been%20set%20up%20at%20that%20time,%20viz.;%20at%20the%20First%20Advent..md)

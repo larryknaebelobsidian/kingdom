@@ -1,1 +1,1 @@
-![[Proposition 88. The Church is then a preparatory stage for this Kingdom.]]
+![Proposition 88. The Church is then a preparatory stage for this Kingdom.](Proposition%2088.%20The%20Church%20is%20then%20a%20preparatory%20stage%20for%20this%20Kingdom..md)

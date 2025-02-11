@@ -1,1 +1,1 @@
-![[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]]
+![Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.](Proposition%20170.%20This%20doctrine%20of%20the%20Kingdom%20fully%20sustained%20by%20the%20“Father’s%20House”%20of%20John%2014%202..md)

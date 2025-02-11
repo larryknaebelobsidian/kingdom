@@ -1,1 +1,1 @@
-![[Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth.]]
+![Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth.](Proposition%20147.%20This%20Kingdom%20is%20preceded%20by%20a%20wonderful%20shaking%20of%20the%20heavens%20and%20earth..md)

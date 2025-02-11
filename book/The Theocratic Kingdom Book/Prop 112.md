@@ -1,1 +1,1 @@
-![[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]]
+![Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.](Proposition%20112.%20The%20Kingdom,%20if%20established%20as%20predicted,%20demands%20the%20national%20restoration%20of%20the%20Jews%20in%20their%20own%20land..md)

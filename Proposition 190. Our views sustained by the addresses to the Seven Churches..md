@@ -9,7 +9,7 @@ tags:
 ---
 # Proposition 190. Our views sustained by the addresses to the Seven Churches.
 
-[[Ephesus]] [[Smyrna]] [[Pergamum]] [[Thyatira]] [[Sardis]] [[Philadelphia]] [[Laodicea]]
+[Ephesus](Ephesus.md) [Smyrna](Smyrna.md) [Pergamum](Pergamum.md) [Thyatira](Thyatira.md) [Sardis](Sardis.md) [Philadelphia](Philadelphia.md) [Laodicea](Laodicea.md)
 
 >This is seen in one simple fact presented in all of them. Lange (Com. Rev., p. 114) has well observed: “The *fundamental idea* of all the seven epistles is the fundamental idea of the Apocalypse itself—*the Coming of the Lord*.” This is the key-note of the introductory to, and the solemn admonition and anticipation in, all of them.
 >p. 377 Vol. 3 Prop. 190

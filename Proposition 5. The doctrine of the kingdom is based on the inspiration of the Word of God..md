@@ -10,7 +10,7 @@ tags:
 ---
 # Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.
 ### Props Mentioned
-[[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.|2]] 
+[2](Proposition%202.%20The%20establishment%20of%20this%20kingdom,%20was%20determined%20before,%20and%20designed%20and%20prepared%20from,%20the%20foundation%20of%20the%20world..md) 
 
 NOTE: Scripture quotes from LSB  
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
@@ -30,9 +30,9 @@ Know this first of all, that no prophecy of Scripture comes by one’s own inter
 > p. 70 Vol. 1 Prop. 5 Obs. 2
 
 ### View of "inspiration"
-Some of the statements Peters makes in Observation 3 regarding [[Inspiration]] surprised me and and brushed contrary to my understanding of [[Inspiration]].
+Some of the statements Peters makes in Observation 3 regarding [Inspiration](Inspiration.md) surprised me and and brushed contrary to my understanding of [Inspiration](Inspiration.md).
 
-> the extreme so strenuously contended for by some, that ***even the words themselves were inspired, is evidently burdening [[Inspiration]] with a load that is unnecessary.***
+> the extreme so strenuously contended for by some, that ***even the words themselves were inspired, is evidently burdening [Inspiration](Inspiration.md) with a load that is unnecessary.***
 > p. 72 Vol. 1 Prop. 5 Obs. 3 - emphasis mine
 
 > ***we must not necessarily assume that every word or sentence is inspired***
@@ -45,7 +45,7 @@ Some of the statements Peters makes in Observation 3 regarding [[Inspiration]] s
 > p. 73 Vol. 1 Prop. 5 Obs. 3 - emphasis mine
 
 ### Guided by Holy Spirit free from error
-> ... we insist upon it that the apostles were fully and accurately acquainted with the doctrine of the kingdom, *i.e.*, as to its nature, and hence were qualified to teach it. Aside from their being specially called to preach the kingdom, this [[Inspiration]] influence bestowed upon them (*e.g.*, Luke 12:12, John 16:13, 14, 15, Luke 24:49, 1 Cor. 2:12,13, Eph. 3:4, 1 Pet. 1:12, etc.) would *most certainly* preserve them from error on this great, leading subject of the Bible.
+> ... we insist upon it that the apostles were fully and accurately acquainted with the doctrine of the kingdom, *i.e.*, as to its nature, and hence were qualified to teach it. Aside from their being specially called to preach the kingdom, this [Inspiration](Inspiration.md) influence bestowed upon them (*e.g.*, Luke 12:12, John 16:13, 14, 15, Luke 24:49, 1 Cor. 2:12,13, Eph. 3:4, 1 Pet. 1:12, etc.) would *most certainly* preserve them from error on this great, leading subject of the Bible.
 > p. 77 Vol. 1 Prop. 5 Obs. 4
 
 > The express declarations of the apostles themselves that they were guided by the Spirit, the positive promises given to them to guide them into the truth, forbid our receiving such estimates of the apostles' knowledge.

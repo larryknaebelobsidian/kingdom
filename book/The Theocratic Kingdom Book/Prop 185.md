@@ -1,1 +1,1 @@
-![[Proposition 185. This doctrine enforces that of Divine Providence.]]
+![Proposition 185. This doctrine enforces that of Divine Providence.](Proposition%20185.%20This%20doctrine%20enforces%20that%20of%20Divine%20Providence..md)

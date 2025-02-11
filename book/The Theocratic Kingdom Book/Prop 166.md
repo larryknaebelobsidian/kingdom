@@ -1,1 +1,1 @@
-![[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]]
+![Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.](Proposition%20166.%20The%20rudimentary%20reorganization%20of%20this%20Kingdom%20will%20be%20made%20at%20Mt.%20Sinai..md)

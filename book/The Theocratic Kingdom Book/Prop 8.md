@@ -1,1 +1,1 @@
-![[Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man.]]
+![Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man.](Proposition%208.%20The%20doctrine%20of%20the%20kingdom%20presupposes%20that%20of%20sin,%20the%20apostasy%20of%20man..md)

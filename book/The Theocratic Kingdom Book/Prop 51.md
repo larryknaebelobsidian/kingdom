@@ -1,1 +1,1 @@
-![[Proposition 51. The relation that the Kingdom sustains to “the covenants of promise” enables us to appreciate the prophecies pertaining to the Kingdom.]]
+![Proposition 51. The relation that the Kingdom sustains to “the covenants of promise” enables us to appreciate the prophecies pertaining to the Kingdom.](Proposition%2051.%20The%20relation%20that%20the%20Kingdom%20sustains%20to%20“the%20covenants%20of%20promise”%20enables%20us%20to%20appreciate%20the%20prophecies%20pertaining%20to%20the%20Kingdom..md)

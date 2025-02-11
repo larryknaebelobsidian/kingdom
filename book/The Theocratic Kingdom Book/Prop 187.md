@@ -1,1 +1,1 @@
-![[Proposition 187. This doctrine of the Kingdom gives coherency to the gospels, and indicates the unity of design in each of them.]]
+![Proposition 187. This doctrine of the Kingdom gives coherency to the gospels, and indicates the unity of design in each of them.](Proposition%20187.%20This%20doctrine%20of%20the%20Kingdom%20gives%20coherency%20to%20the%20gospels,%20and%20indicates%20the%20unity%20of%20design%20in%20each%20of%20them..md)

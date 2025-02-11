@@ -1,1 +1,1 @@
-![[Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.]]
+![Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.](Proposition%20105.%20The%20Lord’s%20Prayer%20is%20indicative%20of%20the%20fact%20that%20the%20Church%20is%20not%20the%20covenanted%20Messianic%20Kingdom..md)

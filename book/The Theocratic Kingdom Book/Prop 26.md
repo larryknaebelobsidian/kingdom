@@ -1,1 +1,1 @@
-![[Proposition 26. The Theocracy thus instituted would have been permanently established if the people, in their national capacity, had been faithful in obedience.]]
+![Proposition 26. The Theocracy thus instituted would have been permanently established if the people, in their national capacity, had been faithful in obedience.](Proposition%2026.%20The%20Theocracy%20thus%20instituted%20would%20have%20been%20permanently%20established%20if%20the%20people,%20in%20their%20national%20capacity,%20had%20been%20faithful%20in%20obedience..md)

@@ -1,1 +1,1 @@
-![[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.]]
+![Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.](Proposition%2073.%20The%20doctrine%20of%20the%20Kingdom%20preached%20by%20the%20Apostles%20and%20Elders,%20raised%20up%20no%20controversy%20with%20the%20Jews..md)

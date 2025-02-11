@@ -1,1 +1,1 @@
-![[Proposition 165. The doctrine of this Kingdom enables us to form a correct estimate of human governments.]]
+![Proposition 165. The doctrine of this Kingdom enables us to form a correct estimate of human governments.](Proposition%20165.%20The%20doctrine%20of%20this%20Kingdom%20enables%20us%20to%20form%20a%20correct%20estimate%20of%20human%20governments..md)

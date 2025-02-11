@@ -1,1 +1,1 @@
-![[Proposition 46. The Kingdom anticipated by the Jews at the First Advent is based on the Abrahamic and Davidic Covenants.]]
+![Proposition 46. The Kingdom anticipated by the Jews at the First Advent is based on the Abrahamic and Davidic Covenants.](Proposition%2046.%20The%20Kingdom%20anticipated%20by%20the%20Jews%20at%20the%20First%20Advent%20is%20based%20on%20the%20Abrahamic%20and%20Davidic%20Covenants..md)

@@ -1,1 +1,1 @@
-![[Proposition 145. This Kingdom includes “the regeneration” of Matt 19 28.]]
+![Proposition 145. This Kingdom includes “the regeneration” of Matt 19 28.](Proposition%20145.%20This%20Kingdom%20includes%20“the%20regeneration”%20of%20Matt%2019%2028..md)

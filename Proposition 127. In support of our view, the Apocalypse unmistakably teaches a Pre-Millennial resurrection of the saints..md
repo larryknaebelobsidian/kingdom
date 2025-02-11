@@ -11,7 +11,7 @@ tags:
 ---
 # Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.
 ### Props Mentioned
-[[Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.|75]] [[Proposition 77. The doctrine of the Kingdom, as held by the early church was finally almost exterminated under the teaching and power of the Papacy.|77]] [[Proposition 78. The early church doctrine was revived after the Reformation.|78]] [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.|134]] 
+[75](Proposition%2075.%20The%20doctrine%20of%20the%20Kingdom,%20as%20held%20by%20the%20churches%20established%20by%20the%20Apostles,%20was%20perpetuated..md) [77](Proposition%2077.%20The%20doctrine%20of%20the%20Kingdom,%20as%20held%20by%20the%20early%20church%20was%20finally%20almost%20exterminated%20under%20the%20teaching%20and%20power%20of%20the%20Papacy..md) [78](Proposition%2078.%20The%20early%20church%20doctrine%20was%20revived%20after%20the%20Reformation..md) [134](Proposition%20134.%20Our%20view%20of%20Judgment%20(and%20as%20a%20consequence%20that%20also%20of%20the%20Kingdom)%20is%20fully%20sustained%20by%20the%20passage%20of%20Scripture,%20Matt.%2025%2031-46..md) 
 ### Rev. 11:18
 p. 264 Vol 2 Prop. 127 Obs. 1
 And the nations were enraged, and Your rage came, and the time _came_ for the dead to be judged, and to give reward to Your slaves—the prophets and the saints and those who fear Your name, the small and the great—and to destroy those who destroy the earth.

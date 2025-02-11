@@ -1,1 +1,1 @@
-![[Proposition 138. This doctrine of the Kingdom fully corroborated by “the day of the Lord Jesus Christ.”]]
+![Proposition 138. This doctrine of the Kingdom fully corroborated by “the day of the Lord Jesus Christ.”](Proposition%20138.%20This%20doctrine%20of%20the%20Kingdom%20fully%20corroborated%20by%20“the%20day%20of%20the%20Lord%20Jesus%20Christ.”.md)

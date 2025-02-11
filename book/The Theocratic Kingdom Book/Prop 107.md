@@ -1,1 +1,1 @@
-![[Proposition 107. The passages referring to heaven in connection with the saints do not conflict with, but confirm our doctrine of the Kingdom.]]
+![Proposition 107. The passages referring to heaven in connection with the saints do not conflict with, but confirm our doctrine of the Kingdom.](Proposition%20107.%20The%20passages%20referring%20to%20heaven%20in%20connection%20with%20the%20saints%20do%20not%20conflict%20with,%20but%20confirm%20our%20doctrine%20of%20the%20Kingdom..md)

@@ -1,1 +1,1 @@
-![[Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.]]
+![Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.](Proposition%2043.%20The%20disciples%20sent%20forth%20by%20Jesus%20to%20preach%20this%20Kingdom%20were%20not%20ignorant%20of%20the%20meaning%20to%20be%20attached%20to%20the%20Kingdom..md)

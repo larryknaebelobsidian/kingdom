@@ -1,1 +1,1 @@
-![[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]]
+![Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.](Proposition%20144.%20This%20Kingdom%20embraces%20“the%20times%20of%20refreshing”%20and%20“the%20times%20of%20the%20restitution%20of%20all%20things%20mentioned,%20Acts%203%2019-21..md)

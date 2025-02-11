@@ -1,6 +1,6 @@
 [Malachi 4:5](https://read.lsbible.org/?q=Malachi+4&h=39-004-005)
 
-“Behold, I am going to send you **Elijah** the prophet [[before]] the coming of the great and awesome day of Yahweh.
+“Behold, I am going to send you **Elijah** the prophet [before](before) the coming of the great and awesome day of Yahweh.
 
 [Matthew 11:14](https://read.lsbible.org/?q=Matthew+11&h=40-011-014)
 
@@ -20,11 +20,11 @@ And Peter answered and said to Jesus, “Lord, it is good for us to be here; if 
 
 [Matthew 17:10](https://read.lsbible.org/?q=Matthew+17&h=40-017-010)
 
-And His disciples asked Him, saying, “Why then do the scribes say that **Elijah** [[must come first]]?”
+And His disciples asked Him, saying, “Why then do the scribes say that **Elijah** [must come first](must%20come%20first)?”
 
 [Matthew 17:11](https://read.lsbible.org/?q=Matthew+17&h=40-017-011)
 
-And He answered and said, “**Elijah** [[is coming]] and [[will restore all things]];
+And He answered and said, “**Elijah** [is coming](is%20coming) and [will restore all things](will%20restore%20all%20things);
 
 [Matthew 17:12](https://read.lsbible.org/?q=Matthew+17&h=40-017-012)
 
@@ -60,7 +60,7 @@ And they began asking Him, saying, “Why is it that the scribes say that **Elij
 
 [Mark 9:12](https://read.lsbible.org/?q=Mark+9&h=41-009-012)
 
-And He said to them, “**Elijah** does [[first come]] and [[restore all things]]. And yet how is it written of the Son of Man that He will suffer many things and be treated with contempt?
+And He said to them, “**Elijah** does [first come](first%20come) and [restore all things](restore%20all%20things). And yet how is it written of the Son of Man that He will suffer many things and be treated with contempt?
 
 [Mark 9:13](https://read.lsbible.org/?q=Mark+9&h=41-009-013)
 

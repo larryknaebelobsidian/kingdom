@@ -1,1 +1,1 @@
-![[Proposition 14. Some things pertaining to the kingdom not so easily comprehended as many suppose.]]
+![Proposition 14. Some things pertaining to the kingdom not so easily comprehended as many suppose.](Proposition%2014.%20Some%20things%20pertaining%20to%20the%20kingdom%20not%20so%20easily%20comprehended%20as%20many%20suppose..md)

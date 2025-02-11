@@ -1,1 +1,1 @@
-![[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]]
+![Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.](Proposition%20132.%20This%20view%20of%20the%20Kingdom%20confirmed%20by%20the%20Judgeship%20of%20Christ..md)

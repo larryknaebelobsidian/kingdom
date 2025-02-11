@@ -1,1 +1,1 @@
-![[Proposition 92. This Kingdom is not what some call “the Gospel Kingdom.”]]
+![Proposition 92. This Kingdom is not what some call “the Gospel Kingdom.”](Proposition%2092.%20This%20Kingdom%20is%20not%20what%20some%20call%20“the%20Gospel%20Kingdom.”.md)

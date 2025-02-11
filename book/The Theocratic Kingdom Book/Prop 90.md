@@ -1,1 +1,1 @@
-![[Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]]
+![Proposition 90. Members of the Church who are faithful, are promised this Kingdom.](Proposition%2090.%20Members%20of%20the%20Church%20who%20are%20faithful,%20are%20promised%20this%20Kingdom..md)

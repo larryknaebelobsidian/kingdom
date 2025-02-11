@@ -1,1 +1,1 @@
-![[Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah.]]
+![Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah.](Proposition%2096.%20The%20differences%20visible%20in%20the%20Church%20are%20evidences%20that%20it%20is%20not%20the%20predicted%20Kingdom%20of%20the%20Messiah..md)

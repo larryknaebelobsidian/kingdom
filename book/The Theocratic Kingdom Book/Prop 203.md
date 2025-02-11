@@ -1,1 +1,1 @@
-![[Proposition 203. The exaltation of the Christ is not lessened or lowered by thus referring the promises of the Kingdom to an outward manifestation in the future.]]
+![Proposition 203. The exaltation of the Christ is not lessened or lowered by thus referring the promises of the Kingdom to an outward manifestation in the future.](Proposition%20203.%20The%20exaltation%20of%20the%20Christ%20is%20not%20lessened%20or%20lowered%20by%20thus%20referring%20the%20promises%20of%20the%20Kingdom%20to%20an%20outward%20manifestation%20in%20the%20future..md)

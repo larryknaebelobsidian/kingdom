@@ -1,1 +1,1 @@
-![[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]]
+![Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.](Proposition%20113.%20The%20connection%20of%20this%20Kingdom%20with%20Jewish%20restoration%20necessitates%20the%20realization%20of%20their%20predicted%20repentance%20and%20conversion..md)

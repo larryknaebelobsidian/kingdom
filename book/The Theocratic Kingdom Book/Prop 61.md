@@ -1,1 +1,1 @@
-![[Proposition 61. The Kingdom which by promise exclusively belonged to the Jewish nation, the rightful seed of Abraham, was now to be given to an engrafted people.]]
+![Proposition 61. The Kingdom which by promise exclusively belonged to the Jewish nation, the rightful seed of Abraham, was now to be given to an engrafted people.](Proposition%2061.%20The%20Kingdom%20which%20by%20promise%20exclusively%20belonged%20to%20the%20Jewish%20nation,%20the%20rightful%20seed%20of%20Abraham,%20was%20now%20to%20be%20given%20to%20an%20engrafted%20people..md)

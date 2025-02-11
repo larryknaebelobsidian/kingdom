@@ -10,8 +10,8 @@ tags:
 ---
 # Proposition 46. The Kingdom anticipated by the Jews at the First Advent is based on the Abrahamic and Davidic Covenants.
 
-[[Abrahamic Covenant]]
-[[Davidic Covenant]]
+[Abrahamic Covenant](Abrahamic%20Covenant.md)
+[Davidic Covenant](Davidic%20Covenant.md)
 
 NOTE: Scripture quotes from LSB  
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  

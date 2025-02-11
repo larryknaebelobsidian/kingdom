@@ -1,1 +1,1 @@
-![[Proposition 148. This Kingdom embraces the new heavens and new earth.]]
+![Proposition 148. This Kingdom embraces the new heavens and new earth.](Proposition%20148.%20This%20Kingdom%20embraces%20the%20new%20heavens%20and%20new%20earth..md)

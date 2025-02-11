@@ -1,1 +1,1 @@
-![[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]]
+![Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.](Proposition%2045.%20The%20phrases%20“Kingdom%20of%20heaven,”%20“Kingdom%20of%20God,”%20“Kingdom%20of%20Christ,”%20etc.,%20denote%20the%20same%20Kingdom..md)

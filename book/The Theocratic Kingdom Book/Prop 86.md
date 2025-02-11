@@ -1,1 +1,1 @@
-![[Proposition 86. The object or design of this dispensation is to gather out these elects to whom, as heirs with Abraham and his seed, Christ, this Kingdom is to be given.]]
+![Proposition 86. The object or design of this dispensation is to gather out these elects to whom, as heirs with Abraham and his seed, Christ, this Kingdom is to be given.](Proposition%2086.%20The%20object%20or%20design%20of%20this%20dispensation%20is%20to%20gather%20out%20these%20elects%20to%20whom,%20as%20heirs%20with%20Abraham%20and%20his%20seed,%20Christ,%20this%20Kingdom%20is%20to%20be%20given..md)

@@ -1,1 +1,1 @@
-![[Proposition 100. The visible church is not the predicted Kingdom of Jesus Christ.]]
+![Proposition 100. The visible church is not the predicted Kingdom of Jesus Christ.](Proposition%20100.%20The%20visible%20church%20is%20not%20the%20predicted%20Kingdom%20of%20Jesus%20Christ..md)

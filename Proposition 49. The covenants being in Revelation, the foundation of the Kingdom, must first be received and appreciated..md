@@ -11,8 +11,8 @@ tags:
 ---
 # Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.
 
-[[Abrahamic Covenant]]
-[[Davidic Covenant]]
+[Abrahamic Covenant](Abrahamic%20Covenant.md)
+[Davidic Covenant](Davidic%20Covenant.md)
 ## I. THE ABRAHAMIC COVENANT
 There are 24 observations by Peters in this section.
 ### The things promised

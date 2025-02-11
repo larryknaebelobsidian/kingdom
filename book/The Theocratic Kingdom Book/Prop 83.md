@@ -1,1 +1,1 @@
-![[Proposition 83. This Kingdom is given to the Son of Man by God, the Father.]]
+![Proposition 83. This Kingdom is given to the Son of Man by God, the Father.](Proposition%2083.%20This%20Kingdom%20is%20given%20to%20the%20Son%20of%20Man%20by%20God,%20the%20Father..md)

@@ -1,1 +1,1 @@
-![[Proposition 79. The Kingdom of God, promised by covenant and prophets, is to be distinguished from the general and universal Sovereignty of God.]]
+![Proposition 79. The Kingdom of God, promised by covenant and prophets, is to be distinguished from the general and universal Sovereignty of God.](Proposition%2079.%20The%20Kingdom%20of%20God,%20promised%20by%20covenant%20and%20prophets,%20is%20to%20be%20distinguished%20from%20the%20general%20and%20universal%20Sovereignty%20of%20God..md)

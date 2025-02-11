@@ -1,1 +1,1 @@
-![[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]]
+![Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.](Proposition%20126.%20In%20confirmation%20of%20our%20position,%20the%20Old%20Testament%20clearly%20teaches%20a%20Pre-Millennial%20resurrection%20of%20the%20saints..md)
