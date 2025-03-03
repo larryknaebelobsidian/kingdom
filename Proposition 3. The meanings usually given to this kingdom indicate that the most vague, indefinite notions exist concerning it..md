@@ -29,7 +29,7 @@ tags:
 > In the following pages, it will be shown, step by step, that the kingdom of God did previously exist on earth, that it does not apply to the existing Church, and that the kingdom of Jesus Christ, when established, is *not new* but *a renewal* with precious, astounding additions.
 > p. 45 Vol 1 Prop. 3 Obs. 9
 ### Wide departure from the original meaning
-> it must be acknowledged, that when comparing the early Church doctrine of the kingdom with the meanings now so extensively given and adopted, **a wide departure** from the original and primitive meaning is fully evidenced.
+> it must be acknowledged, that when comparing the early Church doctrine of the kingdom with the meanings now so extensively given and adopted, *a wide departure* from the original and primitive meaning is fully evidenced.
 > p. 45 Vol 1 Prop. 3 Obs. 10
 ### Plain, grammatical language of scripture is a sufficient guide
 > ... we have still *a sufficiency* to guide us.  God foresaw this diversity, and hence accommodated Himself to our weakness in *the plain, grammatical language and sense* in which He expresses Himself.  But unfortunately we are prone, in our superior wisdom, to overlook this fact, and arrogate to ourselves the higher power *of adding* to the grammatical meaning *our own constructions* of what the sense ought to be, and thus plunge ourselves into hopeless embarrassments.
