@@ -10,7 +10,7 @@ tags:
 ---
 # Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.
 ### Props Mentioned
-[2](Proposition%202.%20The%20establishment%20of%20this%20kingdom,%20was%20determined%20before,%20and%20designed%20and%20prepared%20from,%20the%20foundation%20of%20the%20world..md) 
+[2](Proposition%202.%20The%20establishment%20of%20this%20kingdom,%20was%20determined%20before,%20and%20designed%20and%20prepared%20from,%20the%20foundation%20of%20the%20world..md)  [4](Proposition%204.%20The%20literal,%20grammatical%20interpretation%20of%20the%20Scriptures%20must%20(connected%20with%20the%20figurative,%20tropical,%20or%20rhetorical)%20be%20observed%20in%20order%20to%20obtain%20a%20correct%20understanding%20of%20this%20kingdom..md) [182](Proposition%20182.%20This%20Kingdom%20embraces%20the%20“One%20Hope”.md)
 
 NOTE: Scripture quotes from LSB  
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
