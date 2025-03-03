@@ -125,11 +125,12 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > no exegesis is to be considered isolated from other Scripture, but must be regarded in its connection with general analogy, spirit, or design of the writers.
 > p.  57 Vol. 1 Prop. 4 Obs. 5 note
 
-> it appears to me to be this, that we take the words of Scripture as we find them; that we endeavor to ascertain their true, grammatical sense, whether in the Old or the New Testament, in the first instance, and then receive the truths whish are thereby conveyed, whether articles of faith or rules of practice, according to the plain and simple and obvious meaning of the language itself.
+> it appears to me to be this, that we take the words of Scripture as we find them; that we endeavor to ascertain their true, grammatical sense, whether in the Old or the New Testament, in the first instance, and then receive the truths which are thereby conveyed, whether articles of faith or rules of practice, according to the plain and simple and obvious meaning of the language itself.
 > - Greswel (*Parables*, vol. 3, p. 173)
 >p.  57 Vol. 1 Prop. 4 Obs. 5 note 
 
 > As in the perusal of other books, so in reading the Bible, there is no better general rule than that *the obvious meaning* is the true.
+> - Graff, in his *Lay Sermons*, No. 1
 > p.  57 Vol. 1 Prop. 4 Obs. 5 note 
 
 ### Understanding what is written
@@ -141,7 +142,7 @@ who also made us sufficient _as_ ministers of a new covenant, not of the letter 
 > p.  58 Vol. 1 Prop. 4 Obs. 6 
 
 ### Undermines the authority of the Bible
-> A departure from the literal sense has not only caused those immensely varied and antagonistic interpretations of the kingdom, but it has, in self-defence, forced able and pious man to a confession which undermines and destroys the authority of the Bible.
+> A departure from the literal sense has not only caused those immensely varied and antagonistic interpretations of the kingdom, but it has, in self-defence, forced able and pious men to a confession which undermines and destroys the authority of the Bible.
 > p.  60 Vol. 1 Prop. 4 Obs. 7 
 
 > Grammar, rhetoric, and history are violated for the sake of an idea, an "inner germ," and the most scholarly, learned men are pushing on, exultantly, the work.
