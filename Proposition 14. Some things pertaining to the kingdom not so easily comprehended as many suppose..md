@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 14. Some things pertaining to the kingdom not so easily comprehended as many suppose.
+
+### Props Mentioned
+[[Proposition 1. The kingdom of God is a subject of vital importance.|1]] [[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.|2]] [[Proposition 3. The meanings usually given to this kingdom indicate that the most vague, indefinite notions exist concerning it.|3]] [[Proposition 6. The kingdom of heaven is intimately connected with the supernatural.|6]] [[Proposition 7. The kingdom being a manifestation of the supernatural, miracles are connected with it.|7]] [[Proposition 11. The mysteries of the kingdom were given to the apostles.|11]] [[Proposition 12. There is some mystery yet connected with the things of the kingdom.|12]] [[Proposition 13. Some things pertaining to the kingdom intentionally revealed somewhat obscurely.|13]] 
 ### Mystery
 >Obs. 1. Taking the word “mystery” to denote, as theologians state, something revealed that was before unknown, Revelation itself must be carefully scanned and compared to appreciate these. At the same time, whilst a fact is disclosed, or an ordering is divulged, yet the reason *why* it will, or *the manner* in which it may, be accomplished is either not explained or merely hinted at, thus leaving large room for attentive study and reflection. Besides this, many things—the great burden—relating to the Kingdom are still in the shape of unfulfilled prophecy and promise, requiring *discrimination* to distinguish what belongs to different dispensations, to the two Advents, to the past, present, and future, so that we may form a correct estimate of the preparatory stages and of the Kingdom itself. The Apocalypse, with its varied and discordant interpretations, alone proves our proposition.
 >p. 151 Vol. 1 Prop. 14 Obs. 1

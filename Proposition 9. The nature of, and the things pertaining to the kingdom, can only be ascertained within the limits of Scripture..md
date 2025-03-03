@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 9. The nature of, and the things pertaining to the kingdom, can only be ascertained within the limits of Scripture.
 
+### Props Mentioned
+[1](Proposition%201.%20The%20kingdom%20of%20God%20is%20a%20subject%20of%20vital%20importance..md) [2](Proposition%202.%20The%20establishment%20of%20this%20kingdom,%20was%20determined%20before,%20and%20designed%20and%20prepared%20from,%20the%20foundation%20of%20the%20world..md) [3](Proposition%203.%20The%20meanings%20usually%20given%20to%20this%20kingdom%20indicate%20that%20the%20most%20vague,%20indefinite%20notions%20exist%20concerning%20it..md) [4](Proposition%204.%20The%20literal,%20grammatical%20interpretation%20of%20the%20Scriptures%20must%20(connected%20with%20the%20figurative,%20tropical,%20or%20rhetorical)%20be%20observed%20in%20order%20to%20obtain%20a%20correct%20understanding%20of%20this%20kingdom..md) 
+
 > One of the distinguishing results of the Reformation was "the resurrection of the Bible," making it, as in the Apostolic era, the object of constant citation and appeal.
 > p. 110 Vol. 1 Prop. 9 note
 

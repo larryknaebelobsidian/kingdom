@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 12. There is some mystery yet connected with the things of the kingdom.
 
+### Props Mentioned
+[1](Proposition%201.%20The%20kingdom%20of%20God%20is%20a%20subject%20of%20vital%20importance..md) [2](Proposition%202.%20The%20establishment%20of%20this%20kingdom,%20was%20determined%20before,%20and%20designed%20and%20prepared%20from,%20the%20foundation%20of%20the%20world..md) [9](Proposition%209.%20The%20nature%20of,%20and%20the%20things%20pertaining%20to%20the%20kingdom,%20can%20only%20be%20ascertained%20within%20the%20limits%20of%20Scripture..md) [10](Proposition%2010.%20This%20kingdom%20should%20be%20studied%20in%20the%20light%20of%20the%20Holy%20Scriptures,%20and%20not%20merely%20in%20that%20of%20creeds,%20confessions,%20formulas%20of%20doctrine,%20etc..md) 
+
 >This is seen, e.g. in Rev. 10:7, where it is declared that under the last period of time in this age, “the mystery of God should be finished” which commentators generally apply to the fulfilment of the Divine Purpose in the setting up of the kingdom in a manner that shall be universally acknowledged, in vindicating through its establishment the Divine plan, etc. It indicates that some things hitherto kept concealed or partially known, should now be revealed or openly manifested, whatever meaning is attached to the passage, it leaves the impression that not everything pertaining to the kingdom is yet fully known.
 > p. 144 Vol. 1 Prop. 12 
 ### Multifaceted aspects of mystery

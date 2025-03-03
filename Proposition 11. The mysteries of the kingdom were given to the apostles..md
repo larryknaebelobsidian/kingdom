@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 11. The mysteries of the kingdom were given to the apostles.
 
+### Props Mentioned
+None
+
 > This is plainly asserted by Jesus Himself (Mark 4:11, Matt 13:11), “*Unto you it is given to know the mystery of the kingdom of God*” “*it is given unto you to know the mysteries of the kingdom of heaven,*” which the apostles, including Paul, claimed to have been imparted, Eph. 1:9, and 3:3, etc. The entire tenor of the New Test. impresses us, that their superior qualifications as teachers arises from their acquaintance with the doctrine of the kingdom, resulting from the personal instructions received from Christ, and the subsequent special guidance of the Spirit.
 > p. 141 Vol. 1 Prop. 11 
 
