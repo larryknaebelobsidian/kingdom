@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 7. The kingdom being a manifestation of the supernatural, miracles are connected with it.
 
+### Props Mentioned
+None
+
 >Miracles are not to be regarded simply as evidences of the truth —this it indeed subserves—but as *necessary parts* of revelation itself, evincing with a fulness, stronger than language can impress, that the supernatural is indispensable for the establishment of the kingdom, and that it will be exerted in miraculous power whenever required.
 >p. 88 Vol. 1 Prop. 7
 ### Assurances that the kingdom will come as predicted

@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 6. The kingdom of heaven is intimately connected with the supernatural.
 
+### Props Mentioned
+None
+
 >The whole Bible, whose leading theme is the kingdom, is grounded on the supernatural. Remove this, and you destroy, if not the book itself, the chief characteristic, the distinguishing excellency of the Scriptures.
 >p. 80 Vol. 1 Prop. 6
 
