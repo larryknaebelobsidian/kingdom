@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation.
 
+### Props Mentioned
+30 35
+
 >No addition to, or continuation of, that elect portion to whom the Kingdom is alone promised (by way of inheritance), can be made *without direction from God Himself*.
 >p. 408 Vol. 1 Prop 64
 ### "Keys of the kingdom"
