@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 51. The relation that the Kingdom sustains to “the covenants of promise” enables us to appreciate the prophecies pertaining to the Kingdom.
 
+### Props Mentioned
+50 54-69 81 82 84 122 187-191 200 203 204 
+
 >All predictions, all promises, all preparative measures, relating to the Kingdom, are *based on*, and *result from*, these covenants. The prophecies constantly keep in view what God has covenanted and confirmed by oath, and enlarge and expand the same by amplification, explanation, etc. Therefore, to appreciate the utterances of the prophets, notice must continually be taken of *the foundation* upon which they are erected. To isolate them is to defeat one intent of prophecy, viz.: to instruct us in the manner by which God will *ultimately fulfil* His covenants and establish His Theocratic rule over the nations.
 >p. 337 Vol. 1 Prop 51
 ### The better destinies of the world
