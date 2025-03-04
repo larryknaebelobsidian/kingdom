@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 54. The preaching of the Kingdom by John, Jesus, and the disciples, was confined to the Jewish nation.
 
+### Props Mentioned
+19 20 21 22 23 24 29 30 31 33 35 38 39 40 42 43 44 45 46 47 48 49 57-59 108-110 114
+
 NOTE: Scripture quotes from LSB  
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
