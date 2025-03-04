@@ -11,6 +11,9 @@ tags:
 ---
 # Proposition 59. This Kingdom of God, offered to the Jewish nation, lest the purpose of God fail, is to be given to others who are adopted.
 
+### Props Mentioned
+3 24 29 30 31 44 49 50 54 55 70 71 72 74 93-104
+
 >This Kingdom is incorporated by covenant promise with the seed of Abraham; that seed is chosen, but refusing the Kingdom on the condition annexed to it, now, that the Divine Purpose revealed in the covenants may *not fail* in its accomplishment through the unbelief and depravity of the nation, another seed must be raised up *unto Abraham*, to whom the Kingdom, in a peculiar sense (as will be explained hereafter), is to be given.
 >p. 386 Vol. 1 Prop 59
 ### Parable of the wicked husbandmen
