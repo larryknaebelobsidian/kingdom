@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 70. The apostles, after Christ’s ascension, did not preach, either to Jews or Gentiles, that the Kingdom was established.
 
+### Props Mentioned
+19-44 58 64 66 72 73 74 75 76 77 144 187 188 205
+
 >They could not *consistently* preach that it was established, because 
 >1. (1) the covenant forbids it, the express terms of it not being verified; 
 >2. (2) the rejection of the kingdom by the Jews and its consequent postponement during “the times of the Gentiles,” forbids it; 
