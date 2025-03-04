@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 40. The hearers of John believed that he preached to them the Kingdom predicted by the Prophets, and in the sense held by themselves.
 
+### Props Mentioned
+19 20 21 22 23 24 29 35 
+
 >Obs. 1. The Jewish belief in a *restored* Theocratic-Davidic Kingdom has been noticed (Prop. 20), as supported by the grammatical sense of the prophecies (Prop. 21), and the election of the nation (Prop. 24,) etc. The preaching of John, giving *no* explanation of the Kingdom, indicative that the Kingdom is something well known (Prop. 19), and the employment of current phraseology without change of meaning (Props. 22 and 23), etc.— all proves *the correctness* of our position.
 >p. 260 Vol. 1 Prop. 40 Obs. 1
 ### Grammatical sense was the only one then used re. the kingdom
