@@ -11,6 +11,9 @@ tags:
 ---
 # Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.
 
+### Props Mentioned
+4 18 20 21 24 25 26 28 31 32 33 46 47 48 59 50 54-66 68 75 76-78 111-114 119 120 122 126 127 131 137 140 141 142-157 168 169 197
+
 [Abrahamic Covenant](Abrahamic%20Covenant.md)
 [Davidic Covenant](Davidic%20Covenant.md)
 ## I. THE ABRAHAMIC COVENANT
