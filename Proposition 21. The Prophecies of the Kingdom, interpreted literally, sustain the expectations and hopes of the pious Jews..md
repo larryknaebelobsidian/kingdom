@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 21. The Prophecies of the Kingdom, interpreted literally, sustain the expectations and hopes of the pious Jews.
 
+### Props Mentioned
+4 17
+
 >The plain literal sense *expressly* teaches what the Jews anticipated; and no author has yet arisen who has dared to assert that the grammatical construction of the Old Testament language, received according to the usual laws, does not convey the meaning found therein of *a literal restoration* of the Theocratic-Davidic throne and kingdom as expected by the believing Israelites.
 >p. 190 Vol. 1 Prop. 21
 ### Both Jew and Gentile admit
