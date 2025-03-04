@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration.
 
+### Props Mentioned
+201
+
 >Thus, e.g., Isaiah, Hosea, Joel, Amos, and Micah deliberately predict the withdrawal of God’s protection as Ruler on account of the rebellious spirit of the nation, the abolishment of the Kingdom, and the destruction of the very place of the Ruler’s special manifestation. But they also announce, just as distinctly, that at some period in the future there shall be *a complete restoration* of the same Kingdom under David’s son, and a restoration, too, pre-eminently glorious.
 >p. 240 Vol. 1 Prop. 33
 ### Examples

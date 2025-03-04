@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown.
+
+### Props Mentioned
+None
 ### Supporting Evidence
 >Obs. 1. The Proposition is evidenced, 
 >1. (1) by the continued overthrow of what God called His throne and Kingdom (Ezek. 21:25-27, Hos. 3:4, 5, etc.); 
