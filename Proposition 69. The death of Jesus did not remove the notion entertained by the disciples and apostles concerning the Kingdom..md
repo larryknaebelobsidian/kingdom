@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 69. The death of Jesus did not remove the notion entertained by the disciples and apostles concerning the Kingdom.
 
+### Props Mentioned
+3 56 58 66 173 174 
+
 >It is asserted in numerous works that the death of Jesus caused such an immediate revolution in the minds of the disciples that it destroyed *all their anticipations* of the expected restored Davidic Kingdom. This is done without due reflection, seeing that it is opposed by the plainest statement.
 >p. 429 Vol. 1 Prop 69
 ### Resurrection proved His ability to restore the kingdom
