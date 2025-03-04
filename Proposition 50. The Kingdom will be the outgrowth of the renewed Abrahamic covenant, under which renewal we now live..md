@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 50. The Kingdom will be the outgrowth of the renewed Abrahamic covenant, under which renewal we now live.
 
+### Props Mentioned
+4 24 29 30 49 59 60 61 62 63 68 73-78 82 83 122 143 171 182 184 186 187 194 196 199-203
+
 [Abrahamic Covenant](Abrahamic%20Covenant.md)
 
 There are 24 observations in this proposition.
@@ -35,6 +38,9 @@ There are 24 observations in this proposition.
 ### Distinguishing feature of Millenarians
 >There are writers who clearly apprehend the truth and fairly state it. These, of course, are Millenarians; for it is *a distinguishing feature* of their system, from the Primitive Church down, that it is *directly founded on the Abrahamic and Davidic covenants*. Holding to those covenants *as written*, clinging to those promises *without changing* them, believing that they will *all, as recorded*, be finally realized through Jesus Christ,— *leads necessarily to Chiliasm*.
 >p. 326 Vol. 1 Prop 50 Obs. 8
+### All the older covenants did not end in Christ
+>Obs. 10. It follows, then, that it is a grave misapprehension of Scripture teaching to say, as some do, that all the older covenants *ended* in Christ.
+>p. 328 Vol. 1 Prop 50 Obs. 10
 ### The new covenant includes much more than the Abrahamic
 >. . . Christ is “the highest and last representative of the Abrahamic covenant.” *No! never*! for the covenant *comprehends immensely more* than the incarnation of the Messiah; it embraces His inheritance and future glory; it is world-embracing, for, as will be shown hereafter, in its brief but pregnant sentences, it includes the resurrection, restoration, and inheriting of the Patriarchs and of their believing descendants and of the adopted seed,—the Kingdom under the reign of that pre-eminent Seed, the ultimate salvation of the race as a race, the final removal of the curse, and the perfected Redemption of man and the creation. The Incarnation, *inexpressibly precious and indispensably necessary*, is an important—the first in magnitude— *means for the accomplishment of covenant promises*, but it too is *only preparatory*. Hence it is wrong to narrow down the covenant to the First Advent, just as if the Seed was not in *His glorified humanity* (comp. e.g. Props. 82, 83, 199-203) yet to exhibit a glorious part in the fulfilment of covenanted promises at *His Second Advent*.
 >p. 328 Vol. 1 Prop 50 Obs. 10
