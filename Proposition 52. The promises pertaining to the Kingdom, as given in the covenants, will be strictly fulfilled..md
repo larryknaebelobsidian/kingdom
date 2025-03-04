@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 52. The promises pertaining to the Kingdom, as given in the covenants, will be strictly fulfilled.
 
+### Props Mentioned
+4 9 21 22 23 28 31 32 33 35 39 40 42 43 44 47 48 49 50 51 54 55 56 57 58 59 60 61 62 63 64 65 66 67 68 74 79 80 81 82-85 111 112 113 114 117 120 121 122 131 132 133 154 168 177-180 196 197 200 201 202 203 204  
+
 >A covenant must, in the nature of the case, be understood by the parties to whom it is given; the language employed is that ordinarily used, so that the ideas intended may be accurately expressed.
 >p. 342 Vol. 1 Prop 52
 ### Disobedience caused the house to be desolate, tabernacle fallen down
