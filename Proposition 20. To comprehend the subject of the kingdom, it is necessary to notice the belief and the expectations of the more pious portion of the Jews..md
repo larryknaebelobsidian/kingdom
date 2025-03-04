@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 20. To comprehend the subject of the kingdom, it is necessary to notice the belief and the expectations of the more pious portion of the Jews.
 
+### Props Mentioned
+16 19
+
 >This is a rule, covering doctrine, laid down by the ablest of writers; ...
 >p. 183 Vol. 1 Prop. 20
 ### Pious Jewish view of the Messiah

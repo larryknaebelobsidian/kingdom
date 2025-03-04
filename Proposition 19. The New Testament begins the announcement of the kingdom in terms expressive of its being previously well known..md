@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 19. The New Testament begins the announcement of the kingdom in terms expressive of its being previously well known.
 
+### Props Mentioned
+None
+
 >This is an important feature. Any theory at variance with this fact is, to say the least, open to the suspicion of being defective. The statement in the Proposition is one that has been noticed and duly acknowledged by numerous writers of almost every shade of opinion. The preaching of the kingdom, its simple announcement, without the least attempt *to explain* its meaning or nature, the very language in which it was conveyed to the Jews—all presupposed that it was a subject *familiar* to them. John the Baptist, Jesus, and the Seventy, all proclaimed the kingdom in a way, without definition or explanation, that indicated that their hearers *were acquainted* with its meaning.
 >p. 181 Vol. 1 Prop. 19
 ### Kingdom assumed well known in NT
