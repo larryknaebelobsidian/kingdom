@@ -10,6 +10,9 @@ tags:
   - toc
 ---
 # Proposition 66. The Kingdom that was nigh at one time (viz. at the First Advent) to the Jewish nation, is now removed to the close of its tribulation, and of “the times of the Gentiles.”
+
+### Props Mentioned
+58 59 65 88 116 120 132 133 138 139 144 145 148 151 154 160 
 ### Kingdom requires end of gentile domination
 >Let us again refer to Luke 21:31, in which it is stated “*when ye see these things come to pass, know ye that the Kingdom of God is nigh at hand*.” Now among “these things” which are *first* to happen are the Jewish tribulation and “the times of the Gentiles” (v. 24), and when these come to pass, and Jerusalem is no longer under Gentile dominion, and the Advent (v. 27) of the Saviour is witnessed, *then* the Kingdom will be established. So long as “the city of the great King,” and so long as His land. His by inheritance (Prop. 116), as David’s Son, *is under Gentile dominion*, it is *simply impossible* for the Kingdom to exist; and *it is folly to argue*, with the light of the Davidic covenant and prophetic announcements relating to it, that the Messianic Kingdom has been set up. This Jewish tribulation, these times of the Gentiles, this gathering out of an elect, the non-fulfilment of “these things,”—these, and a multitude (in following Propositions), Propositions), of considerations, show that it is *thus postponed*.
 >p. 419 Vol. 1 Prop 66 Obs. 1
