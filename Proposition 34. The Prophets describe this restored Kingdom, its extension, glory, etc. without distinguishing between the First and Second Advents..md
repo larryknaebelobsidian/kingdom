@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents.
 
+### Props Mentioned
+55-57
+
 >This peculiar feature has often been noticed by writers; and attention is called to it in this connection, because it is *of great moment* to understand this distinctive, significant method of prophecy.
 >p. 242 Vol. 1 Prop. 34
 ### Main reason - offer of kingdom to the nation at first advent, rejection, postponement till second advent
