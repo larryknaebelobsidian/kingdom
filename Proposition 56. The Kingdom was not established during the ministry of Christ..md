@@ -41,7 +41,7 @@ Various theories as to when the kingdom began
 ### Tenor of Gospels and Epistles show that no kingdom as covenanted was set up
 >Obs. 5. That no Kingdom, *as covenanted*, was set up, is corroborated by the entire tenor of the Gospels and Epistles, and forbids, if sheer inference is laid aside, the notion to be entertained.
 >p. 368 Vol. 1 Prop 56 Obs. 5
-### Nighness of he kingdom tendered in the person of Jesus Christ
+### Nighness of the kingdom tendered in the person of Jesus Christ
 >Obs. 6. This nighness of the Kingdom to the nation was evidenced not merely by the offer of the Kingdom, but by the tender of it in the person of Jesus Christ.
 >p. 369 Vol. 1 Prop 56 Obs. 6
 ### No declaration of Christ's asserting that the kingdom was then in actual existence
