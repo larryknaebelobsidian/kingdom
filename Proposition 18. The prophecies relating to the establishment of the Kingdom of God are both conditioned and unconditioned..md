@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned.
 
+### Props Mentioned
+2 58-68 122 123 124
+
 >By this paradox is simply meant that they are conditioned in their fulfilment by the antecedent gathering of the elect, and hence susceptible of postponement (as will be shown, e.g., Props. 58-68); and that they are unconditioned so far as their *ultimate* fulfilment is concerned, which the conduct or action of man cannot turn aside (as is seen, e.g., at the very time of the kingdom’s manifestation, the nations, Rev. 19, will be arrayed against it).
 >p. 176 Vol. 1 Prop. 18
 ### Moral freedom
