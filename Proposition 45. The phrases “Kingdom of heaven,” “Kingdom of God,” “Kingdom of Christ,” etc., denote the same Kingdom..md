@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.
+
+### Props Mentioned
+19 20 21 22 23 31-35 83 154
 ### Used as synonyms in NT
 >Obs. 1. Now attention is called to the fact that they are used as synonymous in the New Test. What Matt, pronounces “the Kingdom of heaven,” is said by Mark, Luke, and John to be “the Kingdom of God,” as e.g. comp. Matt. 5:3, with Luke 6:20, and Matt. 13:11 with Mark 4:11. So also “the Kingdom of God” is designated Christ’s Kingdom, as e.g. comp. Matt. 16:28 with Luke 9:27, Mark 9:1, etc. 
 >NOTE: So also “the Father’s Kingdom” and Christ’s are represented as identical. Comp. e.g. Matt. 13:41-43 with Eph. 5:5, and Matt. 26:29 with 2 Pet. 1:11, etc., and Prop. 83. In reference to the usage of those phrases, comp. Props. 22 and 23, and the note by Dr. Craven in Lange’s *Com. Rev.*, p. 93.
