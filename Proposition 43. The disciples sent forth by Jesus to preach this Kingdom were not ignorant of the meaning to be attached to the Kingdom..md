@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.
 
+### Props Mentioned
+7 42 55-61
+
 NOTE: Scripture quotes from LSB  
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
