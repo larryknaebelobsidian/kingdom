@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 56. The Kingdom was not established during the ministry of Christ.
 
+### Props Mentioned
+3 25 29 31 37-41 42 43 50 52 54 55 58 66 67 68 69 70 71 73 74 79 80 83 84 109 110 122 177
+
 >This necessarily follows from the preceding; for *no such* a covenanted Kingdom as promised, *no such* a restored Davidic throne and Kingdom as predicted *appeared*. He (Luke 19:11-27) had to leave before he would receive (Prop. 83) the Kingdom.
 >p. 366 Vol. 1 Prop 56
 ### First preachers would have known if the kingdom was already erected
