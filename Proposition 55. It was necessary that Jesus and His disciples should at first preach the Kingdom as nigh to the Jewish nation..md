@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.
 
+### Props Mentioned
+19 20 21 22 34 35 38 39 40 42 43 44 45 91 113
+
 >That the Kingdom *was nigh* to the nation is distinctly stated, Matt. 4:17, Mark 1:14, 15, Luke 11:20, Matt. 12:28. The covenanted Theocratic Kingdom was overthrown; at the appearance of the promised Davidic son, who should inherit the Kingdom, it was *absolutely requisite*, in view of the *covenanted relationship* of the nation to this Kingdom, to offer it to the Jews for their acceptance. This *was done* by John, Jesus, and the disciples.
 >p. 362 Vol. 1 Prop 55
 ### Nigh conditioned on repentance
