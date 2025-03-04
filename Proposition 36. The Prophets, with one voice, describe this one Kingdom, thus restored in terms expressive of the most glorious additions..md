@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.
 
+### Props Mentioned
+None
+
 >They predict, from the Psalmist down to Malachi, a restoration of *the identical overthrown Kingdom*, linked with the most astounding events, which shall produce a blessedness and glory *unexampled* in the history of the world. Thus, e.g., the resurrection is united with this restoration, as in Dan. 12:2, Isa. 26:8 (the latter located by Paul, 1 Cor. 15: “*then* shall be fulfilled the saying written,” etc.), and the new creation is allied with it, as in Isa. 65:17, and 66:22.
 >p. 248 Vol. 1 Prop. 36
 ### Remarkable events accompany the re-establishment of this kingdom
