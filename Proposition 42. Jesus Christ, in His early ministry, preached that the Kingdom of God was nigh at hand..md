@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 42. Jesus Christ, in His early ministry, preached that the Kingdom of God was nigh at hand.
 
+### Props Mentioned
+1 2 9 19-22 25 32 33 40 55 57 58-68 74 83 87 109 110 111-115 163 164 205
+
 > When John's ministry ended by his imprisonment, it is said (Matt. 4:17) : "*From that time Jesus began to preach, and to say, Repent, for the Kingdom of heaven is at hand*." (Comp. Mark 1:14,5, Luke 4:23, and 8:1.)
 > p. 266 Vol. 1 Prop. 42
 ### Nigh kingdom was postponed
