@@ -12,6 +12,9 @@ tags:
 ---
 # Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.
 
+### Props Mentioned
+24 45 63 109 111-114 118 135 136 153 154 159
+
 >The nature of the Kingdom as covenanted, and the rejection of the Kingdom by the chosen nation (making such a gathering requisite), requires such an arrangement. The introduction of the faith principle, by which Abraham was justified before circumcision took place, to raise up children to Abraham, merely produces “*the heirs*,” who inherit the Kingdom. The elect are “the guests,” who are first all invited and furnished *before* the marriage feast takes place. The Kingdom is not given—in the sense of being actually realized—to them one by one as gathered, but when all are gathered.
 >p. 412 Vol. 1 Prop 65
 ### Final gathering of all elect
