@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 16. This kingdom cannot be properly comprehended without acknowledging an intimate and internal connection existing between the Old and New Testaments.
 
+### Props Mentioned
+None
+
 >The doctrine of the kingdom is first taught by covenant, theocratic ordering, and prophecy in the Old Testament, and it is taken for granted in the New Testament as a subject derived from the Old Testament and well understood; for the Kingdom is preached without any appended explanation.
 > p. 157 Vol. 1 Prop. 16
 ### Some authors depreciate the value of the OT
