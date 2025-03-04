@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 26. The Theocracy thus instituted would have been permanently established if the people, in their national capacity, had been faithful in obedience.
 
+### Props Mentioned
+25
+
 >By this is meant, not that the typical and provisionary adjuncts would have remained unchanged, but that the direct, personal rulership of God (i.e., the distinctive features which constituted it a theocracy) would never have been, for a time, set aside, and that the blessings promised under a Theocratic rule would have been amply realized. No humble believer of the Word, reading the covenant made at Horeb and pondering the blessings and curses announced by Moses, can doubt this supposition. It is true God foreknew the nation’s defection, which is already freely predicted by Moses in his last addresses, but this does not prevent him from offering this Kingdom for their continued acceptance and retention in accordance with moral freedom.
 > p. 222 Vol. 1 Prop. 26
 
