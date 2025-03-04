@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 68. This Kingdom is then essentially a Jewish Kingdom.
 
+### Props Mentioned
+23 24 55-65 69-75 168
+
 >This follows from the Abrahamic, Sinaitic, and Davidic covenants; this is uniformly taught by the Prophets in associating and identifying the Kingdom *with the nationality* of the Jews; this again is confirmed by *the election* of the Jewish nation, the *oneness* of the Kingdom, the *preaching* of John, Jesus, and the disciples, the *renewed covenant*, the offer of the Kingdom, the *engrafting* of Gentiles, the rejection of the nation only *until* the times of the Gentiles are ended, the *postponement* of the Kingdom, etc. *The whole tenor and analogy of Scripture sustain this position*; and it is but a weak, unsatisfactory, inconsistent procedure to deny what is *so plainly* the burden of Holy Writ.
 >p. 424 Vol. 1 Prop 68
 ### Trend to separate Christianity from Judaism
