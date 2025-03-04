@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 17. Without study of the prophecies, no adequate idea can be obtained of the kingdom.
+
+### Props Mentioned
+None
 ### A Revelation of God's will and purpose
 >Obs. 2. Prophecy takes higher ground than that of merely being a prediction of the future, or a witness to the truth, or a message of hope. Whilst all this, it is above all *a Revelation of God’s Will and Purpose*; and, therefore, while the preceding flow from it, a still grander result is attained when combining and linking together the predictions of God. Then we find, from first to last, that they publish a predetermined counsel of God, *a great Redemptive Process*, all centering in the predestined King and Kingdom.
 >p. 163-164 Vol. 1 Prop. 17 Obs. 2
