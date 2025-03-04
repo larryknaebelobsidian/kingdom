@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 48. The Kingdom being based on the covenants, the covenants must be carefully examined, and (Prop. 4) the literal language of the same must be maintained.
 
+### Props Mentioned
+4 131 137 141 142 
+
 >The appointment, arrangement, disposition, or institution of a covenant relation, in whatever (as voluntary, a contract, etc.) light it may be regarded, presupposes two parties; the one who promises or imparts, and the other who will receive or attains. In all earthly transactions, when a promise, agreement, or contract is entered into by which one party gives a promise of value to another, it is *universally* the custom to explain such a relationship and its promises *by the well-known laws of language* contained in our grammars or in common usage. It would be regarded absurd and trifling to view them in any other light. (Comp. Prop. 4.)
 >p. 290 Vol. 1 Prop. 48
 ### Earthly covenants require literal language
