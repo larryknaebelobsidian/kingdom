@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 22. John the Baptist, Jesus, and the disciples, employed the phrases “Kingdom of heaven,” “Kingdom of God,” etc., in accordance with the usage of the Jews.
 
+### Props Mentioned
+20 54
+
 >It is admitted by all authorities that this phraseology was current among the Jews, and was adopted by the first preachers of the Kingdom.
 >p. 195 Vol. 1 Prop. 22
 ### From Daniel 7:13, 14
