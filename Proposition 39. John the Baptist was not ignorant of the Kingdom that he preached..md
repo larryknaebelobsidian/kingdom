@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 39. John the Baptist was not ignorant of the Kingdom that he preached.
 
+### Props Mentioned
+3 19 20 21 22 37 38 41 90 109
+
 >The prevailing view, indorsed by a multitude of eminent theologians, is that John was *ignorant of* i.e., did not understand the nature of, the Kingdom he proclaimed.
 >p. 256 Vol. 1 Prop. 39
 ### Any theory denying John's understanding of the kingdom is unworthy

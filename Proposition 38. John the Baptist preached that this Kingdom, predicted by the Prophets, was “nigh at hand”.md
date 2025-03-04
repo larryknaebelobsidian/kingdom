@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 38. John the Baptist preached that this Kingdom, predicted by the Prophets, was “nigh at hand”
 
+### Props Mentioned
+None
+
 >This Kingdom was to be offered to the Jewish nation, and John’s mission was to prepare the nation for its acceptance. However men may explain the Kingdom itself, the fact stated is not disputed.
 >p. 253 Vol. 1 Prop. 38
 ### Underestimating John the Baptist
