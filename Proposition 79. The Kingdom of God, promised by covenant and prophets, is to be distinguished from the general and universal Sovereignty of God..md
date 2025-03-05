@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 79. The Kingdom of God, promised by covenant and prophets, is to be distinguished from the general and universal Sovereignty of God.
 
+### Props Mentioned
+26 37 81 83
+
 >... *the Kingdom of covenant is a visible, outward Theocratic Kingdom*, manifested here on earth, identified with a certain people, promised in a definite manner, and ruled over by “the man ordained.” As we shall show hereafter (Prop. 81), it is a Kingdom specifically promised to the “*the Son of Man*,” who is the Son of David. These, and other aspects of it, clearly *distinguish it from* such a sovereignty.
 >p. 556 Vol. 1 Prop. 79
 ### Even some opponents of Chiliasm see a difference between sovereign rule and theocratic rule
