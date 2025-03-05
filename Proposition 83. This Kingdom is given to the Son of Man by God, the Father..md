@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 83. This Kingdom is given to the Son of Man by God, the Father.
 
+### Props Mentioned
+56-68 69 89-110 115 121 123 159 161 166 173 174 200
+
 >This bestowal of the Kingdom to the Son of Man by the Father, is *clearly and explicitly taught* in the covenant. Hence in agreement with it, we have the language of Dan. 7:13, 14, Isa. 49; Luke, 22:29 and 1:32, etc. The Divine Sovereignty insures it unto Him.
 >p. 577 Vol. 1 Prop. 83
 ### Kingdom different than Divine sovereignty
