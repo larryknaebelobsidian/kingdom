@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 86. The object or design of this dispensation is to gather out these elects to whom, as heirs with Abraham and his seed, Christ, this Kingdom is to be given.
 
+### Props Mentioned
+24 31 33 49 51 52 57 58 59 61 63 64 65 66 68 87 88 89 118 120 121 122 124 131-139 140 142 152 153 154 158 169 175
+
 >This Proposition is thus presented to recall, at this point of our discussion, some conclusions previously arrived at. We have shown 
 >1. (1) Prop. 57, how the kingdom was rejected, 
 >2. (2) Prop. 58, why it was postponed, 
