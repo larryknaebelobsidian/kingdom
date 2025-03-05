@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.
 
+### Props Mentioned
+81 82 83 84 200 201 203 204
+
 >This is distinctively shown by a simple fact (overlooked by the multitude) that the Kingdom is *never* promised to Him as “*the Son of God*” but as (the covenants and predictions demand it) “*the Son of Man*" or “*the Son of David*".
 >p. 559 Vol. 1 Prop. 80
 ### Jesus is Lord over all in his divine nature
