@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 78. The early church doctrine was revived after the Reformation.
+
+### Props Mentioned
+9 10 20 21 38 39 40 43 44 66-68 69 70 71 72 73 74 75 76 77 127 143 146 158 174 175 176 177-180 
 ### Four various views of Chiliasts
 Obs. 1
 ### Some reformers were Chiliasts (or partial) but none were Whitbyans
