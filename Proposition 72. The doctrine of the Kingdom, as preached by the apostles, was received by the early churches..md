@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.
 
+### Props Mentioned
+20 21 33 35 38 39 40 42 43 44 46 47 48 49 51 52 54 55 57-68 69 70 71 72 73 74 75 76 77 132 133 137 138 140 141 152 153 154 156 159 175 193 
+
 >This is not only reasonable, but shown to be *a fact*, from the apostles having no occasion during their entire ministry to censure any orthodox believers or churches for misapprehending, or holding to a false view of, the Kingdom. The decided and convincing impression is made by the apostolic writings that these first Christian churches were *not ignorant of—but correctly understood—the important and cardinal subject of the Kingdom*.
 >p. 449 Vol. 1 Prop 72
 ### Early church history agrees
