@@ -9,6 +9,9 @@ tags:
   - toc
 ---
 # Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.
+
+### Props Mentioned
+69 70 71 72 73 74 76 175
 ### All the orthodox of the early church fathers adopted Chiliasm
 >So extensively, so generally was Chiliasm perpetuated, that Justin Martyr *positively asserts that all the orthodox* adopted and upheld it.
 > . . .
