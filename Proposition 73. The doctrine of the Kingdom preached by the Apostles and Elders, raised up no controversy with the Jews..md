@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.
 
+### Props Mentioned
+44 69 70 71 205
+
 >Neither in the New Test, nor in any of the Patristic writings, do we find the least hint given that the doctrine of the Kingdom excited *any controversy* with the Jews; which it undoubtedly would have done *if antagonistic* to the Jewish view. This is strong, corroborative evidence that the doctrine was *in accordance* with the Jewish Messianic expectations.
 >p. 467 Vol. 1 Prop 73
 ### Jews (who believed in the kingdom) were the first converts
