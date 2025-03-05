@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 87. The postponement of the Kingdom is the key to the understanding of the meaning of this dispensation.
 
+### Props Mentioned
+58-68 140 201 202
+
 Proposition 87. The [postponement](postponement) of the Kingdom is the key to the understanding of the meaning of this dispensation.
 #toc
 
