@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 89. Christ, in view of this future Kingdom, sustains a peculiar relationship to the Church.
 
+### Props Mentioned
+79 80 81-83 138 154 156 200
+
 >Christ, now, in virtue of His divine nature, has absolute control over all nations, over the church, etc., but He only exerts that Sovereignty (Props. 79 and so) as God in Providence, etc., not as the Son of Man (e.g. Props. 81-83), David’s Son, in His human nature.
 >...
 >This Rulership now belongs to David’s Son, is His both by right of covenanted birth and obedience, but is not yet realized and will not be until the establishment of the Kingdom.
