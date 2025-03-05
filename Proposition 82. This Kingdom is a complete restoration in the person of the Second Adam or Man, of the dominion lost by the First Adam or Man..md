@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.
+
+### Props Mentioned
+83 119 120 121 202 204 207
 ### Announced by Psalmist and Paul
 >Obs. 1. What the dominion forfeited by sin was to be, is clearly announced, e.g. by the Psalmist and Paul.
 >...
