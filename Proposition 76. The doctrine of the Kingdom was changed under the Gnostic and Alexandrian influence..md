@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 76. The doctrine of the Kingdom was changed under the Gnostic and Alexandrian influence.
 
+### Props Mentioned
+4 9 10
+
 >... the doctrine was in the first churches, viz.: a belief that in the millennial age, still future, Christ would personally come and reign, restoring the Davidic throne and Kingdom and fulfilling the covenant promises,
 >p. 499 Vol. 1 Prop. 76
 ### Influence of churchly prosperity and spiritualization of Scriptures

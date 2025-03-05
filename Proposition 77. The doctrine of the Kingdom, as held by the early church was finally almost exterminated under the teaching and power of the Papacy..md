@@ -9,7 +9,7 @@ tags:
 # Proposition 77. The doctrine of the Kingdom, as held by the early church was finally almost exterminated under the teaching and power of the Papacy.
 
 ### Props Mentioned
-4 9 10
+None
 
 >This is so plain a historical fact that it needs no special evidence to sustain it. Roman Catholic writers, ecclesiastical historians, and others, have repeatedly recorded the statement, and no denial of it has ever appeared.
 >p. 513 Vol. 1 Prop. 76
