@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 81. This Kingdom, thus covenanted, belongs to Jesus as “the Son of Man.”
 
+### Props Mentioned
+79 80 83 121 122 199 
+
 >The kingdom, therefore, is pointedly in harmony with covenant and promise, predicted as bestowed upon “*the Son of Man*,” as e.g. Dan. 7:13.
 >p. 565 Vol. 1 Prop. 81
 ### Importance of the union of God and man
