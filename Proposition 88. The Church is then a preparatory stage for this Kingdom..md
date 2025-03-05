@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 88. The Church is then a preparatory stage for this Kingdom.
 
+### Props Mentioned
+None
+
 > This follows from the preceding, for the church then resolves itself into an association of believers by which its growth, perpetuation, etc., is insured by the use of means of grace connected with such an organization, and by the care and oversight extended to it by its living Head. It is *preparatory*, because its office is, under divine assistance, to gather out of the nations the elect, i.e. those who are grafted into the Jewish Commonwealth, who shall, by virtue of adoption as Abraham’s seed, be accounted heirs and inheritors of the Kingdom with Abraham. It is simply calling and preparing “*the heirs of promise*” the “*heirs of that kingdom* which God hath prepared for them that love Him.”
 >p. 592 Vol. 1 Prop. 88
 ### Variety of attempts to elevate the church to the kingdom
