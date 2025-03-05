@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 84. As this Kingdom is specially given to the Son of Man as the result of his obedience, sufferings, and death, it must be something different from His Divine nature, or from “piety,” “religion,” “God’s reign in the heart” etc.
 
+### Props Mentioned
+110 
+
 >Our argument all along involves this, for we have (1) the Kingdom promised to David’s Son; (2) this promise based on the foretold affirmations that this Son shall be spotless, without sin; and (3) the continued blessedness and perpetuity of the Kingdom asserted in view of the perfect character of this descendant of David. Numerous passages declare this; hence, when we come to the Apostles, they plainly inform us that His exaltation and reception of dominion is due to His obedience, sufferings, and death. Two passages alone clearly present this to us, viz.: *Heb. 12:2; Phil. 2:8, 9*. The latter part of the Proposition follows as a natural sequence.
 >p. 582 Vol. 1 Prop. 84
 ### Jesus life and death confirms His right and title
