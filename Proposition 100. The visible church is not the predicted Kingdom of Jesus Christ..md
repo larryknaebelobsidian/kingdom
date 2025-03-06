@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 100. The visible church is not the predicted Kingdom of Jesus Christ.
 
+### Props Mentioned
+35 64 123 125-129 160 161 162 
+
 >The covenant forbids the idea to be entertained, for the Davidic covenant and the promises based on it, as we have shown, remain *unfulfilled, unrealized* in the church. This Proposition is advanced in this form only to direct attention to the fact, that many writers affirm that the visible church itself is the kingdom. The arguments already advanced refute this notion, but leaving these to speak for themselves, we give some additional observations.
 >p. 647 Vol. 1 Prop 100
 ### Admitted by opponents
