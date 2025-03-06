@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 91. The Kingdom of God is not the Jewish Church.
 
+### Props Mentioned
+39
+
 >Whatever churchly or religious organization existed among the Jews after the overthrow of the Kingdom, they themselves, as we have shown, did not regard the Kingdom of God as existing just prior to the First Advent.
 >p. 604 Vol. 1 Prop. 91
 ### Jews did not realize they were living in the kingdom
