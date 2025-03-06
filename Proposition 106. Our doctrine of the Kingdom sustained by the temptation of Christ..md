@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 106. Our doctrine of the Kingdom sustained by the temptation of Christ.
+
+### Props Mentioned
+83-89 115 161 162 163 164 165
 ### The force of the temptation
 >... *the force* of the temptation: 
 >1. the first temptation is based on the actual existence of hunger and of real power lodged in the Christ; 
