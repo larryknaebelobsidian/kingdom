@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 102. Neither the visible nor the invisible church is the covenanted Kingdom.
+
+### Props Mentioned
+4 49 68 75 81 82 90 91 93 94 96 98-100 101 104 121 160 174 200 203
 ### Combination of visible and invisible church is not the kingdom
 >Having shown that neither one nor the other is the predicted Kingdom, it follows, from the reasons given, that a combination of both *cannot transform* them into such a Kingdom.
 >p. 662 Vol. 1 Prop 102 Obs. 1
