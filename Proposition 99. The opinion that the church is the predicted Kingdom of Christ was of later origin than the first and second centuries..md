@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 99. The opinion that the church is the predicted Kingdom of Christ was of later origin than the first and second centuries.
 
+### Props Mentioned
+72-76 77 78
+
 >In the first centuries Millenarianism was prevalent and generally held, Props. 72-76. It was entertained *in the form* that we now advocate, and, in the very nature of the case, *could not* receive the opinion stated in the Proposition. The Fathers all looked and longed for a speedy appearance of the Kingdom under the personal reign of Jesus. The opposers of Chiliasm in the third century first gave a different interpretation to the church, by which it was transformed into the Kingdom of Christ.
 >p. 644 Vol. 1 Prop 99
 ### Origen's novel view
