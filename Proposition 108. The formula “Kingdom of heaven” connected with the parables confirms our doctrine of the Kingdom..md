@@ -154,9 +154,9 @@ p. 24 Vol. 2 Prop 108 Obs. 3 para. 6
 - torturers
 
 Peters' notes summary
-- entrance *conditioned on brotherly forgiveness
-- servants must *render account to the King
-- *preparatory qualification is requisite
+- entrance *conditioned* on brotherly forgiveness
+- servants must render account to the King
+- *preparatory qualification* is requisite
 
 #### Laborers in the Vineyard
 p. 24 Vol. 2 Prop 108 Obs. 3 para. 6
@@ -169,11 +169,11 @@ p. 24 Vol. 2 Prop 108 Obs. 3 para. 6
 - foreman - calls laborers and pays
 
 Peters' notes summary
-- *preparatory service is demanded
-- all will receive their *just dues*
+- *preparatory service* is demanded
+- all will receive their just dues
 - certain things necessary before entrance given
 - landowner follows *certain course of action*
-- landowner will *eventually influence* the judge
+- landowner will *eventually* influence the judge
 - kingdom = householder/landowner (per Peters)
 
 #### Royal Wedding (Wedding Garment)
@@ -196,10 +196,10 @@ p. 24 Vol. 2 Prop 108 Obs. 3 para. 6
 - many called, few chosen
 
 Peters notes summary
-- parties are invited to the wedding
-- preliminary stage is introduced
-- postponement is indicated until a certain gathering is obtained
-- dispensation of grace is to secure the requisite guests
+- parties are *invited* to the wedding
+- *preliminary* stage is introduced
+- *postponement* is indicated until a certain gathering is obtained
+- dispensation of grace is to secure *the requisite* guests
 
 #### Ten Virgins
 p. 24 Vol. 2 Prop 108 Obs. 3 para. 7
@@ -223,8 +223,8 @@ p. 24 Vol. 2 Prop 108 Obs. 3 para. 7
 Peters' notes summary
 - period of separation
 - time of Kingdom = coming of Bridegroom = marriage
-- indefinite postponement
-- preparatory state of preparation
+- *indefinite postponement*
+- *preparatory state* of preparation
 
 #### Talents
 p. 24-25 Vol. 2 Prop 108 Obs. 3 para. 7
@@ -242,11 +242,11 @@ p. 24-25 Vol. 2 Prop 108 Obs. 3 para. 7
 	- weeping and gnashing of teeth
 
 Peters' notes summary
-- preliminary, intervening period
+- *preliminary, intervening* period
 - allotment of specific duties
-- withdrawal into far country
-- after a long time the lord cometh and reckoneth
-- reward is the assignment of rulership in the Kingdom
+- withdrawal into *a far country*
+- *after a long time* the lord cometh and reckoneth
+- reward is *the assignment of rulership* in the Kingdom
 #### Ten Pounds
 p. 25 Vol. 2 Prop 108 Obs. 3 para. 8
 
@@ -263,8 +263,16 @@ p. 25 Vol. 2 Prop 108 Obs. 3 para. 8
 - command to slay the nobleman's enemies
 
 Peters' notes summary
+- *going* into a far country
+- to obtain the right to a kingdom
+- *then* he will *return*
+- *prolonged* stay
+- kingdom located *where* the nobleman lived
+- he *returns*
+- servants required to be *faithful* during his absence
+- a *reckoning* with his servants on his return
 - pertains to the appearance of the Kingdom
-- assigns to the faithful a rulership in His received Kingdom
+- assigns to the faithful *a rulership* in His received Kingdom
 ### Church-Kingdom theory engrafted on the parables
 >Obs. 4. It would be an easy matter to criticize the inconsistencies and contradictions engrafted on these parables by the Church-Kingdom theory, but such a course is not needed by our argument, seeing that they are readily detected and exposed.
 >p. 30 Vol. 2 Prop. 108 Obs. 4
