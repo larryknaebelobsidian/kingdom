@@ -13,7 +13,7 @@ Copyright © 2021 by The Lockman Foundation. All rights reserved.
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
 ### Props Mentioned
 42-68 73-78 103 108 115 121 123 131 132 133 134 147 148-151 154 159 160 161 162 163 164 166 168 171 175
-### Mistakes lead to error
+### Previous mistakes lead to further error
 >Obs. 1. Taking the establishment of the Kingdom for granted, and overlooking the postponement, has led to a wholesale appropriation by the church of predictions relating *exclusively* to the Kingdom still future.
 >p. 671 Vol. 1 Prop 104 Obs. 1
 ### View held by the Church in the first centuries
