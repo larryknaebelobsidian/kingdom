@@ -154,9 +154,9 @@ p. 24 Vol. 2 Prop 108 Obs. 3 para. 6
 - torturers
 
 Peters' notes summary
-- entrance **conditioned** on brotherly forgiveness
-- servants must **render account** to the King
-- **preparatory qualification** is requisite
+- entrance *conditioned on brotherly forgiveness
+- servants must *render account to the King
+- *preparatory qualification is requisite
 
 #### Laborers in the Vineyard
 p. 24 Vol. 2 Prop 108 Obs. 3 para. 6
@@ -169,11 +169,11 @@ p. 24 Vol. 2 Prop 108 Obs. 3 para. 6
 - foreman - calls laborers and pays
 
 Peters' notes summary
-- **preparatory service** is demanded
-- all will receive their **just dues**
+- *preparatory service is demanded
+- all will receive their *just dues*
 - certain things necessary before entrance given
-- landowner follows **certain course of action**
-- landowner will **eventually influence** the judge
+- landowner follows *certain course of action*
+- landowner will *eventually influence* the judge
 - kingdom = householder/landowner (per Peters)
 
 #### Royal Wedding (Wedding Garment)
