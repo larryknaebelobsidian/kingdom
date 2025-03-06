@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 93. The Covenanted Kingdom is not the Christian Church.
+
+### Props Mentioned
+3 10 19 20 21 22 23 25 27 28 29 31 32 33 38 39 40 41 42 43 44 46 47 48 49 50 51 52 54 55 56 57 58 59 60 61 62 63 65 66 67 68 70 71 72 73 74 75 76 78 83 84 85 94 108 109 110 115 123 133 147 160 161 162 163 203
 ### What is the Church?
 >Obs. 1. The Christian Church is an association of believers in Christ, who, led by the same consciousness of God, truth and spirit, accept of the terms of salvation, repentance and faith, and continue in the use of the means of grace appointed by the Redeemer. It is an association exclusively for religious purposes, separate and distinct from civil or secular interests.
 >p. 609 Vol. 1 Prop. 93 Obs. 1
