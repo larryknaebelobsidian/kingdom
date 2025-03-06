@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.
 
+### Props Mentioned
+42-68 73-78 103 108 115 121 123 131 132 133 134 147 148-151 154 159 160 161 162 163 164 166 168 171 175
+
 >Obs. 1. Taking the establishment of the Kingdom for granted, and overlooking the postponement, has led to a wholesale appropriation by the church of predictions relating *exclusively* to the Kingdom still future.
 >p. 671 Vol. 1 Prop 104 Obs. 1
 
