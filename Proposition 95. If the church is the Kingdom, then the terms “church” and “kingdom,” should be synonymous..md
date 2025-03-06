@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.
+
+### Props Mentioned
+94 106
 ### Examples disprove synonymous
 Obs. 1
 >Take every place where the word church occurs, and either in the passage itself, or in the context, or by a parallel passage, the notion of believers in their associated capacity is understood. But let us take the word kingdom and substitute for it that of church, and the result is seen e.g. in Mark 11:10; Luke 12:32; 22:29; 21:43; Mark 9:47; Acts 14:22, etc.
