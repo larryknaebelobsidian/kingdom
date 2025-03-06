@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 98. That the church is not the Kingdom promised to David’s Son was the belief of the early church.
 
+### Props Mentioned
+43 44 54 55 68 69-75 83 93 96 97 105 137 143 200
+
 >This has already been distinctly shown under Props. 69-75, but some additional remarks to enforce the same can be readily given.
 >p. 641 Vol. 1 Prop. 98
 ### No passage found
