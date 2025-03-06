@@ -12,12 +12,17 @@ tags:
 ---
 # Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.
 
+### Props Mentioned
+11-15 19-73 83-90 125-129 181 
+
 >The contrary is asserted by all opposed to us, and as the Church-Kingdom view mainly obtains as a Scriptural basis its rise and defence from it, it deserves attention.
 >p. 16 Vol. 2 Prop 108
 ### Preliminary thoughts
 >Obs. 1. A few preliminary thoughts are, however, in place. 
->1. (1) The reader will recall our Prop, concerning the mysteries of the Kingdom. The parables were given respecting the secrets of the Kingdom and were in themselves designed *to conceal* some things that were necessary. Lange (*Com*., Matt. 13) correctly shows that the common notion (viz., that they were adapted to weak and carnal understandings) entertained, is erroneous. But Lange does not go far enough, for if we are to take the testimony of Jesus Himself, they were far from being designed for *popular* instruction, being in point of fact employed to conceal some very important truths. Jesus says that He spoke *plainly* to His disciples, but *in parables* to the people, clearly distinguishing between plain and hidden truth. In Matt. 13:13; Mark 4:11; Luke 8:10, He says that the parable is used that the people *may not* comprehend. The reason for this lies in their *foreknown* depravity and rejection of the Messiah, in their being *unable to receive* the intended postponement of the Kingdom and contemplated ingrafting of the Gentiles. To appreciate the parables in *all* their fulness it is *absolutely necessary* to keep in view the Covenant and the Divine Purpose in its fulfilment, as shown in previous Propositions. 
->2. (2) The depth of these parables cannot be apprehended unless we especially keep in mind what afterward occurred, viz., the *postponement* of the Kingdom, which, impressed by the foreknowledge of Jesus, gave *a coloring* to them highly marked and distinctive. 
+>
+>(1) The reader will recall our Prop, concerning the mysteries of the Kingdom. The parables were given respecting the secrets of the Kingdom and were in themselves designed *to conceal* some things that were necessary. Lange (*Com*., Matt. 13) correctly shows that the common notion (viz., that they were adapted to weak and carnal understandings) entertained, is erroneous. But Lange does not go far enough, for if we are to take the testimony of Jesus Himself, they were far from being designed for *popular* instruction, being in point of fact employed to conceal some very important truths. Jesus says that He spoke *plainly* to His disciples, but *in parables* to the people, clearly distinguishing between plain and hidden truth. In Matt. 13:13; Mark 4:11; Luke 8:10, He says that the parable is used that the people *may not* comprehend. The reason for this lies in their *foreknown* depravity and rejection of the Messiah, in their being *unable to receive* the intended postponement of the Kingdom and contemplated ingrafting of the Gentiles. To appreciate the parables in *all* their fulness it is *absolutely necessary* to keep in view the Covenant and the Divine Purpose in its fulfilment, as shown in previous Propositions. 
+>
+>(2) The depth of these parables cannot be apprehended unless we especially keep in mind what afterward occurred, viz., the *postponement* of the Kingdom, which, impressed by the foreknowledge of Jesus, gave *a coloring* to them highly marked and distinctive. 
 >...
 >p. 16 Vol. 2 Prop 108 Obs. 1
 
@@ -47,6 +52,8 @@ tags:
 ### Parables of "the Kingdom of Heaven"
 p. 21 Vol. 2 Prop 108 Obs. 3
 #### Tares and Wheat 
+p. 21-22 Vol. 2 Prop 108 Obs. 3 para. 1
+
 [Matt. 13:24-30](https://read.lsbible.org/?q=matt+13%3A24-30)
 - the Kingdom that the Jews expected is to be introduced as follows; or the Kingdom of heaven that you anticipate requires the following
 - the kingdom comes at the period of the harvest
@@ -63,6 +70,8 @@ p. 21 Vol. 2 Prop 108 Obs. 3
 - harvest = end of the age
 - reapers = angels
 #### Mustard Seed
+p. 22 Vol. 2 Prop 108 Obs. 3 para. 2
+
 [Matt. 13:31, 32](https://read.lsbible.org/?q=Matt.+13%3A31-32)
 - mustard seed
 - man 
@@ -70,13 +79,15 @@ p. 21 Vol. 2 Prop 108 Obs. 3
 - fully grown becomes a tree
 	- birds of air can nest in it
 	
-Peters notes summary
+Peters' notes summary
 - promised Kingdom is not brought into existence at once; demands time and preparation
 - small beginning, great end
 - kingdom = mature tree (not seed, small bush)
 #### Leaven
+p. 22-23 Vol. 2 Prop 108 Obs. 3 para. 3
+
 [Matt. 13:33](https://read.lsbible.org/?q=Matt.+13%3A33); [Luke 13:20-21](https://read.lsbible.org/?q=Luke+13%3A20-21)
-Peters notes summary
+Peters' notes summary
 - leaven = word of God
 - 3 sata of flour = the complete collection of the saints
 ##### Leavening process is preparatory
@@ -90,8 +101,10 @@ Peters notes summary
 >p. 23 Vol. 2 Prop. 108 Obs. 3 para. 3
 
 #### Treasure and Pearl
+p. 23-24 Vol. 2 Prop 108 Obs. 3 para. 4
+
 [Matt. 13:44-46](https://read.lsbible.org/?q=Matt.+13%3A44-46)
-Peters notes
+Peters' notes summary
 - treasure = kingdom
 - pearl = kingdom
 
@@ -107,6 +120,8 @@ Peters notes
 >We prefer the common view, making it equivalent to take up the cross, denying ourselves, forsaking all for Christ, which is the practical evidence of an exercise of Christian faith.
 >p. 28 Vol. 2 Prop. 108 Obs. 3 para. 4 note
 #### Net
+p. 24 Vol. 2 Prop 108 Obs. 3 para. 5
+
 [Matt. 13:47-50](https://read.lsbible.org/?q=Matt.+13%3A47-50)
 - dragnet
 - sea
@@ -116,7 +131,7 @@ Peters notes
 - gathering
 - throwing away
 
-Peters notes
+Peters' notes summary
 - at the end of the age
 - those who drew the net in = angels
 	- separated the wicked from the righteous
@@ -128,6 +143,8 @@ Peters notes
 >p. 24 Vol. 2 Prop. 108 Obs. 3 para. 5
 
 #### King and his Servants (Unmerciful Servant)
+p. 24 Vol. 2 Prop 108 Obs. 3 para. 6
+
 [Matt. 18:23-35](https://read.lsbible.org/?q=Matt.+18%3A23-35)
 - king
 - slaves
@@ -136,12 +153,14 @@ Peters notes
 - reporting slaves
 - torturers
 
-Peters notes summary
+Peters' notes summary
 - entrance **conditioned** on brotherly forgiveness
 - servants must **render account** to the King
 - **preparatory qualification** is requisite
 
 #### Laborers in the Vineyard
+p. 24 Vol. 2 Prop 108 Obs. 3 para. 6
+
 [Matt. 20:1-16](https://read.lsbible.org/?q=Matt.+20%3A1-16)
 - landowner/owner of the vineyard
 - laborers
@@ -149,7 +168,7 @@ Peters notes summary
 - hours - third, sixth, ninth, eleventh
 - foreman - calls laborers and pays
 
-Peters notes summary
+Peters' notes summary
 - **preparatory service** is demanded
 - all will receive their **just dues**
 - certain things necessary before entrance given
@@ -158,6 +177,8 @@ Peters notes summary
 - kingdom = householder/landowner (per Peters)
 
 #### Royal Wedding (Wedding Garment)
+p. 24 Vol. 2 Prop 108 Obs. 3 para. 6
+
 [Matt. 22:1-14](https://read.lsbible.org/?q=Matt.+22%3A1-14)
 - king
 - wedding feast
@@ -181,6 +202,8 @@ Peters notes summary
 - dispensation of grace is to secure the requisite guests
 
 #### Ten Virgins
+p. 24 Vol. 2 Prop 108 Obs. 3 para. 7
+
 [Matt. 25:1-13](https://read.lsbible.org/?q=Matt.+25%3A1-13)
 - ten virgins
 	- 5 foolish
@@ -197,13 +220,15 @@ Peters notes summary
 - bridegroom responds, "I do not know you"
 - stay away
 
-Peters nots summary
+Peters' notes summary
 - period of separation
 - time of Kingdom = coming of Bridegroom = marriage
 - indefinite postponement
 - preparatory state of preparation
 
 #### Talents
+p. 24-25 Vol. 2 Prop 108 Obs. 3 para. 7
+
 [Matt. 25:14-30](https://read.lsbible.org/?q=Matt.+25%3A14-30)
 - slaveowner
 - 3 slaves
@@ -216,13 +241,15 @@ Peters nots summary
 - outer darkness
 	- weeping and gnashing of teeth
 
-Peters notes summary
+Peters' notes summary
 - preliminary, intervening period
 - allotment of specific duties
 - withdrawal into far country
 - after a long time the lord cometh and reckoneth
 - reward is the assignment of rulership in the Kingdom
 #### Ten Pounds
+p. 25 Vol. 2 Prop 108 Obs. 3 para. 8
+
 [Luke 19:11-27](https://read.lsbible.org/?q=Luke+19%3A11-27)
 - nobleman
 	- went to a distant country to receive a kingdom for himself and then return
@@ -235,7 +262,7 @@ Peters notes summary
 - bystanders
 - command to slay the nobleman's enemies
 
-Peters notes summary
+Peters' notes summary
 - pertains to the appearance of the Kingdom
 - assigns to the faithful a rulership in His received Kingdom
 ### Church-Kingdom theory engrafted on the parables

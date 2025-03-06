@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 107. The passages referring to heaven in connection with the saints do not conflict with, but confirm our doctrine of the Kingdom.
 
+### Props Mentioned
+19 45 65 103 120 131 132 135 136 137 140-152 154 
+
 >In urging this Kingdom it is said that such promises as Matt. 5:12, Matt. 19:21, etc., refer to the third heaven, and from thence it is inferred that the Kingdom is the state of the saved, triumphant Church in heaven. But we have already shown (Prop. 108, etc.) that Covenant and prophecy describe a Kingdom here on the earth “*under the whole heaven*”; that for wise purposes the Kingdom has been *postponed*; that Christ now remains in heaven *until* the period of manifestation arrives; that He comes *from*, heaven and the Kingdom is inherited—these and other reasons indicate that there is no conflict between the two, but that, as specifically announced (as e.g. Zech. 14:5) the saints come with Him, and *then* follows the reign over the earth (as e.g. Zech. 14:9)—hence such passages must not be understood as embracing or inferring *the Kingdom*, itself.
 >p. 11 Vol. 2 Prop 107
 ### Many writers concede to earthly promises
