@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah.
 
+### Props Mentioned
+184
+
 >Having alluded to this, it may be well to particularize. The Kingdom, as promised from the details of prophecy, is to exhibit a *visible outward unity*. So much is this admitted by our opponents, that they are seeking for and advocating such a unity. The feeling is almost universal that prediction demands it; and hence all, not finding it yet existing, anticipate it in the future. Isaiah, chs. 60, 61, 62, 65, etc., are conclusive. But, on the other hand, such a state or condition *has never been realized* in the church after eighteen hundred years of trial, and therefore we conclude that the church, not exhibiting the characteristics predicted of the Kingdom and connected with its establishment, is something different from that Kingdom.
 >p. 634 Vol. 1 Prop. 96 
 ### Schism's foretold
