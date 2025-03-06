@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 101. The invisible Church is not the covenanted Kingdom of Christ.
+
+### Props Mentioned
+4 9 10 79 80 84 85 100 108 109 110 175
 ### A new teaching since the reformation
 >This division of the church into the visible and invisible is of comparative recent origin. Dr. Knapp (*Ch. Theol.*, p. 471) traces the use of these terms, saying: “These are, indeed, *new*, and bare come into use since the Reformation.”
 >p. 655 Vol. 1 Prop 101 Obs. 1
