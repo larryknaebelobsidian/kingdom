@@ -8,13 +8,11 @@ tags:
 ---
 # Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.
 
-### Props Mentioned
-3 11 20 21 35 37-45 47 54-68 79 80 81 83 84 129 175 200
-
 NOTE: Scripture quotes from LSB  
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
-
+### Props Mentioned
+3 11 20 21 35 37-45 47 54-68 79 80 81 83 84 129 175 200
 ### The same kingdom they preached
 >Jesus, in teaching His disciples to pray for a future, coming Kingdom, undoubtedly taught them to pray for *the same* Kingdom covenanted, predicted, and which they preached. He certainly desired them to pray understandingly, and, therefore, the views entertained by them respecting the Kingdom remaining uncontradicted to the end (Acts 1:6), and which must have inspired the use of the petition, are certainly correct (comp. Props. 37-45, and 54-68).
 >p. 689 Vol. 1 Prop 105 
