@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.
 
+### Props Mentioned
+133 161 166 
+
 Legacy Standard Bible 
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
