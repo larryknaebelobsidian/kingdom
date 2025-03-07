@@ -8,7 +8,7 @@ tags:
 ---
 # Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ.
 ### Props Mentioned
-[120](Proposition%20120.%20This%20Kingdom%20with%20its%20Millennial%20blessings%20can%20only%20be%20introduced%20through%20the%20power%20of%20God%20in%20Christ%20Jesus..md) 
+6 7 16 21 31 32 33 34 48 49 56 57 58 59 62-65 66 68 71 72 73-78 79-80 81 83 84 88-104 113 [120](Proposition%20120.%20This%20Kingdom%20with%20its%20Millennial%20blessings%20can%20only%20be%20introduced%20through%20the%20power%20of%20God%20in%20Christ%20Jesus..md)  125-129 130 132 133 134 136 138 139 144 145 146 148 150 151 153 159 160 166 167 171 175 200-204
 ### Notice A few considerations
 p. 161-162 Vol. 2 Prop. 121 Obs. 1
 ### Importance per early church doctrine
