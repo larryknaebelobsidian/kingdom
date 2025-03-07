@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 117. The Kingdom of God re-established will form a divinely appointed and visibly manifested Theocracy.
+
+### Props Mentioned
+25 28 31 33 35 45 46 110 154 156 201
 ### God's perfect government - fully consummated
 >Obs. 1. This is *a Theocracy* in deed and in truth, for in this reorganized Kingdom we find the Theocratic idea—*God’s idea of a perfect government* —fully consummated. The Rulership is safely and powerfully lodged in *one Person*, who in Himself unites the human and the Divine, who becomes, according to “the everlasting covenant” and “the sure mercies of David” (Isa. 55:3,4, Alexander’s version), “*the Chief and Commander of nations*.” See Prop, on Humanity, etc.
 >p. 123 Vol 2 Prop. 117 Obs. 1
