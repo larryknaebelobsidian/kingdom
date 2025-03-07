@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.
 
+### Props Mentioned
+18 38-41 121 122 133 137 144 170 172 174
+
 >The restored Theocratic Kingdom is a *holy* Kingdom. God Himself, in the Person of His Son, again condescends to act as earthly Ruler, but as He reveals Himself and His associated Rulers in a higher and more intimate personal relationship, and as the design is to make this a powerful and all-pervading Kingdom, those who stand nationally in a covenanted and elect relationship must become *morally qualified* for its establishment. Hence the predicted repentance and conversion of the nation.
 >p. 75 Vol. 2 Prop 113
 ### Jewish conversion and restoration combined in Romans 11
