@@ -9,6 +9,9 @@ tags:
   - toc
 ---
 # Proposition 115. The Kingdom is not established without a period of violence or war.
+
+### Props Mentioned
+118 160 161 162 163 164 165 166 167 168
 ### Full vindication coming
 >The rise, progress, aims, slaughter, etc., of the confederation of wickedness arrayed against Him (Props. 160, 101, 162, 163) will fully vindicate *the propriety and consistency* of the means used in its downfall; which, as prophecy declares, will be freely and universally acknowledged the world over after its occurrence.
 >p. 102-103 Vol 2 Prop. 115 Obs. 1
