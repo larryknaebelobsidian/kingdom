@@ -9,13 +9,15 @@ tags:
   - toc
 ---
 # Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.
+
+### Props Mentioned
+16 24 115 118 125-129 147 153 154 161 162 163 168 169 
 ### Preliminary considerations
 >The preservation of the people is distinctly predicted, not in the possession of king, government, etc., characteristic of a nation properly organized but, in *a dispersed and utterly disorganized* condition, retaining national peculiarities, such as rites, practices, customs, doctrines, etc.
 >p. 56 Vol. 2 Prop 112 Obs. 1
 
 >The *same nation* which experienced this heavy tribulation is *also* to realize the blessings of restoration. There is nothing so sad and absurd in the interpretation of the Bible as that, alas! so prevalent with many, to give all the threatening, curses, and afflictions *to* the Jews, and appropriate the promises and blessings *to* the Gentiles or *to* the Church.
 >p. 57 Vol. 2 Prop 112 Obs. 1
-
 
 >1. (1) that certain prophecies have never, in any sense, been fulfilled, as Ezek. chs. 36, 39, etc.; Isa. 11:11, 12, etc.; 
 >2. (2) that the promises of Deut, and Lev. cannot be explained in any other way than referring to the Jewish nation; 
@@ -30,6 +32,22 @@ tags:
 ### Predicted Restoration is not the return from Babylon
 >Obs. 2. It is requisite here to meet another objection urged against our view, on the ground that the predictions of restoration were met by the return from Babylon.
 >p. 59 Vol. 2 Prop 112 Obs. 2
+
+>... the promises of restoration were never realized in the return from Babylon; 
+>1. not in the King that was to reign over them, not in the magnitude of the return, 
+>2. not in the dwelling safely, 
+>3. removal of sorrow, 
+>4. imparting of prosperity, etc., 
+>5. not in the union of the two Kingdoms, or 
+>6. in the protection from enemies and 
+>7. perpetuity of the Kingdom, or 
+>8. in a manifestation of the Branch, or 
+>9. in repentance of the nation occurring as described, or 
+>10. in an engrafting of Gentiles, or 
+>11. in a gathering of nations against Jerusalem and a sudden deliverance, or 
+>12. in a fearful overthrow of nations and corresponding exaltation of the nation, or 
+>13. in a removal from nations so far off that they then did not know them (Zech. 7:14), etc.
+>p. 59-60 Vol. 2 Prop 112 Obs. 2 reformatted
 
 >It is amazing that believers in Holy Writ can overlook the fact that not only prophets before, but prophets at and *after, the return from Babylon* predict *the same glorious restoration*. restoration. Let any one e.g. compare Zechariah, Haggai, Malachi, with previous prophets and a restoration *very different* from the one experienced is seen to be foretold.
 >p. 60 Vol. 2 Prop 112 Obs. 2
