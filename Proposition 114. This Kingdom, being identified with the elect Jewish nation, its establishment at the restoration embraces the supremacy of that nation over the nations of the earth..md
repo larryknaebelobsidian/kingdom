@@ -11,6 +11,9 @@ tags:
 ---
 # Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.
 
+### Props Mentioned
+16-113 118 156 168 173 174
+
 >This follows *legitimately* in view of the mutual and inseparable relationship. The Theocratic-Davidic Kingdom committed to, and organized in, that nation, makes it *the special depository* of the trust of the Kingdom itself. It is covenanted to the nation, and only in and through the nation, by the power of David’s Son, will it be re-established, and from this establishment extend its sway over the nations of the earth. The result is, that the nation, *so highly* favored and honored, must, in virtue of so distinguished a relationship, sustain *a certain well-defined pre-eminence* among and over the other nations. It is the natural outgrowth of Covenant and promise; the result of Theocratic ordering.
 >p. 92 Vol. 2 Prop 114
 ### Confirmed by direct teaching of the prophets
