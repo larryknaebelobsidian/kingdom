@@ -11,7 +11,7 @@ tags:
 ---
 # Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.
 ### Props Mentioned
-[163](Proposition%20163.%20This%20Kingdom%20will%20be%20preceded%20by%20the%20predicted%20“battle%20of%20that%20great%20day%20of%20God%20Almighty.”.md) [49](Proposition%2049.%20The%20covenants%20being%20in%20Revelation,%20the%20foundation%20of%20the%20Kingdom,%20must%20first%20be%20received%20and%20appreciated..md) 
+[49](Proposition%2049.%20The%20covenants%20being%20in%20Revelation,%20the%20foundation%20of%20the%20Kingdom,%20must%20first%20be%20received%20and%20appreciated..md) 107 134 [163](Proposition%20163.%20This%20Kingdom%20will%20be%20preceded%20by%20the%20predicted%20“battle%20of%20that%20great%20day%20of%20God%20Almighty.”.md) 
 
 >We have conclusively shown that the covenant *necessitates* a resurrection; that the description of David’s Son, who is to reign, demands a descendant of David possessing, in some way, immortality, seeing that His rule is everlasting, thus implying a resurrection—that a resurrection is predicted of Him, etc.—and now the fair inference is that those selected to be *His co-heirs*, being gathered out during a long period of time, and having died “without receiving the promises,” *must also* experience the power of the resurrection before they can inherit the Kingdom of God.
 >p. 227 Vol 2 Prop. 125
