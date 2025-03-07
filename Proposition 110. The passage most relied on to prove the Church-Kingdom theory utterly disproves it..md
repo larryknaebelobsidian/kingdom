@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it.
 
+### Props Mentioned
+19-23 38-49 54 56 57 58 59 60 61 62 63 64 65 66 67 68 84 173 174
+
 >Desirous to call especial attention to this passage of Scripture, it is reserved for a separate Proposition. In a careful reading and study of the Church-Kingdom theory, it will be found *the most frequently* quoted, and adduced as an authority, from Origen down to recent writers as Dr. McCosh, and including a host. In view of the learning, ability, and high standing of those who thus employ it, this Scripture (viz., Luke 17:21) deserves marked attention.
 >p. 39 Vol. 2 Prop 110
 #### Luke 17:20-21
