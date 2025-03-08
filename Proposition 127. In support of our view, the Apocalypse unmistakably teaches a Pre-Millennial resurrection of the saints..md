@@ -63,7 +63,7 @@ p. 288-291 Vol. 2 Prop. 127 Obs. 10
 >1. to vindicate the justice of God; 
 >2. to prove the truthfulness and reality of His representations and mercy; 
 >3. to apportion “the few or many stripes” that the guilty merit; 
->4. to fulfil His declaration that all the wicked snail see and acknowledge the Divine power; 
+>4. to fulfil His declaration that all the wicked shall see and acknowledge the Divine power; 
 >5. to show that death itself, as many fondly hope, is no refuge for the sinner; 
 >6. that a res. unto eternal life is the special gift of God through Jesus Christ; 
 >7. to contrast the condition of the res. saints with their own; 
