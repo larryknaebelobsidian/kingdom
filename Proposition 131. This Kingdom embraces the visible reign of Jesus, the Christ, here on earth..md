@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth.
 
+### Props Mentioned
+49 65 79 80 81 82 83 84 85 89 111 114 116 117 120 121 122 132 133 134 135 136 137 138 140 144 146 150 152 154 159 160 167 168 169 177 183 199 200 201 202 203 204 206 207
+
 >... *the entire analogy of prediction demands a visible reign.*
 >p. 340 Vol. 2 Prop. 131
 ### Not doubted until the Alexandrian system
