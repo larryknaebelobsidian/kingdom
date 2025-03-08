@@ -29,7 +29,7 @@ Is Peters' "translation" the same as the rapture?
 
 Is there more than one rapture per Peters ("translation" of living saints - this is the word used by Peters)? If so, how many?
 
-Who gets translated and when? (this seems to be related to rewards ([Prop. 135](Proposition%20135.%20The%20doctrine%20of%20the%20Kingdom%20in%20full%20accord%20with%20the%20Scriptural%20doctrine%20of%20the%20judgment%20of%20believers,..md)) for the faithful) 
+Who gets translated and when? (this seems to be related to rewards ([Prop. 135](Proposition%20135.%20The%20doctrine%20of%20the%20Kingdom%20in%20full%20accord%20with%20the%20Scriptural%20doctrine%20of%20the%20judgment%20of%20believers..md)) for the faithful) 
 ## Conflagration
 Prop. 149 - Peters says the conflagration comes BEFORE the millennium.  How does this agree with Revelation 21 (AFTER) Revelation 20? Peters' conflagration is a renewing of the heavens and earth, not a total vaporization of them.  Precisely how some humans/animals survive is not known.
 
