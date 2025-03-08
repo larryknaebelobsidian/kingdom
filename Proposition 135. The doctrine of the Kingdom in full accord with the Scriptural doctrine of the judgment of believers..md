@@ -11,6 +11,9 @@ tags:
 ---
 # Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.
 
+### Props Mentioned
+154
+
 >The Theocratic Kingdom contemplating for its rulers, associated with the Christ, the saints, must necessarily make provision for the same by a *present and future* judgment of believers. By this method the requisite qualifications for future kingship and priesthood are made manifest.
 >p. 385 Vol. 2 Prop. 135
 
