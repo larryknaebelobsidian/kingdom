@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”
 
+### Props Mentioned
+130 154 156
+
 >We now come to one of those beautiful, most forcible evidences of the truthfulness of our position, which *no other theory* can present. For, the Divine Spirit, taking *part* of the phrase “the day of the Lord,” etc., viz., *the morning* or introductory of that day, allies with it such events, identified fully with the Millennial era, that the student can be at *no loss* to distinguish and locate the period of time intended. “*The morning*” is so widely different in blessing, judgment, etc., from the beginning of this present dispensation, that *no comparison* can be instituted between them. The fact, too, that this figure of “*the morning*?’ is employed by writers separated by ages; that they coincide in attributing to it the same results; that they preserve a wonderful unity in the use of it, establishes us the *more firmly* in a doctrine universally received by the Early Church.
 >p. 414 Vol. 2 Prop. 139
 ### The bright and morning star
