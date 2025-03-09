@@ -11,6 +11,8 @@ tags:
 Legacy Standard Bible
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
 Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https://www.lsbible.org/)
+### Props Mentioned
+None
 
 >This follows from previous Propositions, especially the one relating to the resurrection (which was shown, as in Christ’s own person, to be expressed by a renewed or new birth or regeneration through the power of the Spirit), that this Kingdom can only be established, as promised, “*in the regeneration*." For, its rulers are immortal and reign ever more. Embracing a most precious promise, it is worthy of a more extended notice, making it confirmatory of our position.
 >p. 473 Vol. 2 Prop. 145
