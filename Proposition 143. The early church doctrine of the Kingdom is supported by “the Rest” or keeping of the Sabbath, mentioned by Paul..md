@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 143. The early church doctrine of the Kingdom is supported by “the Rest” or keeping of the Sabbath, mentioned by Paul.
 
+### Props Mentioned
+130 151 159 160
+
 >If it can be shown that the Sabbath was regarded as typical of the Kingdom of the Messiah as covenanted, and of the Millennial era, and then if it is found that Paul adopts the phraseology current on this point and uses it, *without change of meaning*, in a way to confirm the opinions existing, it forms an additional argument in favor of the primitive view of the Kingdom.
 >p. 448 Vol.2 Prop. 143
 ### Jews viewed the kingdom as the seventh millenary of the world
