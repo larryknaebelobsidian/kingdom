@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.
 
+### Props Mentioned
+132 133 134 154
+
 >Believers now by faith come “*to an innumerable company of angels*” (Heb. 12:22, or “to myriads of angels in an assembly or joyful convocation,” Barnes, *Com. loci*). These angels were employed preparatory to the Theocracy, at the introduction of the Theocracy, etc., and it is most reasonable to believe, as taught, that they will continue to be interested in, and engaged in behalf of, the Theocracy when gloriously restored.
 >p. 618 Vol. 2 Prop. 157
 ### Supremacy over all angels
