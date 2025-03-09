@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 148. This Kingdom embraces the new heavens and new earth.
 
+### Props Mentioned
+159
+
 >This is so *distinctly taught* by Isaiah (chs. 65 and 66), by the pious Jews and Early Church, by a long line of eminent divines, including even our opponents who locate the Kingdom of God in it, and by the magnificent closing (Rev. 21) of Revelation, that it demands no special proof.
 >p. 499 Vol. 2 Prop. 148
 ### "New" also means renewal or restoration
