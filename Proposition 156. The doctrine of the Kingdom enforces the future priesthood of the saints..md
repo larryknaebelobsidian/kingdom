@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.
 
+### Props Mentioned
+62 64 65 84 86 114 130 131 135 140 141 153 155 159 167 171 172 184 204
+
 >The promise is that the saints shall be both “kings and *priests*” (Rev. 1:6, and 5:10, and 20:6) in the coming Kingdom. Prop. 154 shows the civil relationship of the saints, this one relates to the religious, for, like Christ, the Theocratic King, they are *both civil and religious rulers*. The nature of a Theocracy demands, in view of the inseparable union of State and Church, such a leadership in order to secure the requisite purity and perfection.
 >p. 607 Vol. 2 Prop. 156
 
