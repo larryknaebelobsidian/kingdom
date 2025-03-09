@@ -10,6 +10,9 @@ tags:
   - toc
 ---
 # Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.
+
+### Props Mentioned
+49 126 133 134 137 140 143 144 145 146 153
 ### In accordance with the views of the Jews
 >Obs. 1. As stated in preceding Proposition, the language of Peter was in accordance with the views of the Jews.
 >p. 510 Vol. 2 Prop. 150 Obs. 1
