@@ -17,6 +17,8 @@ Managed in partnership with Three Sixteen Publishing Inc. [lsbible.org](https:/
 
 2 Peter 3:10-13 (LSB)
 But the day of the Lord will come like a thief, in which the heavens will pass away with a roar and the elements will be destroyed with intense heat, and the earth and its works will be found _out_. 11 Since all these things are to be destroyed in this way, what sort of people ought you to be in holy conduct and godliness, 12 looking for and hastening the coming of the day of God, because of which the heavens burning will be destroyed, and the elements will melt with intense heat! 13 But according to His promise we are looking for new heavens and a new earth, in which righteousness dwells.
+### Props Mentioned
+159 
 
 >This *is self-evident*, since this Kingdom is identified with the establishment of “the new heavens and new earth” of Isa. 65:17, and 66:22. Peter *expressly* alludes to these two passages in Isaiah and *appropriates them* as descriptive of “the new heavens and new earth” presented by himself, in the specific phraseology, “*according to promise*.” The *Millennial* new heavens and new earth *thus claimed* by the Apostle, and which are associated with the Kingdom itself, are *necessarily preceded* by the fire described. As this forms the leading objection to our doctrine, and as some have wrongfully (against *the most explicit* language of Peter) endeavored to locate this fire *after* the thousand years, it is proper to thus definitely state the facts and assume their weight.
 >p. 506 Vol. 2 Prop. 149
