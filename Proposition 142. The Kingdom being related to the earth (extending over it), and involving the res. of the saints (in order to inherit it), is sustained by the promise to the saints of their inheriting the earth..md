@@ -9,6 +9,9 @@ subjects:
   - intermediate state
 ---
 # Proposition 142. The Kingdom being related to the earth (extending over it), and involving the res. of the saints (in order to inherit it), is sustained by the promise to the saints of their inheriting the earth.
+
+### Props Mentioned
+33 49 50 51 81-89 107 116 117 118 121 122 131 132 133 137 138 139 140 141 143 146 148 151 154 158 168 169 170 203
 ### The meek shall inherit the earth
 >Obs. 2. The declaration of Jesus, Matt. 5:5, that *the meek shall inherit the earth*, ought to be decisive. But men under the influence of a plastic system of interpretation, urged on by a preconceived notion, leave the plain meaning of the promise and explain it away.
 >p. 439 Vol. 2 Prop. 142 Obs. 2
