@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 146. This Kingdom is associated with the deliverance of creation.
 
+### Props Mentioned
+49 119 120 121 125 142 143 144 149 150 152
+
 >The Kingdom itself *being redemptive* in its intent and work, brings deliverance from the curse, however widespread, restores forfeited gifts, and even bestows riches never before conferred upon man or the earth.
 >p. 479 Vol. 2 Prop. 146 
 
