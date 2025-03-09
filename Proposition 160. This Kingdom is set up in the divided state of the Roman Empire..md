@@ -10,6 +10,8 @@ tags:
   - toc
 ---
 # Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.
+
+
 ### When Roman empire divided into ten-toed form
 >Without repeating the reasoning elsewhere given, it is sufficient to say that this Kingdom, according to Daniel 7, is received by the Son of man *after* the Fourth Beast or Roman Empire is divided; *after* the rise of the ten horns and little horn, and *at* the very time that the judgments of God are to be poured out upon *the divided* Empire. The First Advent took place *when* the Empire was consolidated, the Second will occur *when* it is divided into its ten-toed form; for the smiting is upon *the feet* of the image, the reception and inheriting of the Kingdom is *after* the saints have long suffered from the arrogance, etc., of the powers arising out of this Empire, and these powers are to meet an awful infliction of tribulation.
 >p. 639 Vol. 2 Prop. 160 Obs. 1
