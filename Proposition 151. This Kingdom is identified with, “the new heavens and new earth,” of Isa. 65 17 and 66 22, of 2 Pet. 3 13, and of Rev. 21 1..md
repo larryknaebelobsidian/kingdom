@@ -10,6 +10,8 @@ tags:
 ---
 # Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65:17 and 66:22, of 2 Pet. 3:13, and of Rev. 21:1.
 
+### Props Mentioned
+79 80 118 122 147 148 149 158 159 170
 ### Chapter sequence does not mean time sequence
 >Before showing the latter, the reader ought to determine that the separation of John’s account of “the new heaven and new earth” from its direct relationship to the Millennial age in ch. 20, or the finding it recorded after the account given of that era (and upon which so much stress is laid by *some*), is *no proof whatever* that its realization must also succeed that period. This is so fully granted by many of those who differ from us, that it should not, in itself, be used as an argument against us. It eminently deserves (to avoid confusion, etc.) a separate and distinctive description, which, connected by parallel utterances, sufficiently, as a comparison evinces, identifies the period of its coming.
 >p. 525 Vol. 2 Prop. 151 Obs. 2
