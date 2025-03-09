@@ -7,6 +7,8 @@ tags:
   - toc
 ---
 # Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end.
+### Props Mentioned
+79 80 140 144 148 151 155
 
 >It is asserted by some (as e.g. Calvin, *Insti.*, B. 3, ch. 25) that our doctrine limits the reign of Christ *only* to the one thousand years. This is incorrect. While some Millenarians explain the “delivering up of the Kingdom” somewhat similar to our opposers, yet even nearly all—if not all—of these, as far as we have any knowledge of their writings, affirm that *Jesus continues to* reign in the same Kingdom, subordinately to the Father, *after* the close of the thousand years. The reasons for *the perpetuity* of the Christ’s Kingdom will now be presented, and the only passage that seems to militate against it will be examined.
 >p. 630 Vol. 2 Prop. 159
