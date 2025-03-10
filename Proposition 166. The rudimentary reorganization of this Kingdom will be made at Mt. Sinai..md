@@ -10,7 +10,7 @@ tags:
 ---
 # Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.
 ### Props Mentioned
-[121](Proposition%20121.%20This%20Kingdom,%20of%20necessity,%20requires%20a%20Pre-Millennial%20Personal%20Advent%20of%20Jesus%20Christ..md) [130](Proposition%20130.%20The%20Kingdom%20is%20preceded%20by%20a%20translation%20of%20the%20living%20saints..md) 
+83 107 115 118 [121](Proposition%20121.%20This%20Kingdom,%20of%20necessity,%20requires%20a%20Pre-Millennial%20Personal%20Advent%20of%20Jesus%20Christ..md) [130](Proposition%20130.%20The%20Kingdom%20is%20preceded%20by%20a%20translation%20of%20the%20living%20saints..md) 163 169
 
 >The organization of the Theocracy was affected *before* the Jewish nation entered Palestine. The appointment of officials, the giving of laws, the commandments to destroy the enemies of God, etc., were issued at Mt. Sinai. It is eminently suitable that the *reorganization* of the same should be effected in the same place.
 >p. 17 Vol. 3 Prop 166
