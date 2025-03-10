@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 169. This Theocratic Kingdom embraces the marriage of Christ to the New Jerusalem.
 
+### Props Mentioned
+79 84 118 148 149 150 151 168 170 
+
 >Our object under this heading is merely to show *who* the Bride is, and to explain *what* is meant by the marriage relation.
 >p. 39 Vol. 3 Prop. 169
 ### Bride is the New Jerusalem
