@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 167. The re-establishment of this Kingdom embraces also the reception of a New Revelation of the Divine Will.
 
+### Props Mentioned
+154 156 166 171
+
 >This *necessarily* results, for while the Theocratic-Davidic Kingdom is restored, its restoration is accompanied by great and wonderful changes. The inaugurated rule of the Theocratic King, as predicted, the participation of the saints in such rule, the worldwide extent of the Kingdom, the supremacy of the Jewish nation, the entering upon a new age or dispensation, the change that will result in the condition of believers in this Kingdom, etc., *calls for a revelation* by which not only the official position of the saints is to be governed, but that of the Jewish and Gentile nations is to be controlled.
 >p. 29 Vol. 3 Prop. 167
 ### Sufficiency of Scripture down to the Second Advent
