@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 168. This Kingdom has its place of manifested royalty.
+
+### Props Mentioned
+49 122 142 169 177
 ### Jerusalem
 >If the Kingdom is such a Theocratic-Davidic one *here on earth*; if it claims the Throne and Kingdom of David as its *central basis*; and if this Throne and Kingdom is, as promised, *to be re-established*; then, if the reign of David’s Son is described, there should be undoubted references to His reigning in the place, and exhibiting His royalty in the very place *where* David’s throne was located, viz., *in Jerusalem*.
 >p. 32 Vol. 3 Prop. 168
