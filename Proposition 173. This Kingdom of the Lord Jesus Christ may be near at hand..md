@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.
+
+### Props Mentioned
+59-65 111 112 113 130 143 161
 ### Precise time not given
 >Obs. 1. The *precise time* for the Kingdom to be established is not given.
 >p. 92 Vol. 3 Prop. 173 Obs. 1
