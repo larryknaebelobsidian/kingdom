@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.
 
+### Props Mentioned
+4 57 58 143 146 
+
 >The Theocratic arrangement binds together into one the Church and State, manifesting in wonderful condescension God ruling as earthly Ruler in and through David’s Son. This by no means demands the restoration of Mosaic sacrifices, seeing that the King, in virtue of His sinlessness, perfection, etc., made *one sacrifice* which is *amply sufficient* to cover all redemptive purposes in the past, present and future. Heb. 7:22-27. The perfection and completeness of the sacrifice is insisted upon, as e.g. Heb, 10:1-18. There is nothing, therefore, in the Kingdom itself, i.e. in a Theocratic rule, which should cause us either directly or by implication, to advocate a return to sacrifices, which “*could not make perfect*” (Heb. 9:9), which were “*a shadow of good things to come*” (Heb. 10:1), and which would seem by their restoration to lessen the value and perfection of Christ’s offering of Himself. Indeed, if, as our argument indicates, this Kingdom, by virtue of Christ’s work and the efficacy of His blood in sealing and fulfilling the covenant, is a bringing the world back into its Edenic state as it would have existed without the introduction and results of human depravity, then such a restored state, *to exhibit justice* to the merits which brings in its restoration, should be one *in which bloody sacrifices do not exist*.
   p. 83 Vol. 3 Prop 172 
 ### Not taught in Bible; Not commemorative, not retrospective
