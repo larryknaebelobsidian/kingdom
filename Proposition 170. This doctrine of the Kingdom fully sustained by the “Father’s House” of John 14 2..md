@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.
 
+### Props Mentioned
+43 69 70 71 72 73 74 75 76 121 152 168 169
+
 >It is important to consider this Scripture referred to, since it is supposed by many to form an objection to our doctrine of the Kingdom; whereas correctly apprehended according to the analogy of Holy Writ, it forms an additional proof in behalf of our position.
 >p. 53 Vol. 3 Prop. 170
 ### Extravagant interpretations
