@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 164. This Kingdom ends the Gentile-domination.
 
+### Props Mentioned
+24 46 47 48 49 54 55 65 66 69 72 74 75 81 82 86 114 116 117 119 120 121 123 124 126-130 131 132 133 134 137 138 139 140 142 144 145 146 147 148-152 154 156 159 160 161 162 163 168 174 175 202 203 204 205 206 207
+
 >King Jesus is *the covenanted King*, not only over His special inheritance, the Jewish nation, but also over all the earth; and, as already abundantly proven from Scripture, the time is surely coming when all governments will be overthrown, making place for *the universal Kingdom* of the Lord Jesus Christ.
 >p. 773 Vol. 2 Prop. 164
 ### Under Gentile power until ...
