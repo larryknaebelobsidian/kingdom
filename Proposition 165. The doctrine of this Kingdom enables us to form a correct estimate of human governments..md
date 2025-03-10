@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 165. The doctrine of this Kingdom enables us to form a correct estimate of human governments.
+
+### Props Mentioned
+79 
 ### Rushing leads to incorrect conclusions
 >Obs. 1. In the consideration of this subject men have been apt to rush to extremes, presenting conclusions which are not warranted by Scripture.
 >p. 11 Vol. 3 Prop. 165 Obs. 1
