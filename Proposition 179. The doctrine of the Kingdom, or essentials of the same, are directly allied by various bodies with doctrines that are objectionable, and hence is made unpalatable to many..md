@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 179. The doctrine of the Kingdom, or essentials of the same, are directly allied by various bodies with doctrines that are objectionable, and hence is made unpalatable to many.
 
+### Props Mentioned
+135 171 178
+
 >It is a sad fact that many persons not being able to discriminate between truth and error, reject both because they happen to be thus connected in the faith of some denomination or sect.
 >p. 260 Vol. 3 Prop. 179
 ### Christadelphians
