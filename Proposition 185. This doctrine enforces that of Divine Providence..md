@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 185. This doctrine enforces that of Divine Providence.
 
+### Props Mentioned
+2 50 79 80
+
 >God is not indifferent to the establishment of this Theocratic Kingdom, and His divine oversight respecting it is constantly made manifest, e.g. in the selection, training, and covenant with Abraham, in the selection, adoption, and covenant with David, in the selection of Mary and the birth of Jesus, in the announcements made of His Purpose, in the provisions established to carry out to ultimate completion the Theocratic conception.
 >p. 340 Vol. 3 Prop. 185
 ### God is personally interested
