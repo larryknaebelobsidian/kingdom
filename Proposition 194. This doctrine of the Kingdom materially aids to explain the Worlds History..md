@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 194. This doctrine of the Kingdom materially aids to explain the Worlds History.
 
+### Props Mentioned
+50 57 79 80 81 86 114 118 124 127 130 154 160-163
+
 >With a knowledge of this Kingdom, its germ in the Covenant, its divine institution, its withdrawal, its tender and rejection, its postponement, its preparatory stages, and, above all, its final restoration under the Messiah, it is possible to explain the history of the world in a consistent manner.
 >p. 427 Vol. 3 Prop. 194
 ### Whole of history is a divine revelation
