@@ -8,6 +8,8 @@ tags:
 ---
 # Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”
 
+### Props Mentioned
+44 66 69 70-78 111 121 122 153 154 156 164 174 180 197 199 
 ### Christ and Messiah are titles
 >That “Christ” and “Messiah” are titular ascriptions, and not merely doctrinal words, has been already presented under Props. 153, Obs. 2 and 70, Obs. 11, and especially 199, Obs. 2. Many writers, some not in sympathy with us, fully indorse its Theocratic, Kingly title. The importance of this is so fully sustained by our entire argument, that a mere reference to some things pertaining to it is all that is necessary for a fitting conclusion, indicating how, by reason of a clearer conception of its meaning and design, it aids us in preaching “the Christ.”
 >p. 567 Vol. 3 Prop. 205
