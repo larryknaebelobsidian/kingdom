@@ -9,6 +9,9 @@ tags:
   - toc
 ---
 # Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.
+
+### Props Mentioned
+5 56-75 161 162 163 174 180
 ### Kingdom gives credibility to God's Word
 >Notice: 
 >(1) the Abrahamic covenant out of which arises the Kingdom; 
