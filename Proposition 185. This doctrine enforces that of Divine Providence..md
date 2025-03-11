@@ -15,12 +15,12 @@ tags:
 >p. 340 Vol. 3 Prop. 185
 ### God is personally interested
 >Obs. 1. God has 
->1. a Divine Sovereignty and exercises it (Props. 79, so); 
+>1. a Divine Sovereignty and exercises it (Props. 79, 80); 
 >2. a definite Divine Purpose and will perform it (Isa. 14:26, 27); 
 >3. a predetermined Theocratic Plan, which will be accomplished (Prop. 2); 
 >4. oath-bound designs, which will be realized (Prop. 50); 
->5. an omnipotence in Providence that is irresistible (Jer. 18:2—G); 
->6. an end in view that will result according to His will (Horn. 9:9-21). 
+>5. an omnipotence in Providence that is irresistible (Jer. 18:2-6); 
+>6. an end in view that will result according to His will (Rom. 9:9-21). 
 >From the beginning to the end of this doctrine, as given in Scripture, from the inception of the Theocratic idea to its final perfect realization, God stands before us as One who *personally interested* in the matter, and who, for the sake of His own honor, praise, and glory, overrules all to bring forth, at the appointed time, a glorious consummation that shall vindicate and embellish the Divine perfections enlisted and employed in this grand redemptive work.
 >p. 340 Vol. 3 Prop. 185 Obs. 1 -- reformatted
 ### Providence of God richly evidenced
@@ -44,11 +44,11 @@ tags:
 ### Special providence of God
 >Obs. 3. The *special* Providence of God is most remarkably enforced and illustrated 
 >1. in the birth and life of David’s Son, and 
->2. in the continuous provision made for the future re-establishment of the Theocracy under the supervision of this Son and His associated rulers. It is seen 
->3. in the striking acts of that life and its results; it is witnessed 
->4. in the perpetuation of the Church by which a people are gathered out for the Kingdom; it is seen 
->5. in the qualified and waiting King; it is witnessed 
->6. in the people, designed for associated rulers, 
+>2. in the continuous provision made for the future re-establishment of the Theocracy under the supervision of this Son and His associated rulers. 
+>3. It is seen in the striking acts of that life and its results;  
+>4. it is witnessed in the perpetuation of the Church by which a people are gathered out for the Kingdom; 
+>5. it is seen in the qualified and waiting King;  
+>6. it is witnessed in the people, designed for associated rulers, 
 >7. in the process of formation. 
 >8. The announcement, 
 >9. the star,
