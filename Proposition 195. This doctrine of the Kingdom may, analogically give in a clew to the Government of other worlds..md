@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds.
+
+### Props Mentioned
+79 80 81 82 179
 ##### Personal Note: I find this a strange proposition that I had never seriously considered before 
 
 >The astronomical idea of the vast plurality of worlds (which Paine and others so offensively parade over against the reasonable representations of Newton, Boyle, Bacon, Chalmers, Fuller, Brewster, etc.) is in all probability the correct one. The Scriptures dealing almost exclusively with man and this world, still indirectly, by speaking of intelligences outside of this world and by various references to the creative power of God, the magnitude of His work, etc., make the view a consistent one.
