@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 197. This Kingdom, although visible with a world dominion, is also necessarily spiritual.
 
+### Props Mentioned
+35 48 49 58 67 68 111 116 117 120 122 131 153 154 155 156 171 203
+
 >While a purely material, naturalistic Kingdom, without spirituality, is unscriptural, so likewise an entire spiritual Kingdom, without the sanctified union of the material or natural, is utterly opposed to the Word of God.
 >p. 460 Vol. 3 Prop. 197
 ### Visible, external, world-dominion
