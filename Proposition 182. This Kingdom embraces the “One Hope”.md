@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 182. This Kingdom embraces the “One Hope”
 
+### Props Mentioned
+34 35 120 121
+
 >Our argument presents the “*One Hope*” (Eph. 4:4), that actuated the ancient worthies, the pious Jews at the First Advent, the disciples, apostles, and early believers, and many an humble believer down to the present day. This hope is *continuously expressed* not only in this, but in the preceding dispensation. Abraham “believed in hope” (Rom. 4:18) and so do his seed; a hope expressed in the covenants, reiterated by the prophets, renewed by the resurrection of Jesus Christ, and preached by the apostles; a hope centred in God (Jer. 14:8 and 17:7, 13, etc.), manifested in Jesus (1 Tim. 1:1; Col. 1:27; 1 Thess. 1:2, 3, etc.), and wrought by the Spirit (Rom. 15:13).
 >p. 309 Vol. 3 Prop. 182 
 ### Vagueness about the "One Hope"
