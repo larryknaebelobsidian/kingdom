@@ -66,7 +66,7 @@ tags:
 
 >In other words, Jesus in every respect is qualified to carry out the remainder of the programme as given by the Divine Purpose. 
 >He is David’s Son as covenanted; 
->he is Divine (Isa. 9:O; Zech. 13:9; Jer. 23:6; Ps. 2:7; Rom. 9:11; 1 Tim. 3:16; Tit. 1:3; 1 John 4:15; Heb. 1:8; 1 John 5:20, etc.); 
+>He is Divine (Isa. 9:O; Zech. 13:9; Jer. 23:6; Ps. 2:7; Rom. 9:11; 1 Tim. 3:16; Tit. 1:3; 1 John 4:15; Heb. 1:8; 1 John 5:20, etc.); 
 >He is One and equal with the Father, (John 14:7-11; 10:30; 12:45; 17:10, etc.); 
 >He is the Image of God, (Phil. 2:6; Col. 1:15; 2:9, etc.); 
 >He possesses eternity (Heb. 13:18; Rev. 1:17, 18); 
