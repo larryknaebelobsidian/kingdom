@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 189. It is only through this doctrine of the Kingdom that the Apocalypse can or will be understood and consistently interpreted.
 
+### Props Mentioned
+16 53 61-63 158
+
 >The reason for this lies in the simple fact that it announces the Coming and the events connected with the Advent of the Theocratic King. Now to enter fully into its spirit and appreciate its force, to form an adequate conception of the testimony of Jesus either as a whole or in its several aspects, there must of necessity be a *previous* acquaintance with the covenants and a correct *apprehension* of the burden of prophecy based on those covenants, resolving itself into the promised Kingdom.
 >p. 366 Vol. 3 Prop. 189
 ### Revelation begins and ends with the Kingdom idea
