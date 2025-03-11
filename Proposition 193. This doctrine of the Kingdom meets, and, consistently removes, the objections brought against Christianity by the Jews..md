@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 193. This doctrine of the Kingdom meets, and, consistently removes, the objections brought against Christianity by the Jews.
 
+### Props Mentioned
+24 34 46-50 57 61 63 111 112 114 125 159 199 200
+
 >This is a wide field, and we can only briefly point out how, from our standpoint, *a consistent answer* can be given to the objections urged by Jewish unbelief against the reception of Jesus Christ.
 >p. 408 Vol. 3 Prop. 193
 ### Departure from chiliasm lead to fewer Jewish conversions
