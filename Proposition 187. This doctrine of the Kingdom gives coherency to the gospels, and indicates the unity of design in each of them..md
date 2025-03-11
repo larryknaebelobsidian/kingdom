@@ -8,6 +8,9 @@ tags:
 ---
 # Proposition 187. This doctrine of the Kingdom gives coherency to the gospels, and indicates the unity of design in each of them.
 
+### Props Mentioned
+40 44 67 68 69 70 71 72 73 110 205
+
 >This must follow, provided the doctrine of the Kingdom is as leading and doctrinally fundamental as represented. It has been objected to the gospels that they are greatly composed of detached, fragmentary parts strung together without unity of design, presenting varied, and, in a measure, contradictory, sketches of the life of Jesus. This is effectually disproven by looking at the gospels from the Kingdom standpoint; for then it appears that each writer had *a definite object* in view, viz., to evince unity and a consistent development of Divine Purpose in *a pre-determined Plan corresponding with the covenants and prophecies relating to the Kingdom*.
 >p. 349 Vol. 3 Prop. 187
 ### Perspective of the first recipients of the gospels
