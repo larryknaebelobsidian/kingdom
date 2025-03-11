@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 178. This doctrine of the Kingdom, and its essentially related subjects, are so hostile to their faith, that numerous organized religious bodies totally reject them.
+
+### Props Mentioned
+175 177 
 ### Millenarians relatively small minority
 >Obs. 1. While in the aggregate Pre-Millenarians form a respectable body, and are found (as e.g. evidenced in the Proph. Conferences in England and America) in various denominations, yet in comparison with the immense body which rejects our doctrine they form a small minority, thus according with the Spirit’s prediction.
 >p.248 Vol. 3 Prop. 178 Obs. 1
