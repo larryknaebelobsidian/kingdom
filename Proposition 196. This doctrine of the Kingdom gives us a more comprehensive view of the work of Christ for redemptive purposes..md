@@ -10,6 +10,9 @@ subjects:
 ---
 # Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.
 
+### Props Mentioned
+50 135 137 146 155 200 204
+
 >This is seen in the fact that our doctrine makes much of what Christ *is yet to do* at His Sec. Advent.
 >p. 449 Vol. 3 Prop. 196
 
