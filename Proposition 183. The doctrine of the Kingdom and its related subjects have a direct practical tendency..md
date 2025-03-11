@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.
+
+### Props Mentioned
+130 135 155 156 158 174 175
 ### Affects interpretation of the Bible
 >Obs. 2. Its decisive and far-reaching influence is seen in the fact that it materially affects the interpretations of the Bible (see e.g. Prop. 4).
 >p. 321 Vol. 3 Prop. 183 Obs. 2
