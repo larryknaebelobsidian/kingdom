@@ -8,6 +8,8 @@ tags:
 ---
 # Proposition 204. Such a view of the Kingdom gives definiteness and a continued exaltation to the human nature of Christ, and indicates the majestic relationship that it sustains throughout the ages to the race of man.
 
+### Props Mentioned
+49 79-84 157 159 193 195
 ### The incarnation manifests the Father to men continuously
 >Obs. 1. If the Incarnation was the medium through which (John 14:9) the Father is manifested to men, *will it not continue* to be so at Christ’s “appearing and Kingdom if it was the most stupendous fact in the history of the world, *will it not remain such* and become evermore remarkable (because of blessings received through it), ...
 >p. 557 Vol. 3 Prop. 204 Obs. 1
