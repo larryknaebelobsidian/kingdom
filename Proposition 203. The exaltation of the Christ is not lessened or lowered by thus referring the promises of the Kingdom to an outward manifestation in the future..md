@@ -7,6 +7,9 @@ tags:
   - toc
 ---
 # Proposition 203. The exaltation of the Christ is not lessened or lowered by thus referring the promises of the Kingdom to an outward manifestation in the future.
+
+### Props Mentioned
+49 81-85 120 122 182 183 196-202
 ### Error of exalting the Divine, leaving out the human nature of Christ
 >Obs. 1. The objection intimated in the Proposition against our doctrine, proceeds from a one-sided view of the Person of Christ, exalting the divine as if exclusive, and leaving out the human as if it were *no longer* a factor in Redemption.
 >...
