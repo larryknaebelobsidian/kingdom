@@ -10,6 +10,9 @@ tags:
 ---
 # Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.
 
+### Props Mentioned
+17 182 183
+
 >The concluding book of the Canon ought to inform us—being a revelation of the future—when and how the glorious promises, covenanted and predicted, pertaining to Christ, the saints, and the world, are to be realized. This it does in complete harmony with the previous teaching of the postponement of the Kingdom, the design of the dispensation, etc.
 >p. 382 Vol. 3 Prop. 191
 ## The coming of Christ
