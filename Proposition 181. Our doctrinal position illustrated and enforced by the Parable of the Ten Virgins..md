@@ -50,7 +50,7 @@ tags:
 #### Some who are waiting have run out of oil and must go buy some oil
 #### After bride and groom arrive with their guests, the guests went in, the door was shut and no one else was admitted (the one's who had to go buy some oil did not make it in)
 
-***Note how Peters view is that the 144,000 are withdrawn and taken to Mt. Sinai as the first and hidden stage of the Second Advent of Christ.  The parable of the ten virgins does not refer to this activity according to Peters.***
+***Note how Peters' view is that the 144,000 are withdrawn and taken to Mt. Sinai as the first and hidden stage of the Second Advent of Christ.  The parable of the ten virgins does not refer to this activity according to Peters.***
 ### Not the bride but guests
 >... these virgins join the procession *on the return of the bridegroom with the bride* to their future abode (Obs. 5 and note). This accords with the previous withdrawal of the 144,000 (Prop. 130), with the Theocratic marriage at Mt. Sinai (Prop. 166), and with the procession of the bridegroom and bride to their future glorious abode on Mt. Zion. This agrees with the simple fact that these virgins, prepared to unite and enter into the marriage supper, are, *not the bride, but guests* who honor the bridegroom and the bride—virgins who follow the queen.
 >p. 305 Vol. 3 Prop. 181 Obs. 8
