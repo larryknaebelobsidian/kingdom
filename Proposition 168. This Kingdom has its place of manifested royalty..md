@@ -18,7 +18,7 @@ tags:
 >...
 >attention is now only called to that class of passages which predict that the Christ shall reign *in Jerusalem and on Mt. Zion*.
 >p. 32 Vol. 3 Prop. 168 Obs. 1
-##### Jerusalem and Mt. Zion
+#### Jerusalem and Mt. Zion
 Isa. 24:23. So also Jer. 3:17, Joel 3:17, Zech. 2:10-13, etc.,
 Zech. 8 and 14
 Micah 3 and 4
@@ -35,10 +35,10 @@ Isa. 2:3; 52:9,10
 >4. Now, if we turn to other predictions it is declared that Jerusalem *just previous* to the Sec. Advent of Christ—also embraced by Matt. Mark and Luke—shall experience in a remarkable manner the animosity (after a partial return of Jews to the city, probably under the auspices of some nation, or from love to it, or desire to restore and elevate it) of Gentile nations. 
 >5. This last adverse *is part* of the imposed tribulation; and it is *only* when this is accomplished that the open Advent occurs, and the Kingdom is established. 
 >6. This is satisfactorily presented in Zech. 14, taken in connection with Christ’s prophecy. For, after the times of the Gentiles have nearly run their course, *just before the end of it*, the gathering of the nations against Jerusalem, described by the prophet takes place—an event very different from that under the Romans, as *the subsequent occurrences show*. Just when the city is at the last extremity, God interferes, the Saviour comes *to this very city*, the saints come with Him, His Kingship is manifested over the earth, Jerusalem is the metropolis of His power, etc. 
->7. 6. It is true then, that the Personal Advent is connected *with* the destruction of Jerusalem, but not with that under the Romans, or other Gentile powers *until* we come to the period when it shall, still under Gentile domination as the closing scene proves, come to a final end. Then, as our whole argument involves, He comes as the prophets describe.
+>7. (6) It is true then, that the Personal Advent is connected *with* the destruction of Jerusalem, but not with that under the Romans, or other Gentile powers *until* we come to the period when it shall, still under Gentile domination as the closing scene proves, come to a final end. Then, as our whole argument involves, He comes as the prophets describe.
 >p. 34 Vol. 3 Prop. 168 Obs. 2
 
-##### This "partial return of the Jews" (number 4 above) is an amazing observation by Peters who published this book in **1884**\!
+#### This "partial return of the Jews" (number 4 above) is an amazing observation by Peters who published this book in **1884**\!
 
 ### God's prevention of exultation of Jerusalem at the times of the crusades. 
 >Obs. 3. Perhaps the reason why Jerusalem itself fell into the hands of unbelievers, and remained but a brief period in the power of professed Christians at the time of the Crusades, was to prevent the laudatory and extravagant expressions respecting the supposed set up Kingdom of God, and to avoid the false inferences respecting the fulfilment of prophecy, arising from a possession of the city.
@@ -57,6 +57,6 @@ Isa. 2:3; 52:9,10
 ### Early persecuted Church believed
 >Obs. 7. How simple, child-like, but grand was the faith of the early persecuted Church in these promises of inheriting the earth! They believed God because He plainly promised, and with the hope inspired by such promises, laid down their lives for Jesus’ sake.
 >p. 38 Vol. 3 Prop. 168 Obs. 7
-##### Irenaeus
+#### Irenaeus
 >Thus, to illustrate the faith of the early martyrs, and to show how Scripturally it was founded, we quote Irenaeus (the disciple of Polycarp, the pupil of St. John, and martyred about a.d. 203): “Thus, therefore, as God promised to Abraham *the inheritance of the earth*, and he received it not during the whole time he lived, it is necessary that he should receive it, together with his seed, that is, with such of them as fear God and believe in Him, *in the resurrection of the just*. . . . They will, *undoubtedly*, receive it at the res. of the just: for true and unchangeable is God; wherefore He also said, ‘Blessed are the meek, *for they shall inherit the earth*.’” Surely, martyr faith thus expressed, ought at least, to secure the respect of believers. (*Comp. Prop.* 142.)
 >p. 38 Vol. 3 Prop. 168 Obs. 7
