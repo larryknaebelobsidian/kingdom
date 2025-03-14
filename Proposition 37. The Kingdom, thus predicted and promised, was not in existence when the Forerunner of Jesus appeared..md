@@ -11,7 +11,7 @@ tags:
 ### Props Mentioned
 20 80 81 82-84
 
->Many books positively assert that the covenanted Kingdom of God *continuously* existed, subject only to some changes. Eminent men (whom we shall largely quote) declare the same, and make the church (after the overthrow or the Theocratic-Davidic Kingdom) its continuation. They, however, have not adduced *a single direct passage* of Scripture in support of their theory; and *the facts*, as already stated, all clearly prove the contrary.
+>Many books positively assert that the covenanted Kingdom of God *continuously* existed, subject only to some changes. Eminent men (whom we shall largely quote) declare the same, and make the church (after the overthrow of the Theocratic-Davidic Kingdom) its continuation. They, however, have not adduced *a single direct passage* of Scripture in support of their theory; and *the facts*, as already stated, all clearly prove the contrary.
 >p. 250 Vol. 1 Prop. 37
 ### Kingdom remained fallen to John the Baptist
 >Obs. 1. The Theocratic-Davidic Kingdom *is the Kingdom of God*; this has been proven. Now this Kingdom was *fallen*, and it *continued* thus down to John the Baptist.
