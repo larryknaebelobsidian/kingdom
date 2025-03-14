@@ -19,20 +19,20 @@ None
 >p. 157 Vol. 1 Prop. 16 Obs. 1
 ### Why the OT should be at the same rank as the NT
 >Obs. 2. Our entire argument, as we proceed, is a refutation of this lowering of the Old Test. A few reasons now stated, will indicate the one-sidedness of those who resist the claims of the Old Test, to the same rank and dignity of the New. 
->1. (1) The Old foretells the New, and the New confirms the Old—both are indispensably necessary. 
->2. (2) The Covenants out of which, and in which, the New stands, are only contained in the Old. 
->3. (3) The prophecies and promises descriptive of the New, are found in the Old. 
->4. (4) Both are the Word of God, and should, therefore, be received on equal footing, and possess equal value. 
->5. (5) The New, taking a familiar acquaintance of the Old for granted, and proceeding on this supposition, does not supersede the Old. 
->6. (6) The continued quotation from the Old in the New, the constant references to the covenanted promises of the Old, the general appeal to the predictions of the Old, the example of Jesus and of the apostles in estimating the value of the Old—all this proves its vital importance. 
->7. (7) The express injunction to search and study the Old Test. Scriptures. 
->8. (8) The declaration of Jesus that He came to fulfil and not to destroy it, and that every jot and tittle of it was precious. 
->9. (9) A large portion of the Old, embracing entire chapters and continuous prophecies, has not yet been fulfilled, owing to the postponement of the Kingdom and the designs of mercy, and hence—as will be shown hereafter—the period of the Christian Church is an intercalary one, extending through the Times of the Gentiles, and if we desire to know its destiny, its ultimate condition in the consummation, the Old must be compared with the New. 
->10. (10) Many things contained in the Old yet to be fulfilled, are only slightly hinted at or taken for granted in the New; others of magnitude and vast importance, are not even mentioned, it being supposed that every believer, *as enjoined*, would find them in the Old and incorporate them. 
->11. (11) The New only professes to be a continuation of the Divine Plan of Salvation; it is a necessary supplement to the Old, but not a superseding of the Old, excepting only in the ordaining of certain provisionary and typical measures. 
->12. (12) The destiny of all the elect, both under the Old and New, is the same, showing that the same truth leading to the same end, is virtually contained in both Tests., however one may add to the other. 
->13. (13) The unity of Divine Purpose can only be ascertained by their combination; without the Old many of the allusions in the New could not be understood, and without the New much that is in the Old could not be properly appreciated. 
->14. (14) The New, as evidenced by our remarks, is built on the Old as on a foundation, and if separated from the latter, its strength and stability is diminished, if not destroyed.
+>(1) The Old foretells the New, and the New confirms the Old—both are indispensably necessary. 
+>(2) The Covenants out of which, and in which, the New stands, are only contained in the Old. 
+>(3) The prophecies and promises descriptive of the New, are found in the Old. 
+>(4) Both are the Word of God, and should, therefore, be received on equal footing, and possess equal value. 
+>(5) The New, taking a familiar acquaintance of the Old for granted, and proceeding on this supposition, does not supersede the Old. 
+>(6) The continued quotation from the Old in the New, the constant references to the covenanted promises of the Old, the general appeal to the predictions of the Old, the example of Jesus and of the apostles in estimating the value of the Old—all this proves its vital importance. 
+>(7) The express injunction to search and study the Old Test. Scriptures. 
+>(8) The declaration of Jesus that He came to fulfil and not to destroy it, and that every jot and tittle of it was precious. 
+>(9) A large portion of the Old, embracing entire chapters and continuous prophecies, has not yet been fulfilled, owing to the postponement of the Kingdom and the designs of mercy, and hence—as will be shown hereafter—the period of the Christian Church is an intercalary one, extending through the Times of the Gentiles, and if we desire to know its destiny, its ultimate condition in the consummation, the Old must be compared with the New. 
+>(10) Many things contained in the Old yet to be fulfilled, are only slightly hinted at or taken for granted in the New; others of magnitude and vast importance, are not even mentioned, it being supposed that every believer, *as enjoined*, would find them in the Old and incorporate them. 
+>(11) The New only professes to be a continuation of the Divine Plan of Salvation; it is a necessary supplement to the Old, but not a superseding of the Old, excepting only in the ordaining of certain provisionary and typical measures. 
+>(12) The destiny of all the elect, both under the Old and New, is the same, showing that the same truth leading to the same end, is virtually contained in both Tests., however one may add to the other. 
+>(13) The unity of Divine Purpose can only be ascertained by their combination; without the Old many of the allusions in the New could not be understood, and without the New much that is in the Old could not be properly appreciated. 
+>(14) The New, as evidenced by our remarks, is built on the Old as on a foundation, and if separated from the latter, its strength and stability is diminished, if not destroyed.
 >p. 158 Vol. 1 Prop. 16 Obs. 2 reformatted
 ### Faulty criticism
 >Obs. 3. The criticism, then, of Ernesti and others, that the Old Test, might indeed have been of some use to the Jews, but certainly was not intended for all mankind, is *sadly defective and demoralizing*, seeing that on the fulfilment of the Old Test, promises depends our completed Salvation, our hope of perfected Redemption, the expectation of the final restitution of all things. The Old Test, is full of anticipated, covenanted, prophesied Salvation; the New is full of the inestimable provision made for the same; *both unite* in showing how and when it will be fully accomplished.

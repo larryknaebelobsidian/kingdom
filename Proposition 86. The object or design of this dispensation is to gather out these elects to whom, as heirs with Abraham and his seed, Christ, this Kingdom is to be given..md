@@ -14,10 +14,10 @@ tags:
 24 31 33 49 51 52 57 58 59 61 63 64 65 66 68 87 88 89 118 120 121 122 124 131-139 140 142 152 153 154 158 169 175
 
 >This Proposition is thus presented to recall, at this point of our discussion, some conclusions previously arrived at. We have shown 
->1. (1) Prop. 57, how the kingdom was rejected, 
->2. (2) Prop. 58, why it was postponed, 
->3. (3) Prop. 59, that during this postponement a seed is raised up unto Abraham, 
->4. (4) Prop. 63, that this seed, composing the elect nation, is the one to whom the Kingdom is given. 
+>(1) Prop. 57, how the kingdom was rejected, 
+>(2) Prop. 58, why it was postponed, 
+>(3) Prop. 59, that during this postponement a seed is raised up unto Abraham, 
+>(4) Prop. 63, that this seed, composing the elect nation, is the one to whom the Kingdom is given. 
 >Therefore, whenever the design of this dispensation is distinctively referred to, it is *to save them that believe, to proclaim* the terms of salvation by which, if observed, men *may become inheritors* of Christ’s Kingdom, *to gather out* such a body of elect ones.
 >--reformatted
 >p. 587 Vol. 1 Prop. 86
@@ -29,26 +29,26 @@ tags:
 >p. 587 Vol. 1 Prop. 86 Obs. 2
 ### This recalls previous conclusions
 >Obs. 3. Our Proposition is, consequently, only formulating, or recalling, the conclusions arrived at under previous ones pertaining to the election. It has been shown 
->1. (1) that there is an elect-people, Prop. 24, etc.; 
->2. (2) this elect-people for a certain and fixed time, is discarded, Prop. 59, etc.; 
->3. (3) another elect-people is gathered out, Prop. 61, etc.; 
->4. (4) the former election, now held in abeyance, is fully restored, re-engrafted in order to fulfil the covenant, Prop. 66, etc.; 
->5. (5) hence the design of this dispensation, or “times of the Gentiles,” in which this continuation of elected ones, grafted in, is going on, is not to establish the Kingdom but *to prepare the way* for the final restoration of that Kingdom to the covenanted people, Prop. 65, etc.; 
->6. (6) and that it is by our identification with that people that we also inherit with them, Prop. 64, etc. 
+>(1) that there is an elect-people, Prop. 24, etc.; 
+>(2) this elect-people for a certain and fixed time, is discarded, Prop. 59, etc.; 
+>(3) another elect-people is gathered out, Prop. 61, etc.; 
+>(4) the former election, now held in abeyance, is fully restored, re-engrafted in order to fulfil the covenant, Prop. 66, etc.; 
+>(5) hence the design of this dispensation, or “times of the Gentiles,” in which this continuation of elected ones, grafted in, is going on, is not to establish the Kingdom but *to prepare the way* for the final restoration of that Kingdom to the covenanted people, Prop. 65, etc.; 
+>(6) and that it is by our identification with that people that we also inherit with them, Prop. 64, etc. 
 >In the very nature of the case, this dispensation, as its progressive work indicates, can do no more than *prepare the heirs* for the Kingdom.
 >p. 587-588 Vol. 1 Prop. 86 Obs. 3
 ### This dispensation
 >Obs. 4. Our argument regards this dispensation 
->1. (1) as *preparative* to the Kingdom; 
->2. (2) as introduced, because of the fall of the Jewish nation, *to raise up a seed* unto Abraham; 
->3. (3) as elective and not national in the sew that it gathers *out of all nations a people* for God; 
->4. (4) as extending to all nations in its offers of mercy, but resulting in no conversion of nations an *of individuals* only; 
->5. (5) as spiritual in its designs and operations, so the *no introduction* of an outward exhibition of God’s Kingdom is to be expected in it; 
->6. (6) as one that will end *in unbelief and Apostasy*, just like previous dispensations, proving both the continued inherent depravity of man and the non-erection of the covenanted Kingdom; 
->7. (7) as one that is therefore, an extraordinary manifestation *of Divine grace and forbearance* in Him who knows the end from the beginning; 
->8. (8) as one connected with *probation, trial, suffering, chastening, bereavement*, etc., and to exalt which into the position of the Coming one (freed from these evils), is to *do violence* to the Word; 
->9. (9) as one which, in the establishment and perpetuation of the Christian Church, stands forth as *a constant sign or witness* that God’s purposes do not fail; 
->10. (10) and hence, as *a standing proof* that, how ever long delayed, *the oath-bound Davidic covenant* will be most amply realized.
+>(1) as *preparative* to the Kingdom; 
+>(2) as introduced, because of the fall of the Jewish nation, *to raise up a seed* unto Abraham; 
+>(3) as elective and not national in the sew that it gathers *out of all nations a people* for God; 
+>(4) as extending to all nations in its offers of mercy, but resulting in no conversion of nations an *of individuals* only; 
+>(5) as spiritual in its designs and operations, so the *no introduction* of an outward exhibition of God’s Kingdom is to be expected in it; 
+>(6) as one that will end *in unbelief and Apostasy*, just like previous dispensations, proving both the continued inherent depravity of man and the non-erection of the covenanted Kingdom; 
+>(7) as one that is therefore, an extraordinary manifestation *of Divine grace and forbearance* in Him who knows the end from the beginning; 
+>(8) as one connected with *probation, trial, suffering, chastening, bereavement*, etc., and to exalt which into the position of the Coming one (freed from these evils), is to *do violence* to the Word; 
+>(9) as one which, in the establishment and perpetuation of the Christian Church, stands forth as *a constant sign or witness* that God’s purposes do not fail; 
+>(10) and hence, as *a standing proof* that, how ever long delayed, *the oath-bound Davidic covenant* will be most amply realized.
 >p. 588 Vol. 1 Prop. 86 Obs. 4
 ### "Heirs with Abraham"
 >Obs. 5. The covenanted relationship is recalled by the phrase, “*heirs with Abraham*.”

@@ -14,10 +14,10 @@ tags:
 19-44 58 64 66 72 73 74 75 76 77 144 187 188 205
 
 >They could not *consistently* preach that it was established, because 
->1. (1) the covenant forbids it, the express terms of it not being verified; 
->2. (2) the rejection of the kingdom by the Jews and its consequent postponement during “the times of the Gentiles,” forbids it; 
->3. (3) the seed of Abraham to whom the Kingdom is to be given not being yet gathered out, forbids it; and 
->4. (4) the non-arrival of the Sec. Advent forbids it.
+>(1) the covenant forbids it, the express terms of it not being verified; 
+>(2) the rejection of the kingdom by the Jews and its consequent postponement during “the times of the Gentiles,” forbids it; 
+>(3) the seed of Abraham to whom the Kingdom is to be given not being yet gathered out, forbids it; and 
+>(4) the non-arrival of the Sec. Advent forbids it.
 >--slightly reformatted
 >p. 433 Vol. 1 Prop 70
 ### His chosen witnesses
@@ -65,9 +65,9 @@ Obs. 9
 >p. 440 Vol. 1 Prop 70 Obs. 10
 
 >Take 1 Pet. 1:10-13, and we have 
->1. (1) the inheritance and salvation (Jewish phrases) “*ready to be revealed in the last time*”; 
->2. (2) to be realized “*at the appearing of Jesus Christ*,“ "*at the revelation of Jesus Christ*”; 
->3. (3) and this is the same inheritance and salvation which the prophets predicted, *linking it* with the Messianic Kingdom on earth.
+>(1) the inheritance and salvation (Jewish phrases) “*ready to be revealed in the last time*”; 
+>(2) to be realized “*at the appearing of Jesus Christ*,“ "*at the revelation of Jesus Christ*”; 
+>(3) and this is the same inheritance and salvation which the prophets predicted, *linking it* with the Messianic Kingdom on earth.
 >Why should we then, contrary to the entire tenor of the Word, attempt to locate the fulfilment of this salvation, etc., at a period of time *different* from that specified by the apostle and his co-laborers; or, why should we disconnect that which the Spirit (“knowing the deep things of God ”) has *expressly joined together*?
 >p. 440 Vol. 1 Prop 70 Obs. 10 -- slightly reformatted
 

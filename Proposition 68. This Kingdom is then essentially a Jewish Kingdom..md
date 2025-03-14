@@ -34,7 +34,7 @@ tags:
 >p. 427 Vol. 1 Prop 68 Obs. 5
 ### Illustrations
 >Obs. 6. To illustrate, aside from the covenants and reasoning already given, how intensely *Jewish* this Kingdom is, we refer (by way of anticipation) the reader to two or three particulars. 
->1. (1) At the restoration of this Jewish nation, while Gentile nations shall experience great blessedness, *the supremacy* among all nations is accorded *to the Jewish nation*, as e.g. Micah 4:8, and 7:15-20; Zeph. 3:14-20; Zech. chs. 10, 12, 14, etc.: (comp. Prop. 114). 
->2. (2) *Jerusalem* shall be wonderfully exalted in that day, as e.g. Zech. 8:3; Jer. 3:17; Joel 3:17; Isa. 24:23, etc. 
->3. (3) *The land itself* shall be highly honored, as e.g. Ezek. 36:34, 36; Isa. 51:3; Zech. 2:12; Isa. 60:15 and 62:4, etc.
+>(1) At the restoration of this Jewish nation, while Gentile nations shall experience great blessedness, *the supremacy* among all nations is accorded *to the Jewish nation*, as e.g. Micah 4:8, and 7:15-20; Zeph. 3:14-20; Zech. chs. 10, 12, 14, etc.: (comp. Prop. 114). 
+>(2) *Jerusalem* shall be wonderfully exalted in that day, as e.g. Zech. 8:3; Jer. 3:17; Joel 3:17; Isa. 24:23, etc. 
+>(3) *The land itself* shall be highly honored, as e.g. Ezek. 36:34, 36; Isa. 51:3; Zech. 2:12; Isa. 60:15 and 62:4, etc.
 >p. 427-428 Vol. 1 Prop 68 Obs. 6

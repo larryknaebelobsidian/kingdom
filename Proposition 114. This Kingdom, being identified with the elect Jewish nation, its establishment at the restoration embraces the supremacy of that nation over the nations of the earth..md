@@ -49,15 +49,15 @@ tags:
 >p. 94 Vol. 2 Prop 114 Obs. 4
 ### Other observations
 >Obs. 5. A number of observations on this interesting point might be appropriately made, which can only be indicated to the reader. 
->1. (1) This pre-eminency among the nations of the earth shows that the position assumed by us concerning the wall of partition being broken down *only* between believers in Christ and *not* between the Jewish and Gentile nations, is well taken. 
->2. (2) This work *is of God*, and will be witnessed by the nations as a confirmation of His power, etc., Ezek. 17:22-24, Isa. 52:1-10, etc. 
->3. (3) Jerusalem and Palestine (as the latter shall be extended according to promise) are most admirably situated (geographically) for the exercise of such supremacy. See Townsend’s *Arrangement*, Introd. p. 68-9. 
->4. (4) The promise to Abraham is only *then* literally verified, “I will make of thee *a great* nation.” For David and Solomon’s reign (aside from its Theocratic arrangement), plays but a small part at the side of the great empires of history. God’s Promise unerringly points to the future; and as His promises, long delayed, *are sure*, the greatness of the nation, as the prophets predict, will be *more commensurate* with the greatness of the Being who has promised. 
->5. (5) The promise made to Abraham of being “*heir of the world*” is then realized, in the acknowledged acknowledged pre-eminency of his seed. 
->6. (6) How wonderful will then the history of this people appear, and how astonishing that the Divine Purpose so plainly revealed should have been, by lack of faith and with the notion of exalting the meaning of Scripture itself, so persistently overlooked by the multitude. 
->7. (7) To occupy this position of supremacy, it is necessary that the division into two kingdoms, once existing, should be perpetually abolished. This is fully predicted, as e.g. Ezek. 37:21, 22, etc. 
->8. (8) The folly of being indifferent to, or totally ignoring, the predictions on this subject, just as if they were not given. 
->9. (9) That if, as many advocate, the phrase “Times of the Gentiles,” is indicative of “Gentile domination,” then the cessation of these times would of itself indicate that such dominion would come to a close.
+>(1) This pre-eminency among the nations of the earth shows that the position assumed by us concerning the wall of partition being broken down *only* between believers in Christ and *not* between the Jewish and Gentile nations, is well taken. 
+>(2) This work *is of God*, and will be witnessed by the nations as a confirmation of His power, etc., Ezek. 17:22-24, Isa. 52:1-10, etc. 
+>(3) Jerusalem and Palestine (as the latter shall be extended according to promise) are most admirably situated (geographically) for the exercise of such supremacy. See Townsend’s *Arrangement*, Introd. p. 68-9. 
+>(4) The promise to Abraham is only *then* literally verified, “I will make of thee *a great* nation.” For David and Solomon’s reign (aside from its Theocratic arrangement), plays but a small part at the side of the great empires of history. God’s Promise unerringly points to the future; and as His promises, long delayed, *are sure*, the greatness of the nation, as the prophets predict, will be *more commensurate* with the greatness of the Being who has promised. 
+>(5) The promise made to Abraham of being “*heir of the world*” is then realized, in the acknowledged acknowledged pre-eminency of his seed. 
+>(6) How wonderful will then the history of this people appear, and how astonishing that the Divine Purpose so plainly revealed should have been, by lack of faith and with the notion of exalting the meaning of Scripture itself, so persistently overlooked by the multitude. 
+>(7) To occupy this position of supremacy, it is necessary that the division into two kingdoms, once existing, should be perpetually abolished. This is fully predicted, as e.g. Ezek. 37:21, 22, etc. 
+>(8) The folly of being indifferent to, or totally ignoring, the predictions on this subject, just as if they were not given. 
+>(9) That if, as many advocate, the phrase “Times of the Gentiles,” is indicative of “Gentile domination,” then the cessation of these times would of itself indicate that such dominion would come to a close.
 >p. 96 Vol. 2 Prop 114 Obs. 5 -- slightly reformatted
 ### A stumbling block
 >Obs. 6. This supremacy of the Jewish nation is a stumbling-block to many (who misapprehend its connection with the saints, etc.), and the most bitter and sarcastic remarks are levelled against it.

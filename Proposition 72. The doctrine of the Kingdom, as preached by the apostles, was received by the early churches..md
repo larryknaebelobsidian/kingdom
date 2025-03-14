@@ -41,17 +41,17 @@ tags:
 >p. 464 Vol. 1 Prop 72 Obs. 11
 ### Doctrine extensively held
 >Obs. 12. The student, who is really desirous to see how extensively our doctrine was held, will consider these points of evidence adduced. 
->1. (1) How universally the Jews held to our doctrine, e.g. Prop. 20; 
->2. (2) How this was confirmed by the Prophecies, e.g. Props. 21, 33, 35, 51; 
->3. (3) how this belief grew out of the covenants, e.g. Props. 46, 47, 48, 49, 52; 
->4. (4) -that the preaching of John re-established the faith in many, e.g.Props. 38, 39, 40; 
->5. (5) that the preaching of the disciples was calculated to increase the belief, as e.g. Props. 43, 54, 55, etc.; 
->6. (6) that no controversy was raised on the subject, e.g. Prop. 44; 
->7. (7) that the preaching of Jesus confirmed the faith in His disciples and hearers, as e.g. Props. 42, 43, 44, 54, 55, 57, 58, etc.; 
->8. (8) how the continued faith in the same was preserved and perpetuated by the postponement taught, e.g. Props. 57 to 68; 
->9. (9) that the death of Jesus did not remove the belief, Prop. 70; 
->10. (10) how the preaching and language of the apostles was calculated to enforce the belief, e.g. Props. 71, 72, 73. (Thus far there is a connected chain, which indicates how generally our doctrine must have been entertained; but the proof is far from being exhausted. Candor requires the consideration of what follows. 
->11. (11) That the doctrine was received through the apostles shown more clearly under Props. 73, in no controversy springing up concerning it; under Prop. 74 in the belief of a speedy Advent; under Prop, 75 in its perpetuation, and Prop. 76, gradual change.
+>(1) How universally the Jews held to our doctrine, e.g. Prop. 20; 
+>(2) How this was confirmed by the Prophecies, e.g. Props. 21, 33, 35, 51; 
+>(3) how this belief grew out of the covenants, e.g. Props. 46, 47, 48, 49, 52; 
+>(4) -that the preaching of John re-established the faith in many, e.g.Props. 38, 39, 40; 
+>(5) that the preaching of the disciples was calculated to increase the belief, as e.g. Props. 43, 54, 55, etc.; 
+>(6) that no controversy was raised on the subject, e.g. Prop. 44; 
+>(7) that the preaching of Jesus confirmed the faith in His disciples and hearers, as e.g. Props. 42, 43, 44, 54, 55, 57, 58, etc.; 
+>(8) how the continued faith in the same was preserved and perpetuated by the postponement taught, e.g. Props. 57 to 68; 
+>(9) that the death of Jesus did not remove the belief, Prop. 70; 
+>(10) how the preaching and language of the apostles was calculated to enforce the belief, e.g. Props. 71, 72, 73. (Thus far there is a connected chain, which indicates how generally our doctrine must have been entertained; but the proof is far from being exhausted. Candor requires the consideration of what follows. 
+>(11) That the doctrine was received through the apostles shown more clearly under Props. 73, in no controversy springing up concerning it; under Prop. 74 in the belief of a speedy Advent; under Prop, 75 in its perpetuation, and Prop. 76, gradual change.
 >p. 464-465 Vol. 1 Prop 72 Obs. 12 reformatted
 ### Book of Revelation confirms
 >How could John, under Divine guidance, well knowing the Jewish views that were current (which our opponents fully admit as we have shown), pen down the portraiture of a Messianic reign (Rev. 20:1-6 and 11:15-18), which in its plain grammatical sense *corresponds so accurately* with the prevailing Jewish opinions, unless such a sense contains the truth?

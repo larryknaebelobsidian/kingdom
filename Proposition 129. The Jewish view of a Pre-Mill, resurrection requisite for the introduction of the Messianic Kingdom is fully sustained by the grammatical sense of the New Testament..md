@@ -35,8 +35,8 @@ tags:
 >It is evident from Acts 24:14, 15, that the Jews of Paul’s day did not adopt the first of these opinions, but they appear to have *limited* the res. to their nation. In Rom. 9:2-5, Paul teaches that *the adoption*, by which he meant *the resurrection*, Rom. 8:23, pertained to Israelites; and hence it would seem that the res., as a term of the original covenant, was *limited* to Israel. 
 >
 >Rabbi Bechai says, God granted four special honors to Israel, viz., 
->1. (1) the land of Canaan; 
->2. (2) the law; 
->3. (3) prophecy; 
->4. (4) the resurrection of the dead. Josephus, though obscure, evidently did not believe the res. would be universal.”
+>(1) the land of Canaan; 
+>(2) the law; 
+>(3) prophecy; 
+>(4) the resurrection of the dead. Josephus, though obscure, evidently did not believe the res. would be universal.”
 >p. 312 Vol. 2 Prop. 129 Obs. 4 --reformatted

@@ -40,21 +40,21 @@ tags:
 >4. That the language of Christ and the apostles taught such a resurrection, is confirmed by the fact that all the early churches *distinctively proclaimed it* as their faith, thus corroborating the views entertained by the Jews. And this general belief was not confined to Jewish but was embraced in the Gentile churches. 
 >5. Seeing what immediately preceded and followed the First Advent in attachment to this doctrine, if an error, it seems reasonable to anticipate either from Christ or His apostles a plain and unequivocal denial of it. 
 >6. But the Scriptures themselves establish the doctrine. This they do, 
->	1. (1) in *the usage* of words which denote both in classical and scriptural writings *a revivification of the dead*. 	
->	2. (2) In applying these words *to deceased* persons in their graves.
->	3. (3) In representing those “asleep in *the dust of the earth*” those “*whose flesh rests in hope*” etc., as the ones who shall experience it. 
->	4. (4) In speaking of it as something *well understood*, as e.g. Acts 14:2 and 23:6, etc. 
->	5. (5) In declaring that the unjust (Acts 24:15), “*all in their graves*” John 5:28, 29, shall undergo its power, removing the idea of simple moral regeneration. 
->	6. (6) In appealing to us not to think it *incredible* that God should perform such a work, Acts 26:8; Heb. 11:19. 
->	7. (7) In *the examples* of dead persons being restored to life (e.g. Matt. 27:52, 53), which is a sign of what will be done at the Sec. Advent. 
->	8. (8) In *the body* being specifically mentioned, as e.g. Rom. 8:23 in “*the redemption of the body*” Phil. 3:10, 21. 
->	9. (9) In *the contrast* made between death and the resurrection from the dead (1 Cor. 15:21, 22), and in *the effects* of death and the consequences following the resurrection (1 Cor. 15:42-54). 
->	10. (10) In the rejection of those who *spiritualized* the resurrection, 2 Tim. 2:17, 18. 
->	11. (11) In the removal of it to a *certain fixed period*, Eph. 4:30; 1 Cor. 15:23; 1 Thess. 4:14, 17, etc. 
->	12. (12) In the fact that “*the first begotten of the dead*” underwent *a literal, corporeal* resurrection, as the various Gospels prove; that even in the process of glorification following it He retains His personal identity sufficiently that when He comes again He comes emphatically as “*the Son of Man*,” *David’s Son*, and that His resurrection is represented as *a pattern* for that of His saints’, Rom. 8:11; 1 Cor. 4:14; 2 Cor. 4:14; Rom. 6:5; Phil. 3:21; 1 John 3:2. 
->	13. (13) In *the mortal*, i.e. the part subject to death putting on immortality, 1 Cor. 15:52-3; Rom. 8:11. 
->	14. (14) In *the effects* of Paul’s preaching the doctrine on Athenians, etc., Acts 17:32; 26:6, 8, etc. 
->	15. (15) In the fact that if the body is not also redeemed, restored to its forfeited condition, then the Redemptive process is *in so far incomplete*. 
+>	(1) in *the usage* of words which denote both in classical and scriptural writings *a revivification of the dead*. 	
+>	(2) In applying these words *to deceased* persons in their graves.
+>	(3) In representing those “asleep in *the dust of the earth*” those “*whose flesh rests in hope*” etc., as the ones who shall experience it. 
+>	(4) In speaking of it as something *well understood*, as e.g. Acts 14:2 and 23:6, etc. 
+>	(5) In declaring that the unjust (Acts 24:15), “*all in their graves*” John 5:28, 29, shall undergo its power, removing the idea of simple moral regeneration. 
+>	(6) In appealing to us not to think it *incredible* that God should perform such a work, Acts 26:8; Heb. 11:19. 
+>	(7) In *the examples* of dead persons being restored to life (e.g. Matt. 27:52, 53), which is a sign of what will be done at the Sec. Advent. 
+>	(8) In *the body* being specifically mentioned, as e.g. Rom. 8:23 in “*the redemption of the body*” Phil. 3:10, 21. 
+>	(9) In *the contrast* made between death and the resurrection from the dead (1 Cor. 15:21, 22), and in *the effects* of death and the consequences following the resurrection (1 Cor. 15:42-54). 
+>	(10) In the rejection of those who *spiritualized* the resurrection, 2 Tim. 2:17, 18. 
+>	(11) In the removal of it to a *certain fixed period*, Eph. 4:30; 1 Cor. 15:23; 1 Thess. 4:14, 17, etc. 
+>	(12) In the fact that “*the first begotten of the dead*” underwent *a literal, corporeal* resurrection, as the various Gospels prove; that even in the process of glorification following it He retains His personal identity sufficiently that when He comes again He comes emphatically as “*the Son of Man*,” *David’s Son*, and that His resurrection is represented as *a pattern* for that of His saints’, Rom. 8:11; 1 Cor. 4:14; 2 Cor. 4:14; Rom. 6:5; Phil. 3:21; 1 John 3:2. 
+>	(13) In *the mortal*, i.e. the part subject to death putting on immortality, 1 Cor. 15:52-3; Rom. 8:11. 
+>	(14) In *the effects* of Paul’s preaching the doctrine on Athenians, etc., Acts 17:32; 26:6, 8, etc. 
+>	(15) In the fact that if the body is not also redeemed, restored to its forfeited condition, then the Redemptive process is *in so far incomplete*. 
 >	Such considerations, with especially the deeper and more significant one that the Davidic-Theocratic arrangement *necessarily by covenant insists upon it*, are amply sufficient to cause us to retain the old form of doctrine.
 >p. 228-229 Vol 2 Prop. 125 Obs. 3
 

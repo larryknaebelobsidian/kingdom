@@ -28,10 +28,10 @@ None
 >p. 233 Vol. 1 Prop. 30 Obs. 4
 ### Mystery
 >Obs. 5. The Kingdom being given to the nation, and this being based on covenants and promises *confirmed by oath*, 
->1. (1) no other nation can obtain it without *a recall* of the covenant relationship; 
->2. (2) such a recall is *nowhere* asserted, but *the perpetuity* of the same is most explicitly and repeatedly affirmed; 
->3. (3) the nation, for a time suffering the withdrawal of God’s special Theocratic ordering, does not *vitiate* the covenant relationship; 
->4. (4) hence, the participation of the Gentiles in the covenanted relationship (and through this, to an inheriting of the blessings of the Kingdom), must depend (as has been stated) upon their being, in some way, *adopted* as the seed of Abraham. Precisely here was the mystery, which baffled even the apostles until *specially* enlightened.
+>(1) no other nation can obtain it without *a recall* of the covenant relationship; 
+>(2) such a recall is *nowhere* asserted, but *the perpetuity* of the same is most explicitly and repeatedly affirmed; 
+>(3) the nation, for a time suffering the withdrawal of God’s special Theocratic ordering, does not *vitiate* the covenant relationship; 
+>(4) hence, the participation of the Gentiles in the covenanted relationship (and through this, to an inheriting of the blessings of the Kingdom), must depend (as has been stated) upon their being, in some way, *adopted* as the seed of Abraham. Precisely here was the mystery, which baffled even the apostles until *specially* enlightened.
 >p. 233 Vol. 1 Prop. 30 Obs. 5 --reformatted
 ### Importance of closely tracing the call of the Gentiles
 >Obs. 6. The original bestowment of the Theocracy being in a most solemn, public manner, if ever the Jewish nation is to forfeit its relationship to that Theocracy, this must be done in as public manner, or, at least, the most explicit statement must come from God to this effect. This *has not, cannot* be done—although multitudes, misled by *the temporary* punishment of the nation, infer it—without violating God’s *pledged* word. Hence, the importance of closely tracing the call of the Gentiles, and noticing its connection with the Jewish nation.

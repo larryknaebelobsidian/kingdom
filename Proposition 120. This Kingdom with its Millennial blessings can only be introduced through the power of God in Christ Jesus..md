@@ -20,14 +20,14 @@ tags:
 >Obs. 3. It is saddening to find how far this denial of the necessity of Christ’s Second Coming *for purposes of Salvation* is carried in our Theological literature. Men who would shrink from any impeachment of orthodoxy, or denial of truth, array themselves against Covenant promise under the misguiding influence of supposed developed truth.
 >...
 >Thus to illustrate: In the excellent *Quarterly Review* for Jan., 1874, in a one-sided Art., which totally ignores *the expressed* views of the confessors, the following bold assertion is made: “Christ’s power to bless and save His people and protect them against the devil and sin is *not in His Coming again on earth*, but in His session at the right hand of God and His power there in their behalf,” etc. How such language can be employed in the face of scriptural authority, is a matter of surprise. The reader can readily test the trustworthiness of the declaration by referring to these facts: 
->1. (1) that His Coming is *for Salvation, to complete Redemption*, Heb. 9:28; Luke 21:27, 28; Rom. 8:19-23; Eph. 4:30, etc.; 
->2. (2) *to raise* the dead, 1 Thess. 4:14, 16, etc.; 
->3. (3) *to change* the living, 1 Cor. 15:42-44, 51-54, etc.; 
->4. (4) *to invest* with dominion (Prop. 154); 
->5. (5) *to remove* the wicked, His enemies, 2 Thess. 2:8-11, etc.; 
->6. (6) *to deliver* the Jewish nation (Prop. Ill, etc.); 
->7. (7) *to relieve* creation, Rom. 8:19-21, etc.; 
->8. (8) in brief, to introduce the *numerous blessings* which our argument evolves.
+>(1) that His Coming is *for Salvation, to complete Redemption*, Heb. 9:28; Luke 21:27, 28; Rom. 8:19-23; Eph. 4:30, etc.; 
+>(2) *to raise* the dead, 1 Thess. 4:14, 16, etc.; 
+>(3) *to change* the living, 1 Cor. 15:42-44, 51-54, etc.; 
+>(4) *to invest* with dominion (Prop. 154); 
+>(5) *to remove* the wicked, His enemies, 2 Thess. 2:8-11, etc.; 
+>(6) *to deliver* the Jewish nation (Prop. Ill, etc.); 
+>(7) *to relieve* creation, Rom. 8:19-21, etc.; 
+>(8) in brief, to introduce the *numerous blessings* which our argument evolves.
 >It is certainly sufficient, in order to prevent our accepting such contradictory utterances, to know that He comes for Salvation; and that that Coming is represented to be the most efficacious in removing sin and overcoming Satan.
 >p. 154 Vol. 2 Prop. 120 Obs. 3
 ### The blessed hope

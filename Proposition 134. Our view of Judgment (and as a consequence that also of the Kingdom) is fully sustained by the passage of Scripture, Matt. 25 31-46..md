@@ -60,3 +60,4 @@ tags:
 5. The Primitive Church taught this doctrine of judgement (as set forth here by Peters)
 6. The saints are judged and will also judge others (but at different times)
 7. The righteous are not rewarded at death
+My summary of Obs. 6, p. 383-384 Vol. 2 Prop 134

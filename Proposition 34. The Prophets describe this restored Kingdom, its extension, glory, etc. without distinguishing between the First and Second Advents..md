@@ -22,12 +22,12 @@ tags:
 >p. 242 Vol. 1 Prop. 34 Obs. 1
 ### Why purposely done?
 >This intermingling and blending of Advents, or rather, this non-discrimination of Advents, is purposely done, 
->1. (1) to allow full latitude to the freedom of the nation; 
->2. (2) to evince the foreknowledge, truthfulness, and faithfulness of God; 
->3. (3) to test the faith of His people; 
->4. (4) to throw the responsibility of Christ’s rejection upon the nation; 
->5. (5) to prepare the way for the engrafting of the Gentiles; 
->6. (6) to avoid the despondency, etc., that must arise, if the long intervening period of time were presented.
+>(1) to allow full latitude to the freedom of the nation; 
+>(2) to evince the foreknowledge, truthfulness, and faithfulness of God; 
+>(3) to test the faith of His people; 
+>(4) to throw the responsibility of Christ’s rejection upon the nation; 
+>(5) to prepare the way for the engrafting of the Gentiles; 
+>(6) to avoid the despondency, etc., that must arise, if the long intervening period of time were presented.
 >p. 242 Vol. 1 Prop. 34 Obs. 1
 ### Must be careful to discriminate the Scriptures that belong to different dispensations
 >Obs. 2. This peculiarity of the prophecies impresses the injunction given by numerous writers, viz.: to be careful in discriminating the Scriptures that belong to different dispensations, e.g. that which pertains to the First Advent and the time following, and that which relates to the Sec. Advent and the age following it.

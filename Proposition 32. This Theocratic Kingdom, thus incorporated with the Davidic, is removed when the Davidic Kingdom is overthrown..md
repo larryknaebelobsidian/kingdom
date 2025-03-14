@@ -12,12 +12,12 @@ tags:
 None
 ### Supporting Evidence
 >Obs. 1. The Proposition is evidenced, 
->1. (1) by the continued overthrow of what God called His throne and Kingdom (Ezek. 21:25-27, Hos. 3:4, 5, etc.); 
->2. (2) by the Prophets not recognizing any other Theocratic Kingdom than the one thus connected; 
->3. (3) by the restoration from Babylon, building of the temple, etc., being never likened to this Kingdom, for although blessings were vouchsafed to the nation from God through His general divine Sovereignty, yet God did *not act* as their King, which is seen, e.g. in the Jews being still “servants” and others had “dominion over them” (Neh. 9:36, 37), being placed under tribute, (Ezra 4:13 and 7:24); 
->4. (4) by the simple fact that neither in the temple rebuilt nor in any subsequent political position of the Jews, was God directly accessible as Ruler, to be consulted, etc.; 
->5. (5) by the Jews themselves, in their future political and religious status, never supposing, after the overthrow of the Davidic Kingdom, that it or the Theocracy connected with it was restored, but constantly and ardently looked for its re-establishment; 
->6. (6) by the withdrawal of God, more and more decided, so that even for centuries the voice of prophecy was silent. 
+>(1) by the continued overthrow of what God called His throne and Kingdom (Ezek. 21:25-27, Hos. 3:4, 5, etc.); 
+>(2) by the Prophets not recognizing any other Theocratic Kingdom than the one thus connected; 
+>(3) by the restoration from Babylon, building of the temple, etc., being never likened to this Kingdom, for although blessings were vouchsafed to the nation from God through His general divine Sovereignty, yet God did *not act* as their King, which is seen, e.g. in the Jews being still “servants” and others had “dominion over them” (Neh. 9:36, 37), being placed under tribute, (Ezra 4:13 and 7:24); 
+>(4) by the simple fact that neither in the temple rebuilt nor in any subsequent political position of the Jews, was God directly accessible as Ruler, to be consulted, etc.; 
+>(5) by the Jews themselves, in their future political and religious status, never supposing, after the overthrow of the Davidic Kingdom, that it or the Theocracy connected with it was restored, but constantly and ardently looked for its re-establishment; 
+>(6) by the withdrawal of God, more and more decided, so that even for centuries the voice of prophecy was silent. 
 >In brief, all the circumstances indicated, that the distinctive features which manifested a Theocracy, were withdrawn, and the religious, the ceremonial, indispensably necessary for the moral preparation and culture of man, was alone continued. The nation was undergoing divine punishment for its *non-appreciation of Theocratic privileges*.
 >p. 237 Vol. 1 Prop. 32 Obs. 1
 ### Maccabean princes did not restore the full Theocracy

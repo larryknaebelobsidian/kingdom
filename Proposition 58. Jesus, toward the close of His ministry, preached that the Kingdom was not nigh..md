@@ -21,10 +21,10 @@ tags:
 
 ### Marriage of the King's son, Matt. 22:1-14
 >... take the parable of the marriage of the King’s son, Matt. 22:1-14, given just *after* (Matt. 21:43), He declared that the Kingdom should be taken from them, and we have: 
->1. (1) *The Jewish nation* bidden but refusing the invitation (showing the sincerity of the offer, etc.); 
->2. (2) if the invitation had been accepted, *the marriage would have taken place*, but the invited guests refusing, it *was postponed* until other guests were furnished; 
->3. (3) the marriage (i.e. the enthronement to the Kingdom, comp. Prop. 169), the wedding (i.e. the inauguration blessings and privileges, the Kingdom being likened to a feast, Prop. 169), were *no longer nigh* to these invited ones; 
->4. (4) the marriage, the time when the guests are scrutinized, is (as commentators inform us correctly) at the Sec. Advent of this King, *hence postponed until that period*.
+>(1) *The Jewish nation* bidden but refusing the invitation (showing the sincerity of the offer, etc.); 
+>(2) if the invitation had been accepted, *the marriage would have taken place*, but the invited guests refusing, it *was postponed* until other guests were furnished; 
+>(3) the marriage (i.e. the enthronement to the Kingdom, comp. Prop. 169), the wedding (i.e. the inauguration blessings and privileges, the Kingdom being likened to a feast, Prop. 169), were *no longer nigh* to these invited ones; 
+>(4) the marriage, the time when the guests are scrutinized, is (as commentators inform us correctly) at the Sec. Advent of this King, *hence postponed until that period*.
 > p. 379 Vol. 1 Prop 58 Obs. 1
 
 ### The Great Supper, Luke 14:15-24
@@ -32,23 +32,22 @@ tags:
 >p. 379 Vol. 1 Prop 58 Obs. 1
 
 >For this postponement of the Kingdom, so constantly ignored by Christian Apologists, is *a most powerful factor* in the criticism, both of the Gospel writings and the Gospel History.  It conclusively proves that the great object of the writers, in all of them, was to show -- 
->1. (1) That Jesus was the Messiah; 
->2. (2) why the Messianic Kingdom was delayed; when and through whom it shall be established
->The idea of postponement (even contained in the references to a future coming of Himself in glory, and which caused the question of the disciples in Matt. 24:3 respecting His future coming), must have singularly impressed the disciples, owing to their utter inability to reconcile it with His death. Without comment, they give us a complete history of the facts as they existed, and do not conceal the perplexity in which they were involved, owing to their having allied to the First Advent promises which are only to be realized at the Second.
+>(1) That Jesus was the Messiah; 
+>(2) why the Messianic Kingdom was delayed; when and through whom it shall be established. The idea of postponement (even contained in the references to a future coming of Himself in glory, and which caused the question of the disciples in Matt. 24:3 respecting His future coming), must have singularly impressed the disciples, owing to their utter inability to reconcile it with His death. Without comment, they give us a complete history of the facts as they existed, and do not conceal the perplexity in which they were involved, owing to their having allied to the First Advent promises which are only to be realized at the Second.
 >p. 380 Vol. 1 Prop 58 Obs. 1 Note
 ### Luke 19:41-44
->1. (1) Jesus weeping over the city; 
->2. (2) the things which belonged unto their peace, being rejected, were hid from them; 
->3. (3) the evil results of their unbelief, in being given over to their enemies and continuing under their power; 
->4. (4) this great evil brought upon them because they appreciated not the offer made, because “thou knowest not the time of thy visitation.” *Here, instead of a Kingdom, is presented a direful threatening of fearful incoming evils*.
+>(1) Jesus weeping over the city; 
+>(2) the things which belonged unto their peace, being rejected, were hid from them; 
+>(3) the evil results of their unbelief, in being given over to their enemies and continuing under their power; 
+>(4) this great evil brought upon them because they appreciated not the offer made, because “thou knowest not the time of thy visitation.” *Here, instead of a Kingdom, is presented a direful threatening of fearful incoming evils*.
 >p. 380 Vol. 1 Prop 58 Obs. 2 reformatted
 ### Matt. 23:37, 38
->1. (1) the rejection of His message, evinced by the treatment of those sent; 
->2. (2) Christ’s earnest desire that they might receive it; 
->3. (3) but “they would not,” indicating a voluntary rejection; 
->4. (4) then “*the house left desolate*", no restoration being granted; 
->5. (5) and Christ’s *withdrawal* from them for a time; 
->6. (6) so that, *instead of a Kingdom coming then to them*, dispersion and the destruction of the city is determined, owing to their unrepentant state.
+>(1) the rejection of His message, evinced by the treatment of those sent; 
+>(2) Christ’s earnest desire that they might receive it; 
+>(3) but “they would not,” indicating a voluntary rejection; 
+>(4) then “*the house left desolate*", no restoration being granted; 
+>(5) and Christ’s *withdrawal* from them for a time; 
+>(6) so that, *instead of a Kingdom coming then to them*, dispersion and the destruction of the city is determined, owing to their unrepentant state.
 >p. 380 Vol. 1 Prop 58 Obs. 2 reformatted
 ### Change in interval
 >At the beginning of His ministry, it was relatively nigh (as we have shown); the offer was simply conditioned by repentance; and being left to their choice, no long interval, as here intimated, must take place before it is nigh to them. Now, however, since His death was actually contemplated by the representatives of the nation, the offer is withdrawn, and the postponement of the Kingdom, its not being nigh to them, *is directly stated by an enumeration of certain events which are previously* to take place before it is nigh again.

@@ -35,11 +35,11 @@ tags:
 >p. 501 Vol. 1 Prop. 76 Obs. 3
 ### Direct means to get rid of the Chiliastic idea 
 >Obs. 4. It is well to keep in view the direct means employed *to get rid* of the Chiliastic idea of the Kingdom. 
->1. (1) Caius (or Gaius) and Dionysins first cast doubt upon the genuineness and inspiration of the Apocalypse, it evidently being supposed that the appeals made to it—in view of its correspondence with preceding Jewish ideas—*could not otherwise* be set aside. 
->2. (2) By rejecting the literal sense, and substituting a figurative or allegorical; this *effectually* modified covenant and prophecy. 
->3. (3) Such portions of the Old Test, as literally taught the doctrine, had their prophetic inspiration discredited, as in the Clementines (comp. Neander on them). 
->4. (4) Accepting all the prophetical portions, and what could not be conveniently allegorized and applied to the church, was attributed to heaven for fulfilment (as seen in Origen and his followers). 
->5. (5) Making promises directly given to the Jewish nation as such, either conditional in their nature or else merely typical of the blessings accruing to Gentiles. These, after what has been written, need no comment.
+>(1) Caius (or Gaius) and Dionysins first cast doubt upon the genuineness and inspiration of the Apocalypse, it evidently being supposed that the appeals made to it—in view of its correspondence with preceding Jewish ideas—*could not otherwise* be set aside. 
+>(2) By rejecting the literal sense, and substituting a figurative or allegorical; this *effectually* modified covenant and prophecy. 
+>(3) Such portions of the Old Test, as literally taught the doctrine, had their prophetic inspiration discredited, as in the Clementines (comp. Neander on them). 
+>(4) Accepting all the prophetical portions, and what could not be conveniently allegorized and applied to the church, was attributed to heaven for fulfilment (as seen in Origen and his followers). 
+>(5) Making promises directly given to the Jewish nation as such, either conditional in their nature or else merely typical of the blessings accruing to Gentiles. These, after what has been written, need no comment.
 >p. 502 Vol. 1 Prop. 76 Obs. 4 reformatted
 ### The weapon of philosophy
 >Obs. 5. Another deadly, most effective weapon was *the philosophy* of that period.

@@ -46,16 +46,16 @@ Ps. 148:3, 5, 6; Eccl. 1:4; Ps. 89:36; Jer. 31:35,
 Jer. 33:25, 26,
 Ps. 89:34-37.
 ### Additional reasons for the perpetuity of the earth
->1. (1) The Early Church, having the advantage of apostolic teaching on a subject which excited *special attention*, held, as far as known, to the same. 
->2. (2) Taking the Millennial descriptions as a whole, *without forcibly separating* them, they clearly teach a purification, renewal, and perpetuity. 
->3. (3) The promise individually to Abraham, Isaac, and Jacob, *to inherit the land*, and the same promise to the saints, imply it. 
->4. (4) The praying of God’s will to be done *on earth as in heaven*— which we know will never be done in the mixed condition of the Church and world down to the Second Advent—infers it 
->5. (5) The harvest at *the end of the age*, by a comparison of the Scriptures bearing on it, teaches it. 
->6. (6) Separate prophecies which speak of the perpetuity of the Kingdom, etc., *after the Advent of Christ*, such as Dan. 7, Isa. 65 and 66, etc., cannot be consistently explained on any other ground. 
->7. (7) The same truth is contained in the predictions, that He shall have all rule, all enemies under Him, etc., *after* His Sec. Advent, He being at the same time the Restorer. 
->8. (8) *The Pre-Mill. Advent*, with the results attending it here on earth, evince the same. 
->9. (9) The throne and Kingdom—the inheritance of David’s Son, cannot be received, *as covenanted*, unless the perpetuity of the earth after His Coming is upheld. In brief, 
->10. (10) the restitution, the heirship of the world (Rom. 4:13), removal of the curse, the predicted reign of the saints on the earth, the occurrences after the Millennial era, as related by John and the prophets, etc., *all inculcate* the same truth.
+>(1) The Early Church, having the advantage of apostolic teaching on a subject which excited *special attention*, held, as far as known, to the same. 
+>(2) Taking the Millennial descriptions as a whole, *without forcibly separating* them, they clearly teach a purification, renewal, and perpetuity. 
+>(3) The promise individually to Abraham, Isaac, and Jacob, *to inherit the land*, and the same promise to the saints, imply it. 
+>(4) The praying of God’s will to be done *on earth as in heaven*— which we know will never be done in the mixed condition of the Church and world down to the Second Advent—infers it 
+>(5) The harvest at *the end of the age*, by a comparison of the Scriptures bearing on it, teaches it. 
+>(6) Separate prophecies which speak of the perpetuity of the Kingdom, etc., *after the Advent of Christ*, such as Dan. 7, Isa. 65 and 66, etc., cannot be consistently explained on any other ground. 
+>(7) The same truth is contained in the predictions, that He shall have all rule, all enemies under Him, etc., *after* His Sec. Advent, He being at the same time the Restorer. 
+>(8) *The Pre-Mill. Advent*, with the results attending it here on earth, evince the same. 
+>(9) The throne and Kingdom—the inheritance of David’s Son, cannot be received, *as covenanted*, unless the perpetuity of the earth after His Coming is upheld. In brief, 
+>(10) the restitution, the heirship of the world (Rom. 4:13), removal of the curse, the predicted reign of the saints on the earth, the occurrences after the Millennial era, as related by John and the prophets, etc., *all inculcate* the same truth.
 >p. 432 Vol. 2 Prop. 141 Obs. 5
 ### Not blotted out of existence
 >Obs. 6. Besides this, it may well be asked whether an earth so highly honored by the birth, presence, sufferings, and death of Christ (and which is His also by inheritance), *can possibly* be blotted out of existence.

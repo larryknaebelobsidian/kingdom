@@ -39,12 +39,12 @@ tags:
 ### New Test. speaks less of restoration than Old Test.
 >Obs. 5. As in the following Props, our proof, given in detail, shall be mainly drawn from the Old Test., it may be well to state why the New Test, does not enter into the subject of the restoration so extendedly as the Old.
 >...
->1. (1) It is taken *for granted* that the instruction of the New *will be combined* with the Old (both being one, etc., comp. Prop. 16), where a sufficiency is given to every one who will “search the Scriptures.” 
->2. (2) The union of the doctrine of the restoration with the events of the Second Advent make it easy for any believer *to join* the declarations of the Old with those of the New Test. 
->3. (3) In the condition of the early Church and of the Jewish nation at, and after, the First Advent, a more detailed statement would *unnecessarily* (in view of the lengthy postponement) have prejudiced the Roman Power (already embittered) against the nation and Church.
+>(1) It is taken *for granted* that the instruction of the New *will be combined* with the Old (both being one, etc., comp. Prop. 16), where a sufficiency is given to every one who will “search the Scriptures.” 
+>(2) The union of the doctrine of the restoration with the events of the Second Advent make it easy for any believer *to join* the declarations of the Old with those of the New Test. 
+>(3) In the condition of the early Church and of the Jewish nation at, and after, the First Advent, a more detailed statement would *unnecessarily* (in view of the lengthy postponement) have prejudiced the Roman Power (already embittered) against the nation and Church.
 >p. 51 Vol. 2 Prop 111 Obs. 5 reformatted
 ### Two remarkable forms of expression of the restoration
 >Obs. 6. In view of the elect position of the nation (Prop. 24) and its consequent Theocratic position, the restoration is so essential, such a prerequisite, that two remarkable forms of expression are employed to indicate it. 
->1. (1) God restores the nation for His own sake, to vindicate His covenant-keeping mercy, and thus magnify His own name. ... Ezek. 36:22 ...
->2. (2) He will do it for *the Father’s sake*, in behalf of that portion who have been believing and God-fearing. ... Rom. 11:28 ... Lev. 26:42-45
+>(1) God restores the nation for His own sake, to vindicate His covenant-keeping mercy, and thus magnify His own name. ... Ezek. 36:22 ...
+>(2) He will do it for *the Father’s sake*, in behalf of that portion who have been believing and God-fearing. ... Rom. 11:28 ... Lev. 26:42-45
 >p. 53 Vol. 2 Prop 111 Obs. 6

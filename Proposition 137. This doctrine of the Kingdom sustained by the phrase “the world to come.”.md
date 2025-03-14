@@ -31,11 +31,11 @@ tags:
 >p. 407 Vol. 2 Prop. 137 Obs. 3
 
 >The proof that Eph. 1:10 thus refers to such a dispensation is found in the context, for 
->1. (1) as numerous passages plainly state, *this gathering of all things into one* is only witnessed when this dispensation or age closes; 
->2. (2) in this gathering “*all things*,” in the Greek the neuter form, evidently also embraces the creation then redeemed from the curse, which only is done in the re-creation *after* this dispensation has ended; 
->3. (3) all things are under Christ in this dispensation mentioned, which is not realized *until after* the Sec. Advent; 
->4. (4) the connection of the “inheritance,” “the redemption of the purchased possession” with this dispensation indicates the same; 
->5. (5) the adopting the exact phraseology of the Jews respecting an incoming age, with the sole change of applying it to Jesus Christ, David’s Son and Lord.
+>(1) as numerous passages plainly state, *this gathering of all things into one* is only witnessed when this dispensation or age closes; 
+>(2) in this gathering “*all things*,” in the Greek the neuter form, evidently also embraces the creation then redeemed from the curse, which only is done in the re-creation *after* this dispensation has ended; 
+>(3) all things are under Christ in this dispensation mentioned, which is not realized *until after* the Sec. Advent; 
+>(4) the connection of the “inheritance,” “the redemption of the purchased possession” with this dispensation indicates the same; 
+>(5) the adopting the exact phraseology of the Jews respecting an incoming age, with the sole change of applying it to Jesus Christ, David’s Son and Lord.
 >p. 407 Vol. 2 Prop. 137 Obs. 3 - reformatted
 
 
