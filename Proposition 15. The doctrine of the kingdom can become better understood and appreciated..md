@@ -18,7 +18,7 @@ None
 > p. 155 Vol. 1 Prop. 15 Obs. 2
 ### Inexhaustible storehouse
 >... the Bible forms “the inexhaustible storehouse” from whence biblical theology derives its solid foundation and growing superstructure—the latter strengthened by the results manifested in historical connection, etc.
->Obs. 3
+>p. 155 Vol. 1 Prop. 15 Obs. 3
 ### Reasons it can become better understood
 >Obs. 4. In the Proposition it is purposely said, “can become better understood,” for several reasons: 
 >(1) There is no subject like this so covered with human additions, speculations, and prejudice. Hence it is so difficult to approach, divested of all bias and preconceived opinions. The greatest care is necessary, owing to the extent and influence of prevailing views, and no step should be taken without substantial scriptural proof to sustain it. 
@@ -26,3 +26,4 @@ None
 >(3) Covenants, in view of their special importance and fundamental bearing, should have the preference in determining the nature of the Kingdom. This, however, is too much overlooked. 
 >(4) Some things are underrated, owing to their simplicity (i.e. “too Jewish”): others are rejected because utterly opposed to human expectations (i.e. “How can these things be?”); and others again are declined as utterly unreasonable, not realizing that faith should apprehend them simply because they are recorded in the truthful Word of God (i.e. with all the laudation of faith, there is very little Abrahamic faith in the world). 
 >(5) The difficulties already enumerated in previous Propositions are not sufficiently considered; difficulties, not relating to the nature of the Kingdom, but to the provisions made for it, the time of its manifestation, the events connected with its exhibition, the symbolical portraiture of its realization, the manner of its divine administration (the divine and human being united), and the remarkable and astounding interpositions of the Supernatural introducing and carrying it forward into the eternal ages—all of which ought to be duly considered in order that increased light may be thrown upon the subject. With such a spirit, and such a posture of recognition and appreciation of the matter before us, there is a prospect before the student of a better understanding of the doctrine.
+>p. 155-156 Vol. 1 Prop. 15 Obs. 4
