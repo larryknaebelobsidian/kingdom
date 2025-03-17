@@ -5,6 +5,12 @@ I highly recommend any believer in Jesus Christ to read *The Theocratic Kingdom*
 166 Mt Sinai
 195 Government of other worlds
 //////////////////////////
+## Private then Public resurrection
+In proposition 130 Peters makes these unusual points:
+- The resurrection of the saints has a private and public aspect
+	- This point seems to have come to light during Peters' day and not as a belief of the primitive church (not chiliasm)
+- The resurrection and translation is to happen **before** the day of Christ
+	- However, Scripture places them **on** the day of Christ
 
 Proposition 130. The Kingdom is preceded by a translation of the living saints.
 >the Thessalonians believed “the day of Christ” to be already present, and his reasoning proceeds to show, not that saints are not to be raised and translated before that day (which is implied), but that before the day itself is ushered in as predicted, a visible Coming and the destruction of Antichrist must precede.
@@ -32,6 +38,16 @@ Resurrection and Translation
 Visible coming of Christ
 Antichrist destroyed
 Day of the Lord
+
+## Raptured up into the clouds then to Mt. Sinai, not heaven
+
+Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.
+
+The private resurrection and translation takes believers to Mt. Sinai to ready them for the Day of Christ (public)
+
+## Government of other worlds
+Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds.
+
 
 
 
