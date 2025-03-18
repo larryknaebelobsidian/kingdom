@@ -6,7 +6,24 @@ I highly recommend any believer in Jesus Christ to read *The Theocratic Kingdom*
 195 Government of other worlds
 //////////////////////////
 
-## Proposition 130
+## Proposition 130. The Kingdom is preceded by a translation of the living saints.
+### Important Additions
+>Obs. 1. While all writers on prophecy insist upon the translation of living saints at the Advent of Jesus, and the Millenarian authors direct especial attention to it; while it was a special object of hope and desire to the early believers and to succeeding ones, it is only more recently, since eschatology has received remarkable study and investigation, that *important additions* (resulting from comparing Scripture with Scripture) have been made to our knowledge respecting it. Our work would be incomplete without noticing this feature, and adding something to a subject imperfectly comprehended by many.
+>p. 314 Vol. 2 Prop. 130 Obs. 1
+
+The reader is cautioned to discern what in this proposition is primitive church belief and what is not.  
+### The common view now discarded as untenable
+>the common view that the resurrection will be a public affair, to be witnessed by the world, is now discarded as untenable in the light of Christ’s (also pertaining to “the first-fruits”) resurrection, which was strictly private. It is now held, and properly, that the members will be raised *like* the Head was (for if a public resurrection, humanly speaking, is desirable, then surely it ought to nave been that of Christ’s), in order that the preparatory events for the coming judgment of the world may be introduced in such a manner (privately) as to establish “*the snare*” and “*the net*” intended for the unbelieving and wicked. Leading prophetical writers justly have no hesitancy in asserting that no mortal eye of unbelief shall behold the resurrection. This at once places the translation of the saints in a new aspect, and indicates, as it accompanies the resurrection, that it also is unseen (like Enoch’s and Elijah’s) by the world.
+>p. 314-315 Vol. 2 Prop. 130 Obs. 1
+
+Was the "common view" that Peters says has now been "discarded as untenable", the chiliast view?
+
+Reasons the "common view" has now been "discarded as untenable":
+1. Christ's own resurrection was private
+2. This private nature of the resurrection of the saints establishes "the snare" and "the net" intended for the unbelieving and wicked.
+3. Leading prophetical writers assert that no mortal eye of unbelief shall behold the resurrection
+4. Unseen by the world like Enoch's and Elijah's
+
 ### Private then Public resurrection
 In proposition 130 Peters makes these unusual points:
 - The resurrection of the saints has a private and public aspect
