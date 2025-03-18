@@ -5,7 +5,9 @@ I highly recommend any believer in Jesus Christ to read *The Theocratic Kingdom*
 166 Mt Sinai
 195 Government of other worlds
 //////////////////////////
-## Private then Public resurrection
+
+## Proposition 130
+### Private then Public resurrection
 In proposition 130 Peters makes these unusual points:
 - The resurrection of the saints has a private and public aspect
 	- This point seems to have come to light during Peters' day and not as a belief of the primitive church (not chiliasm)
@@ -39,13 +41,42 @@ Visible coming of Christ
 Antichrist destroyed
 Day of the Lord
 
-## Raptured up into the clouds then to Mt. Sinai, not heaven
+### Time between private and public perhaps 7 years, 40 years, 70 (30+40) years ...
+
+### Translation is a rescue of living saints from great tribulation
+
+### Removal for deliverance and preparation
+
+### Begins in the night
+
+### FOR and WITH
+
+### Partial
+
+### Hiding
+
+### Translation will be unwitnessed but know to the nations
+
+### Multiple translations
+
+Peters believes that the majority of Christians (but not all) will be left behind to experience the tribulation
+
+### Restrainer
+
+### Two translations
+
+
+## Proposition 166
+### Raptured up into the clouds then to Mt. Sinai, not heaven
 
 Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.
 
 The private resurrection and translation takes believers to Mt. Sinai to ready them for the Day of Christ (public)
 
-## Government of other worlds
+### Removal to Mt. Sinai for deliverance and preparation
+
+## Proposition 195
+### Government of other worlds
 Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds.
 
 
