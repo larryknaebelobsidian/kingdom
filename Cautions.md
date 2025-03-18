@@ -12,7 +12,7 @@ I highly recommend any believer in Jesus Christ to read *The Theocratic Kingdom*
 >p. 314 Vol. 2 Prop. 130 Obs. 1
 
 The reader is cautioned to discern what in this proposition is primitive church belief and what is not.  
-### The common view now discarded as untenable
+### The common view is now discarded as untenable
 >the common view that the resurrection will be a public affair, to be witnessed by the world, is now discarded as untenable in the light of Christ’s (also pertaining to “the first-fruits”) resurrection, which was strictly private. It is now held, and properly, that the members will be raised *like* the Head was (for if a public resurrection, humanly speaking, is desirable, then surely it ought to nave been that of Christ’s), in order that the preparatory events for the coming judgment of the world may be introduced in such a manner (privately) as to establish “*the snare*” and “*the net*” intended for the unbelieving and wicked. Leading prophetical writers justly have no hesitancy in asserting that no mortal eye of unbelief shall behold the resurrection. This at once places the translation of the saints in a new aspect, and indicates, as it accompanies the resurrection, that it also is unseen (like Enoch’s and Elijah’s) by the world.
 >p. 314-315 Vol. 2 Prop. 130 Obs. 1
 
