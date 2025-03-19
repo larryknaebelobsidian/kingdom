@@ -95,7 +95,7 @@ Jesus coming "for or in behalf" of His saints (1 Thess. 3:14-17; 1 Cor. 15:51,52
 | first-fruits                                                                  |     | general harvest                                                |
 
 ### One taken, one left
->Obs. 3. We now come to a passage which directly teaches a translation, viz., Luke 17:34-37, “I tell you, in that night there shall be two men in one bed; the one shall be taken and the other left. Two women shall be grinding together; the one shall be taken and the other left And they answered and said unto Him, Where, Lord? And He said unto them: Wheresoever the body is, thither will the eagles be gathered together” (see Matt. 24:28).
+>Obs. 3. We now come to a passage which directly teaches a translation, viz., Luke 17:34-37, “*I tell you, in that night there shall be two men in one bed; the one shall be taken and the other left. Two women shall be grinding together; the one shall be taken and the other left And they answered and said unto Him, Where, Lord? And He said unto them: Wheresoever the body is, thither will the eagles be gathered together*” (see Matt. 24:28).
 >p. 319 Vol 2 Prop. 130  Obs. 3 
 ### Vultures
 p. 319-322 Vol 2 Prop. 130  Obs. 3 
@@ -146,11 +146,13 @@ Rev 7 - great multitude from every nation
 2 Thess 2:6,7
 6 And you know what restrains him now, so that in his time he will be revealed.7 For the mystery of lawlessness is already at work; only he who now restrains _will do so_ until he is taken out of the way.
 
-Peters suggests Theodoret's opinion is perhaps correct: "the decree of God's Providence"
+Peters suggests Theodoret's opinion is perhaps correct in identifying the restrainer as: "the decree of God's Providence"
 p. 328 Vol 2 Prop. 130 Obs. 8
 ### Two Translations
-Peters believes there will be 2 translations: before ("the first-fruits") and after ("the harvest") the great tribulation (p. 329 Vol 2 )
+Peters believes there will be 2 translations: one before ("the first-fruits") and one after ("the harvest") the great tribulation.
 p. 329 Vol 2 Prop. 130 Obs. 9
+
+
 
 
 
