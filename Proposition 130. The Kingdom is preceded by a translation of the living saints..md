@@ -135,13 +135,19 @@ Rev 7 - great multitude from every nation
 > p. 327-328 Vol 2 Prop. 130 Obs. 7
 
 ***Peters believes that the majority of Christians (but not all) will be left behind to experience the tribulation***
+
+### Terrific persecution
+>Obs. 8. It has been aptly remarked that the removal of righteous persons has been followed (as e.g. Enoch, Noah, Lot, at Jerusalem, etc.) by the outpourings of God’s judgments, and the principle is taught e.g. in the sealing of the 144,000 (Rev. 7). A comparison of Scripture teaches that when this translation is experienced, then will rapidly arise that culminated head of Antichrist which will overwhelm the Church with terrific persecution.   
+>p. 328 Vol 2 Prop. 130 Obs. 8
 ### Restrainer
-The Restrainer 2 Thess 2:6,7
+2 Thess 2:6,7
+6 And you know what restrains him now, so that in his time he will be revealed.7 For the mystery of lawlessness is already at work; only he who now restrains _will do so_ until he is taken out of the way.
 
 Peters suggests Theodoret's opinion is perhaps correct: "the decree of God's Providence"
-
+p. 328 Vol 2 Prop. 130 Obs. 8
 ### Two Translations
 Peters believes there will be 2 translations: before ("the first-fruits") and after ("the harvest") the great tribulation (p. 329 Vol 2 )
+p. 329 Vol 2 Prop. 130 Obs. 9
 
 
 
