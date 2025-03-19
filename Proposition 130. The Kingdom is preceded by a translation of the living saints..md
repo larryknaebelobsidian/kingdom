@@ -16,30 +16,20 @@ tags:
 # Proposition 130. The Kingdom is preceded by a translation of the living saints.
 ### Props Mentioned
 81 114 121 123 [126](Proposition%20126.%20In%20confirmation%20of%20our%20position,%20the%20Old%20Testament%20clearly%20teaches%20a%20Pre-Millennial%20resurrection%20of%20the%20saints..md) [127](Proposition%20127.%20In%20support%20of%20our%20view,%20the%20Apocalypse%20unmistakably%20teaches%20a%20Pre-Millennial%20resurrection%20of%20the%20saints..md) [128](Proposition%20128.%20The%20language%20of%20the%20Gospels%20and%20Epistles%20is%20in%20strict%20accord%20with%20the%20requirements%20of%20a%20Pre-Millennial%20resurrection..md) [129](Proposition%20129.%20The%20Jewish%20view%20of%20a%20Pre-Mill,%20resurrection%20requisite%20for%20the%20introduction%20of%20the%20Messianic%20Kingdom%20is%20fully%20sustained%20by%20the%20grammatical%20sense%20of%20the%20New%20Testament..md) 135 154 160 161 162 163 164 166 169 173 174 177 [181](Proposition%20181.%20Our%20doctrinal%20position%20illustrated%20and%20enforced%20by%20the%20Parable%20of%20the%20Ten%20Virgins..md) 
-
-### PERSONAL NOTE: 
-This topic requires much prayer and study. 
-
-Mar. 2023, I find several details of this proposition foreign to me.  Marking them in the book with ?. - p. 314
-
-My view is that the Bible word "rapture" (1 Thess. 4:17) is a word that only applies to saints who are alive at the return of Christ.  This is not the view of my church. My church uses the word rapture to refer to the snatching of dead and living saints into the air to meet Christ and then to continue on into heaven (where God dwells).
-
-Peters uses the word "translation" to refer to the saints that are alive at the time of Christ's return.  
-
-I currently believe there to be one gathering event (2 Thess. 2:1) of believers at the Second Coming of Christ; the dead believers are raised first and then the living believers are raptured, and together in the clouds they meet the Lord in the air (1 Thess. 4:17). This happens when "the Lord Himself will descend from heaven with a shout, with the voice of the archangel and with the trumpet of God" (1 Thess. 4:16).
-
-My church teaches that Jesus Christ's return is pre-millenial and pre-tribulational.  I currently believe our Lord's return to be pre-millenial, post-tribulational. My church teaches that there are seven years between the rapture and the return of Christ.  I currently believe the rapture, the resurrection and the return of Christ to be the same event.
-
-I have learned from reading this work by George N. H. Peters that he believed our Lord's return to be pre-millenial, pre-tribulational (partial rapture and partial resurrection) and post-tribulational (remaining living and dead saints).  Peters believed that the period between the two stages of Christ's second advent is an extended period of time, something like 35 to 75 years.  Peters believed that our Lord returns from heaven hidden to the world, He then gathers some select saints (dead and alive) with Him to Mt. Sinai for an extended period of time, perhaps 35-75 years, then He returns with His saints to gather the rest of the dead and living saints before setting up His kingdom. 
-
-The notions of multiple raptures/resurrections,  an extended period of time between these, and that this time will be spent at Mt. Sinai are new concepts for me.  I am currently trying to determine if these are views of the primitive church (historic chiliasm) or only the views of Peters' day.
-
 ## Prerequisite
 >This is a *prerequisite*, in order that those accounted worthy to inherit the Kingdom, and rule the nations with Christ, may be gathered. In reference to the dead saints, a Pre-Mill, resurrection (Props. 126-129) is promised by which to attain this object; and with such a resurrection (i.e. at that time) a translation of the living saints is also connected in 1 Thess. 4:17, “*the dead in Christ shall rise first* (or away); *then we which are alive and remain shall be caught up together with them in the clouds* (or, in clouds) *to meet the Lord in the air*," etc. The same is repeated in 1 Cor. 15:61, 52, in union only with the resurrection of believers: “*Behold, I shew you a mystery: We shall not all sleep, but we shall all be changed*," etc.
 >p. 314 Vol 2 Prop 130
+
+### Important Additions
+>Obs. 1. While all writers on prophecy insist upon the translation of living saints at the Advent of Jesus, and the Millenarian authors direct especial attention to it; while it was a special object of hope and desire to the early believers and to succeeding ones, it is only more recently, since eschatology has received remarkable study and investigation, that *important additions* (resulting from comparing Scripture with Scripture) have been made to our knowledge respecting it. Our work would be incomplete without noticing this feature, and adding something to a subject imperfectly comprehended by many.
+>p. 314 Vol. 2 Prop. 130 Obs. 1
+
+See Cautions note regarding the above statement.
 ### Private Resurrection
 >Thus e.g. the common view that the resurrection will be a public affair, to be witnessed by the world, is now discarded as untenable in the light of Christ’s (also pertaining to “the first-fruits”) resurrection, which was *strictly private*. It is now held, and properly, that the members will be raised *like* the Head was (for if a public resurrection, humanly speaking, is desirable, then surely it ought to have been that of Christ’s), in order that the preparatory events for the coming judgment of the world may be introduced in such a manner (privately) as to establish “*the snare*” and “*the net*” intended for the unbelieving and wicked.
 >p. 314-315 Vol 2 Prop 130 Obs. 1
+
+See Cautions note regarding the above statement.
 ### Invisible Resurrection
 >Leading prophetical writers justly have no hesitancy in asserting that no mortal eye of unbelief shall behold the resurrection.
 >p. 315 Vol 2 Prop 130 Obs. 1
@@ -151,6 +141,22 @@ p. 328 Vol 2 Prop. 130 Obs. 8
 ### Two Translations
 Peters believes there will be 2 translations: one before ("the first-fruits") the great tribulation and one after ("the harvest") the great tribulation.
 p. 329 Vol 2 Prop. 130 Obs. 9
+
+### Why a distinction between "first fruits" and "harvest"
+>Obs. 11. The question may be asked, Why such a distinction? The reply is, because such is God’s pleasure in the matter. It is not for us to assert with any degree of positiveness *who* shall thus be favored with a translation, and escape the great tribulation. We can only point out the general affirmation (as e.g. “them that honor me, I will honor,” etc.) upon the subject, and leave each one draw his own conclusions. There is a difference between *mere* salvation and *the special* honor, station, dignity, etc., that God *in addition& may be pleased to bestow upon certain ones. There were other pious ones when Enoch and Elijah were translated, and yet *they only* were favored; and we doubt not that *many* who ultimately will be saved with great glory (because of their faithful witnessing during the last severe trial) will *be left* at this translation.
+>p. 332 Vol 2 Prop. 130 Obs. 11
+### Only the select few who watch and pray always
+>... Dr. Seiss, with whom many concur, is undoubtedly correct in saying: “I have no idea that a very large portion of mankind, or even of the professing Church, will be thus taken. The first translation, if I may so speak, will embrace *only the select few* who watch and pray always,” etc.
+>p. 332 Vol 2 Prop. 130 Obs. 11
+### They love "the blessed hope"
+>... *one distinguishing characteristic* will be exhibited by all, viz., *that they “love the appearing” of Christ* (2 Tim. 4:8), *that they earnestly desire it, and regard it as the highest possible blessing, “the blessed hope”* (Tit. 2:13).
+>p. 332 Vol 2 Prop. 130 Obs. 11
+### To receive instructions and assignments
+>... as Christ comes to make the preliminary arrangements for the setting up of the Theocratic Davidic Kingdom, it is *eminently suitable*, that all the saints down to that period should be gathered in order to receive their instructions, to have their positions, etc., assigned, so that they can act with Him as executors in the Divine administrations that follow. This (Prop. 166) measured by the creatures capacity requires time, and such time will be given to this particular purpose in the place predicted. Hence this distinction grows out of the Divine purpose; which such saints are designed to aid in executing and establishing.
+>p. 333 Vol 2 Prop. 130 Obs. 11
+### Watchful with purity of heart and life
+>All who are *watchful* servants, and whom the truth leads *to purity* of heart and life, out of all denomination, shall be thus translated, but they who despise prophecy (Jer. 23:33-36) shall bear their burden.
+>p. 333 Vol 2 Prop. 130 Obs. 11 Note
 
 
 

@@ -7,13 +7,31 @@ I highly recommend any believer in Jesus Christ to read *The Theocratic Kingdom*
 //////////////////////////
 
 ## Proposition 130. The Kingdom is preceded by a translation of the living saints.
+
+### PERSONAL NOTE: 
+This topic requires much prayer and study. 
+
+Mar. 2023, I find several details of this proposition foreign to me.  Marking them in the book with ?. - p. 314
+
+My view is that the Bible word "rapture" (1 Thess. 4:17) is a word that only applies to saints who are alive at the return of Christ.  This is not the view of my church. My church uses the word rapture to refer to the snatching of dead and living saints into the air to meet Christ and then to continue on into heaven (where God dwells).
+
+Peters uses the word "translation" to refer to the saints that are alive at the time of Christ's return.  
+
+I currently believe there to be one gathering event (2 Thess. 2:1) of believers at the Second Coming of Christ; the dead believers are raised first and then the living believers are raptured, and together in the clouds they meet the Lord in the air (1 Thess. 4:17). This happens when "the Lord Himself will descend from heaven with a shout, with the voice of the archangel and with the trumpet of God" (1 Thess. 4:16).
+
+My church teaches that Jesus Christ's return is pre-millenial and pre-tribulational.  I currently believe our Lord's return to be pre-millenial, post-tribulational. My church teaches that there are seven years between the rapture and the return of Christ.  I currently believe the rapture, the resurrection and the return of Christ to be the same event.
+
+I have learned from reading this work by George N. H. Peters that he believed our Lord's return to be pre-millenial, pre-tribulational (partial rapture and partial resurrection) and post-tribulational (remaining living and dead saints).  Peters believed that the period between the two stages of Christ's second advent is an extended period of time, something like 35 to 75 years.  Peters believed that our Lord returns from heaven hidden to the world, He then gathers some select saints (dead and alive) with Him to Mt. Sinai for an extended period of time, perhaps 35-75 years, then He returns with His saints to gather the rest of the dead and living saints before setting up His kingdom. 
+
+The notions of multiple raptures/resurrections,  an extended period of time between these, and that this time will be spent at Mt. Sinai are new concepts for me.  I am currently trying to determine if these are views of the primitive church (historic chiliasm) or only the views of Peters' day.
+
 ### Important Additions
 >Obs. 1. While all writers on prophecy insist upon the translation of living saints at the Advent of Jesus, and the Millenarian authors direct especial attention to it; while it was a special object of hope and desire to the early believers and to succeeding ones, it is only more recently, since eschatology has received remarkable study and investigation, that *important additions* (resulting from comparing Scripture with Scripture) have been made to our knowledge respecting it. Our work would be incomplete without noticing this feature, and adding something to a subject imperfectly comprehended by many.
 >p. 314 Vol. 2 Prop. 130 Obs. 1
 
 The reader is cautioned to discern what in this proposition is primitive church belief and what is not.  
 ### The common view is now discarded as untenable
->the common view that the resurrection will be a public affair, to be witnessed by the world, is now discarded as untenable in the light of Christ’s (also pertaining to “the first-fruits”) resurrection, which was strictly private. It is now held, and properly, that the members will be raised *like* the Head was (for if a public resurrection, humanly speaking, is desirable, then surely it ought to nave been that of Christ’s), in order that the preparatory events for the coming judgment of the world may be introduced in such a manner (privately) as to establish “*the snare*” and “*the net*” intended for the unbelieving and wicked. Leading prophetical writers justly have no hesitancy in asserting that no mortal eye of unbelief shall behold the resurrection. This at once places the translation of the saints in a new aspect, and indicates, as it accompanies the resurrection, that it also is unseen (like Enoch’s and Elijah’s) by the world.
+>... the common view that the resurrection will be a public affair, to be witnessed by the world, is now discarded as untenable in the light of Christ’s (also pertaining to “the first-fruits”) resurrection, which was *strictly private*. It is now held, and properly, that the members will be raised *like* the Head was (for if a public resurrection, humanly speaking, is desirable, then surely it ought to nave been that of Christ’s), in order that the preparatory events for the coming judgment of the world may be introduced in such a manner (privately) as to establish “*the snare*” and “*the net*” intended for the unbelieving and wicked. Leading prophetical writers justly have no hesitancy in asserting that no mortal eye of unbelief shall behold the resurrection. This at once places the translation of the saints in a new aspect, and indicates, as it accompanies the resurrection, that it also is unseen (like Enoch’s and Elijah’s) by the world.
 >p. 314-315 Vol. 2 Prop. 130 Obs. 1
 
 Was the "common view" that Peters says has now been "discarded as untenable", the chiliast view?
