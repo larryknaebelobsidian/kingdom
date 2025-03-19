@@ -149,7 +149,7 @@ Rev 7 - great multitude from every nation
 Peters suggests Theodoret's opinion is perhaps correct in identifying the restrainer as: "the decree of God's Providence"
 p. 328 Vol 2 Prop. 130 Obs. 8
 ### Two Translations
-Peters believes there will be 2 translations: one before ("the first-fruits") and one after ("the harvest") the great tribulation.
+Peters believes there will be 2 translations: one before ("the first-fruits") the great tribulation and one after ("the harvest") the great tribulation.
 p. 329 Vol 2 Prop. 130 Obs. 9
 
 
