@@ -115,14 +115,17 @@ Rev 7 - great multitude from every nation
 ### Translation will be unwitnessed but known to the nations.
 > It is likely, however, from the consultation of the wicked against them, that while the removal is allowed it will be attributed to natural causes, or to a concerted movement, and that all reference to its supernatural occurrence will be stoutly denied. 
 > p. 327 Vol 2 Prop. 130 Obs. 6
-
-> In all probability, "*the sign of the Son of Man*" (Matt. 24:30) will be something connected with this translation ... 
+### The Sign of the Son of Man
+> In all probability, "*the sign of the Son of Man*" (Matt. 24:30) will be something connected with this translation (for events belonging to one period of time are grouped together without giving in every particular the exact order, as e.g. Isa. 25:6-9, etc.). The sign is one thing and the open visible Coming is another, and yet being a sign directly pertaining to the Son of Man, it relates to Him as in something connected with the Theocratic (see Prop. 81) ordering. Now, let this removal of the saints take place as described by Paul, John, etc., in the night, accompanied by a shout and trump (i.e. events may be denoted— see Obs. below); let the Son of Man be “*in the air*” to receive His risen and translated ones, and as the night advances around the earth, so let Him proceed around this globe in the process of gathering—such will be the accompaniments and the appearance in the sky, that, however explained by the world as electrical, meteorical, etc., it will constitute a sign, and a most impressive one, of the Son of Man. Invisible Himself, sheltered behind the curtains of the bright enveloping clouds, yet His Presence in the air may be exhibited by tokens never before witnessed.
 > p. 327 Vol 2 Prop. 130 Obs. 6
-### Multiple Translations
-> ... *this astonishing removal of certain chosen ones, accounted worthy*, owing to their distinctive faith in God's promises, *to escape*.
+
+>See Prop. 174, where this sign is noticed more at length. It may be added here that if the sign does not refer to a peculiar and striking manifestation in the sky itself, then it may relate to the resurrection, translation, and withdrawal of the saints themselves, such being an indication or sign of "the Son of Man," i.e. of His presence. Or it may (as we can only at best conjecture) denote that the assembling at Mt. Sinai (Prop. 166) is such a sign -- indicative of a previous resurrection and translation by "the Son of Man".
+>p. 327 Vol 2 Prop. 130 Obs. 6 Note 
+### Effect of hidden translation on the Church
+>Obs. 7. The *effect* that this translation will have upon the Church is remarkably corroborative of our position. If we turn to Rev. 14 it is stated that *immediately after* the removal of “the first-fruits” there will be *a most powerful renewed* preaching of the Word of God, deriving its force from a proclamation of the *now certain* coming judgments of God and tribulation under the Antichrist. What causes *such a change* in the style of the preaching, which will result in the conversion, as parallel passages show, of very many, preparing them to pass through the great tribulation, and to suffer death rather than to worship the Beast and his image? Nothing less than *this astonishing removal of certain chosen ones, accounted worthy*, owing to their distinctive faith in God's promises, *to escape*.
 > p. 327 Vol 2 Prop. 130 Obs. 7
 
-> ... surely those who believe in God's Word and are left behind will be most wonderfully affected by the event. 
+> ... surely those who believe in God's Word and are left behind will be *most wonderfully affected* by the event. 
 > p. 327 Vol 2 Prop. 130 Obs. 7
 
 > (The writer has *often, often felt* that it is *specially* for this period that he is laboring, when his work will be appreciated, etc.) 
