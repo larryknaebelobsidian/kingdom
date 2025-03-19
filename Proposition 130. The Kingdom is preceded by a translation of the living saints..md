@@ -74,7 +74,7 @@ See Cautions note regarding the above statement.
 ### FOR and WITH
 p. 318-319 Vol 2 Prop. 130 Obs. 2 
 
-**Error correction**: The book appears to have a passage error in this observation. Although I left the information unchanged, please replace 1 Thess. 3:14-17 with 1 Thess. 4:14-17 in this observation.
+**Typo correction**: This observation has a typo of one bible reference. Although I left the references unchanged below, please mentally replace 1 Thess. 3:14-17 with 1 Thess. 4:14-17. 1 Thess. 3 only has 13 verses.
 
 Jesus coming "for or in behalf" of His saints (1 Thess. 3:14-17; 1 Cor. 15:51,52) and Jesus coming "with all" His saints (Zech. 14:5; Rev. 19:14; 1 Thess. 3:13; Jude 14,15)
 
