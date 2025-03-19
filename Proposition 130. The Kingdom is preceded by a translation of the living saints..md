@@ -17,12 +17,24 @@ tags:
 ### Props Mentioned
 81 114 121 123 [126](Proposition%20126.%20In%20confirmation%20of%20our%20position,%20the%20Old%20Testament%20clearly%20teaches%20a%20Pre-Millennial%20resurrection%20of%20the%20saints..md) [127](Proposition%20127.%20In%20support%20of%20our%20view,%20the%20Apocalypse%20unmistakably%20teaches%20a%20Pre-Millennial%20resurrection%20of%20the%20saints..md) [128](Proposition%20128.%20The%20language%20of%20the%20Gospels%20and%20Epistles%20is%20in%20strict%20accord%20with%20the%20requirements%20of%20a%20Pre-Millennial%20resurrection..md) [129](Proposition%20129.%20The%20Jewish%20view%20of%20a%20Pre-Mill,%20resurrection%20requisite%20for%20the%20introduction%20of%20the%20Messianic%20Kingdom%20is%20fully%20sustained%20by%20the%20grammatical%20sense%20of%20the%20New%20Testament..md) 135 154 160 161 162 163 164 166 169 173 174 177 [181](Proposition%20181.%20Our%20doctrinal%20position%20illustrated%20and%20enforced%20by%20the%20Parable%20of%20the%20Ten%20Virgins..md) 
 
-PERSONAL NOTE: This topic requires much prayer and study. 
+### PERSONAL NOTE: 
+This topic requires much prayer and study. 
 
 Mar. 2023, I find several details of this proposition foreign to me.  Marking them in the book with ?. - p. 314
 
-Personal Note: My view, before reading Peters, is that the Bible word "rapture" only applies to living saints.  Peters uses the word translation.  I currently believe there to be one gathering event (2 Thess. 2:1) of believers at the Second Coming of Christ; the dead believers are raised first and then the living believers are raptured, and together they meet the Lord in the clouds. This happens when "the Lord Himself will descend from heaven with a shout, with the voice of the archangel and with the trumpet of God" (1 Thess. 4:16) 
+My view is that the Bible word "rapture" (1 Thess. 4:17) is a word that only applies to saints who are alive at the return of Christ.  This is not the view of my church. My church uses the word rapture to refer to the snatching of dead and living saints into the air to meet Christ and then to continue on into heaven (where God dwells).
 
+Peters uses the word "translation" to refer to the saints that are alive at the time of Christ's return.  
+
+I currently believe there to be one gathering event (2 Thess. 2:1) of believers at the Second Coming of Christ; the dead believers are raised first and then the living believers are raptured, and together in the clouds they meet the Lord in the air (1 Thess. 4:17). This happens when "the Lord Himself will descend from heaven with a shout, with the voice of the archangel and with the trumpet of God" (1 Thess. 4:16).
+
+My church teaches that Jesus Christ's return is pre-millenial and pre-tribulational.  I currently believe our Lord's return to be pre-millenial, post-tribulational. My church teaches that there are seven years between the rapture and the return of Christ.  I currently believe the rapture, the resurrection and the return of Christ to be the same event.
+
+I have learned from reading this work by George N. H. Peters that he believed our Lord's return to be pre-millenial, pre-tribulational (partial rapture and partial resurrection) and post-tribulational (remaining living and dead saints).  Peters believed that the period between the two stages of Christ's second advent is an extended period of time, something like 35 to 75 years.  Peters believed that our Lord returns from heaven hidden to the world, He then gathers some select saints (dead and alive) with Him to Mt. Sinai for an extended period of time, perhaps 35-75 years, then He returns with His saints to gather the rest of the dead and living saints before setting up His kingdom. 
+
+The notions of multiple raptures/resurrections,  an extended period of time between these, and that this time will be spent at Mt. Sinai are new concepts for me.  I am currently trying to determine if these are views of the primitive church (historic chiliasm) or only the views of Peters' day.
+
+## Prerequisite
 >This is a *prerequisite*, in order that those accounted worthy to inherit the Kingdom, and rule the nations with Christ, may be gathered. In reference to the dead saints, a Pre-Mill, resurrection (Props. 126-129) is promised by which to attain this object; and with such a resurrection (i.e. at that time) a translation of the living saints is also connected in 1 Thess. 4:17, “*the dead in Christ shall rise first* (or away); *then we which are alive and remain shall be caught up together with them in the clouds* (or, in clouds) *to meet the Lord in the air*," etc. The same is repeated in 1 Cor. 15:61, 52, in union only with the resurrection of believers: “*Behold, I shew you a mystery: We shall not all sleep, but we shall all be changed*," etc.
 >p. 314 Vol 2 Prop 130
 ### Private Resurrection
@@ -38,7 +50,7 @@ Personal Note: My view, before reading Peters, is that the Bible word "rapture" 
 >Again, careful students of the Word felt satisfied that the resurrection of the saints in Rev. 20:4-6 was *specifically* that of those who passed through *the great* tribulation under the culminated Antichrist, and was *preceded* by that of others, as implied in Rev. 14:1-6, etc.
 >p. 315 Vol 2 Prop 130 Obs. 1
 ### First not in time but in privilege
-> " The word "first" applied to the resurrection has reference not to its being first in time (which would be incorrect, seeing that Christ's res. and that of saints, Matt. 27:52,53, preceded), but of its being a resurrection which *also* brings those who participated in it *within* the privileges of "the first-born", viz., a double portion, Deut. 21:17;  priesthood, Num. 3:13; and government or dominion, Gen. 27:29. The subject of the resurrection, for a long time, was not clear to the writer until he observed the real scriptural application of the word "first, " as just given."
+> The word "first" applied to the resurrection has reference not to its being first in time (which would be incorrect, seeing that Christ's res. and that of saints, Matt. 27:52,53, preceded), but of its being a resurrection which *also* brings those who participated in it *within* the privileges of "the first-born", viz., a double portion, Deut. 21:17;  priesthood, Num. 3:13; and government or dominion, Gen. 27:29. The subject of the resurrection, for a long time, was not clear to the writer until he observed the real scriptural application of the word "first, " as just given.
 > p. 315 Vol 2 Prop 130 Obs. 1 
 ### One Coming but a Series of Acts
 > Again, "prophetical writers are also agreed that what is called the Sec. Advent (the Advent itself as distinguished from the reign and Kingdom that follows) is not to be regarded as simply one act, but embracing a series of acts connected with the one Coming (for when Jesus comes again He remains upon earth).  That is, the Sec. Advent is to be considered more in the light of the First Advent (which latter embraced not less than thirty-three years, and numerous acts predicted as related to His coming), as something which, owing to a variety of things prophesied concerning it, cannot possibly be limited to a few years." 
@@ -65,12 +77,12 @@ Personal Note: My view, before reading Peters, is that the Bible word "rapture" 
 
 > "This refers the resurrection and translation of a chosen body to "*the night*", i.e. to the close of this dispensation, as preparatory to the introduction of an incoming one." 
 > p. 316 Vol 2 Prop. 130 Obs. 1
-
+### The day has come
 >Again, critical writers in investigating 2 Thess. 2:2 have shown that the word translated “*is at hand*” (in the phrase “*the day of Christ* (or Lord) *is at hand*”) means, correctly rendered, “*is come*," or “*has come*,” i.e. is something *already* present, and *not* something still future. This correctly explains the trouble and alarm of the Thessalonian brethren, who were certainly not afraid of “the blessed hope,” which Paul says they waited for (1 Thess. 1:10), and for which they were prepared (1 Thess. 2:19 and 3:13, and 5:4, 5), but apprehending that “the day of Christ” had *already come*, and they *not having experienced* the promised translation, and their pious dead being still with them without an experienced resurrection, they were *troubled and distressed* at the thought. Those brethren with hearts full of love for the Saviour were not so fearful that they would desire and pray (as multitudes now) that the blessed Lord *should delay* His Coming, but, in some way misapprehending the real state of affairs, they believed that the initiatory proceedings belonging to the day of Christ *had already commenced*, and that they and their pious dead *were left without realizing* the exceeding precious promises given to them. This simple change in a single word, supported too by the strongest of evidence, explains not only the cause of the Thessalonians’ trouble (which Paul proceeds to remove by showing that an apostasy must *first come* to develop into the predicted Antichrist, implying that such an apostasy with its result necessarily required time, still in the future, before “the day of Christ” came), but throws much light, corroborative, on the subject of the resurrection and the translation of the saints. For, to cause such trouble they must have believed that” the day of Christ” would be inaugurated by *preliminaries unseen* by the world, and that the resurrection and translation would *both be invisible*, and they, not participating were doomed to terrible tribulation, or that the predictions were false. We say nothing respecting the source from whence they derived such thoughts, but one thing is impressive, viz., that the Apostle does not correct *such impressions*, but rather by his silence confirms them in them. Yea, more, in beseeching them “by our gathering together unto Him,” he *virtually indorses* the views entertained by them respecting this gathering.
 >p. 316-317 Vol 2 Prop. 130 Obs. 1
 
 ### FOR and WITH
-Obs. 2 p. 318-319 Vol 2 Prop. 130 
+p. 318-319 Vol 2 Prop. 130 Obs. 2 
 Jesus coming "for or in behalf" of His saints (1 Thess. 3:14-17; 1 Cor. 15:51,52) and Jesus coming "with all" His saints (Zech. 14:5; Rev. 19:14; 1 Thess. 3:13; Jude 14,15)
 
 | FOR His saints 1 Th. 3:14-17; 1 Cor. 15:51-52                                 |     | WITH His saints Zech. 14:5; Rev. 19:14; 1 Th. 3:13; Jude 14,15 |
@@ -79,15 +91,18 @@ Jesus coming "for or in behalf" of His saints (1 Thess. 3:14-17; 1 Cor. 15:51,52
 | peaceful Lk. 17:26-30; Mt. 24:36-39; 1 Th. 5:3                                |     | war,distress Zech. 14; Rev. 19, Joel 3; Lk. 21:27              |
 | first-fruits                                                                  |     | general harvest                                                |
 
+### One taken, one left
+>Obs. 3. We now come to a passage which directly teaches a translation, viz., Luke 17:34-37, “I tell you, in that night there shall be two men in one bed; the one shall be taken and the other left. Two women shall be grinding together; the one shall be taken and the other left And they answered and said unto Him, Where, Lord? And He said unto them: Wheresoever the body is, thither will the eagles be gathered together” (see Matt. 24:28).
+>p. 319 Vol 2 Prop. 130  Obs. 3 
 ### Vultures
-Obs. 3 p. 319-322 Vol 2 Prop. 130 
-Luke 17:34-37 - Translation
+p. 319-322 Vol 2 Prop. 130  Obs. 3 
+I tell you, on that night there will be two in one bed; one will be taken and the other will be left.35 There will be two women grinding _grain_ at the same place; one will be taken and the other will be left.36 [Two men will be in the field; one will be taken and the other will be left.”]37 And answering they said to Him, “Where, Lord?” And He said to them, “Where the body _is,_ there also the vultures will be gathered.”
+Luke 17:34-37 - LSB
 
 eagles/vultures - saints
 body - followers of the antichrist
-
-### Partial
-Obs. 4 p. 322-325 Vol 2 Prop. 130 
+### Partial resurrection/translation
+p. 322-325 Vol 2 Prop. 130 Obs. 4 
 ***One class of believers kept from the great tribulation and another class goes into it.***
 
 Rev 7 - 144,000 - note: Peters says this 144,000 is a different group than the 144,000 of chapter 14
