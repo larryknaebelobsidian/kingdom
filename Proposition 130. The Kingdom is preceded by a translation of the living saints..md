@@ -83,6 +83,9 @@ The notions of multiple raptures/resurrections,  an extended period of time betw
 
 ### FOR and WITH
 p. 318-319 Vol 2 Prop. 130 Obs. 2 
+
+**Error correction**: The book appears to have a passage error in this observation. Although I left the information unchanged, please replace 1 Thess. 3:14-17 with 1 Thess. 4:14-17 in this observation.
+
 Jesus coming "for or in behalf" of His saints (1 Thess. 3:14-17; 1 Cor. 15:51,52) and Jesus coming "with all" His saints (Zech. 14:5; Rev. 19:14; 1 Thess. 3:13; Jude 14,15)
 
 | FOR His saints 1 Th. 3:14-17; 1 Cor. 15:51-52                                 |     | WITH His saints Zech. 14:5; Rev. 19:14; 1 Th. 3:13; Jude 14,15 |
