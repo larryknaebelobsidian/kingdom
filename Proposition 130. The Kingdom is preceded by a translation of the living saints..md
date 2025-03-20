@@ -172,8 +172,17 @@ p. 329 Vol 2 Prop. 130 Obs. 9
 ### The joyfullest tidings to me - Richard Baxter
 >Richard Baxter (Works, vol. 16, p. 555) may express these blessings in his ardent prayer and longings that Christ may speedily come in order that death might not be experienced, etc., saying: “The thoughts of the Coming of the Lord are most sweet and joyful to me, so that if I were but sure I should live to see it, and that the trumpet should sound and the dead should rise, and the Lord appear before the period of my age, it would be the joyfullest tidings to me in the world,” etc. 
 >p. 333-334 Vol 2 Prop. 130 Obs. 12
+### Influence of translation on families, communities, churches, etc.
+>Obs. 13. The reader, too, will for himself imagine the influence that such a translation must have, whenever it occurs, upon families, communities, churches, etc. The sudden disappearance of husband or wife, parent or child, sister or brother, pastor or member, etc., will be startling in the extreme. Such a separation “in that night,” when in the bed, or the social gathering, or on the journey, will result in an outburst of grief, in a wonderful heart searching, and in a renewed, most diligent study of God’s Word.
+>p. 334 Vol 2 Prop. 130 Obs. 13
+### Translation doctrine to be ridiculed
+>Obs. 14. It is reasonable to expect that this doctrine of a translation will be ridiculed both before and after the occurrence of it.
+>p. 335 Vol 2 Prop. 130 Obs. 14
+### "Time of the End" and "Last Days"
+>Obs. 15. To the critical student it is proper in this place to make some remarks on the phrase “Time of the End” and “Last Days.”
+>p. 336 Vol 2 Prop. 130 Obs. 15
 
-
+"Time of the End" refers to the time interval between the two translations.
 
 
 
