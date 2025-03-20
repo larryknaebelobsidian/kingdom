@@ -37,47 +37,36 @@ But by His word the present heavens and earth are being reserved for fire, being
 ### Zech 14 - Day
 
 [Zechariah 14:1](https://read.lsbible.org/?q=Zechariah+14&h=38-014-001)
-
 Behold, a **day** is coming for Yahweh when the spoil taken from you will be divided among you.
 
 [Zechariah 14:3](https://read.lsbible.org/?q=Zechariah+14&h=38-014-003)
-
 Then Yahweh will go forth and fight against those nations, as the **day** when He fights on a **day** of battle.
 
 [Zechariah 14:4](https://read.lsbible.org/?q=Zechariah+14&h=38-014-004)
-
 And in that **day** His feet will stand on the Mount of Olives, which is in front of Jerusalem on the east; and the Mount of Olives will be split in its middle from east to west by a very large valley so that half of the mountain will move toward the north and the other half toward the south.
 
 [Zechariah 14:5](https://read.lsbible.org/?q=Zechariah+14&h=38-014-005)
-
 And you will flee by the valley of My mountains, for the valley of the mountains will reach to Azel; indeed, you will flee just as you fled before the earthquake in the **days** of Uzziah king of Judah. Then Yahweh, my God, will come, and all the holy ones with Him!
 
 [Zechariah 14:6](https://read.lsbible.org/?q=Zechariah+14&h=38-014-006)
-
 And it will be in that **day**, that there will be no light; the luminaries will dwindle.
 
 [Zechariah 14:7](https://read.lsbible.org/?q=Zechariah+14&h=38-014-007)
-
 And it will be a unique **day** which is known to Yahweh, neither **day** nor night, but it will be that at evening time there will be light.
 
 [Zechariah 14:8](https://read.lsbible.org/?q=Zechariah+14&h=38-014-008)
-
 And it will be in that **day**, that living waters will flow out of Jerusalem, half of them toward the eastern sea and the other half toward the western sea; it will be in summer as well as in winter.
 
 [Zechariah 14:9](https://read.lsbible.org/?q=Zechariah+14&h=38-014-009)
-
 And Yahweh will be king over all the earth; in that **day** Yahweh will be the only one, and His name one.
 
 [Zechariah 14:13](https://read.lsbible.org/?q=Zechariah+14&h=38-014-013)
-
 And it will be in that **day**, that abundant confusion from Yahweh will fall on them; and they will take hold of one another’s hand, and the hand of one will go up against the hand of another.
 
 [Zechariah 14:20](https://read.lsbible.org/?q=Zechariah+14&h=38-014-020)
-
 In that **day** there will be inscribed on the bells of the horses, “Holy to Yahweh.” And the pots in the house of Yahweh will be like the bowls before the altar.
 
 [Zechariah 14:21](https://read.lsbible.org/?q=Zechariah+14&h=38-014-021)
-
 And every pot in Jerusalem and in Judah will be holy to Yahweh of hosts; and all who sacrifice will come and take of them and boil in them. And there will no longer be a Canaanite in the house of Yahweh of hosts in that **day**.
 ### Not all judgement is at the same time
 >Obs. 1. Again the reader is reminded that the Jewish and Early Church doctrine of the Judgment Day is something *very different* from the Popish doctrine now so generally entertained. The notion of an assize, a universal gathering of dead and living, pious and wicked, before a tribunal at which character is to be tested, etc., was developed in the Church several centuries later, in the form *now* held by many writers. On all sides are to be found utterances concerning the judgment utterly unknown, and completely antagonistic to the doctrine *once held by the Church*.
@@ -102,10 +91,6 @@ And every pot in Jerusalem and in Judah will be holy to Yahweh of hosts; and all
 ### A day
 >Obs. 4. The Judgment Day is designated, Acts 17:31, “*He hath appointed a day wherein He will judge the world in righteousness*,” etc.
 >p. 365 Vol. 2 Prop. 133 Obs. 4
-
-Rom. 2:16
-1 Thess. 5:2
-1 Cor. 1:8
 
 >It is called “*a day*,” which in the largeness of prophecy does not indicate an ordinary day, or even a brief period of time, but may include a *long, extended time*.
 >p. 365 Vol. 2 Prop. 133 Obs. 4
