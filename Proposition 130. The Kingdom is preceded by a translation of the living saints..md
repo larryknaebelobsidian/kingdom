@@ -130,8 +130,7 @@ Rev 7 - great multitude from every nation
 > The Church, *then* starting up with Abrahamic faith *will recognize its chronological position*, will *see what* is before it, and, energetically infused by fear and hope, *prepare itself* for the fearful ordeal through which it must pass. And we are assured that the Church in this contest, overpowered as she will be, will sustain the persecution *with triumphant faith*, feeling convinced from the events occurring and the time elapsed, that the Son of Man is even *already present*, waiting for the moment of direct interference." (p. 327-328 Vol 2)
 > p. 327-328 Vol 2 Prop. 130 Obs. 7
 
-***Peters believes that the majority of Christians (but not all) will be left behind to experience the tribulation***
-
+Peters believes that the majority of Christians (but not all) will be left behind to experience the tribulation
 ### Terrific persecution
 >Obs. 8. It has been aptly remarked that the removal of righteous persons has been followed (as e.g. Enoch, Noah, Lot, at Jerusalem, etc.) by the outpourings of God’s judgments, and the principle is taught e.g. in the sealing of the 144,000 (Rev. 7). A comparison of Scripture teaches that when this translation is experienced, then will rapidly arise that culminated head of Antichrist which will overwhelm the Church with terrific persecution.   
 >p. 328 Vol 2 Prop. 130 Obs. 8
@@ -184,6 +183,17 @@ p. 329 Vol 2 Prop. 130 Obs. 9
 
 "Time of the End" refers to the time interval between the two translations.
 
+>The end itself is not an abrupt, sudden end, but embraces time or years in its termination.
+>p. 336 Vol 2 Prop. 130 Obs. 15
+
+>St. John (1 John 2:18) uses the phrase “*the last time*” declaratively respecting this entire Christian dispensation, because Antichristian spirit and principles characterize it during the whole period, while Jude (v. 18), connecting it with the Advent, seems to limit (comp. 2 Pet. 3:3) it more to the concluding period of the same. It has been observed (e.g. Faber, *Diss. on Proph.*, p. 87) that the expressions “*latter days*” or “*times*,” and “*last days*," do not precisely denote the same period of time. While the former may include the latter to some extent, yet the one is significant of *an indefinite termination* of this dispensation, i.e. in contrast with the past history of the world or past duration; the other is expressive of “the last days” or “the end,” or “time of the end.” The chief characteristic of “*the latter days*” is that of superstition and apostatizing, and the main feature of “the last days” is that of blasphemous infidelity and direct opposition to God. The one is the forerunner of the other; the one culminates in the other; the one, Antichristian, paves the way for the other, the fully developed Antichrist, who denies both Father and Son. “The latter days” usher in “the last days.”
+>p. 337-338 Vol 2 Prop. 130 Obs. 15
+
+>The student will observe that the phrases “latter days and “last days” in the Old Test, are the comparative and superlative of the one expression in the original, “the end of days” (comp. Faber’s *Diss. on Proph.*, ch. 3).
+>p. 338 Vol 2 Prop. 130 Obs. 15
+
+>We cannot limit it to seven years (i.e. the interval) as some do, because those seven years are applicable to *a special time*, relating to the Jews and Antichrist, and do not cover *the entire* interval, as seen e.g. in Mic. 7:15, etc., and in the events pertaining to the period which cannot, without undue violence (as e.g. the Jews dwelling in unwalled villages safely and prosperously when Antichrist comes upon them, etc.), be crowded into so small a space of time. 
+>p. 338 Vol 2 Prop. 130 Obs. 15 note
 
 
 
