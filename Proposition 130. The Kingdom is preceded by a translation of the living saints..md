@@ -134,7 +134,7 @@ Rev 7 - great multitude from every nation
 >p. 328 Vol 2 Prop. 130 Obs. 8
 ### Restrainer
 2 Thess 2:6,7
-6 And you know what restrains him now, so that in his time he will be revealed.7 For the mystery of lawlessness is already at work; only he who now restrains _will do so_ until he is taken out of the way.
+6 And you know what restrains him now, so that in his time he will be revealed. 7 For the mystery of lawlessness is already at work; only he who now restrains _will do so_ until he is taken out of the way.
 
 Peters suggests Theodoret's opinion is perhaps correct in identifying the restrainer as: "the decree of God's Providence"
 p. 328 Vol 2 Prop. 130 Obs. 8
