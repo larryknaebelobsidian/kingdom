@@ -16,23 +16,15 @@ tags:
 # Proposition 130. The Kingdom is preceded by a translation of the living saints.
 ### Props Mentioned
 81 114 121 123 [126](Proposition%20126.%20In%20confirmation%20of%20our%20position,%20the%20Old%20Testament%20clearly%20teaches%20a%20Pre-Millennial%20resurrection%20of%20the%20saints..md) [127](Proposition%20127.%20In%20support%20of%20our%20view,%20the%20Apocalypse%20unmistakably%20teaches%20a%20Pre-Millennial%20resurrection%20of%20the%20saints..md) [128](Proposition%20128.%20The%20language%20of%20the%20Gospels%20and%20Epistles%20is%20in%20strict%20accord%20with%20the%20requirements%20of%20a%20Pre-Millennial%20resurrection..md) [129](Proposition%20129.%20The%20Jewish%20view%20of%20a%20Pre-Mill,%20resurrection%20requisite%20for%20the%20introduction%20of%20the%20Messianic%20Kingdom%20is%20fully%20sustained%20by%20the%20grammatical%20sense%20of%20the%20New%20Testament..md) 135 154 160 161 162 163 164 166 169 173 174 177 [181](Proposition%20181.%20Our%20doctrinal%20position%20illustrated%20and%20enforced%20by%20the%20Parable%20of%20the%20Ten%20Virgins..md) 
-
 ## Prerequisite
 >This is a *prerequisite*, in order that those accounted worthy to inherit the Kingdom, and rule the nations with Christ, may be gathered. In reference to the dead saints, a Pre-Mill, resurrection (Props. 126-129) is promised by which to attain this object; and with such a resurrection (i.e. at that time) a translation of the living saints is also connected in 1 Thess. 4:17, “*the dead in Christ shall rise first* (or away); *then we which are alive and remain shall be caught up together with them in the clouds* (or, in clouds) *to meet the Lord in the air*," etc. The same is repeated in 1 Cor. 15:61, 52, in union only with the resurrection of believers: “*Behold, I shew you a mystery: We shall not all sleep, but we shall all be changed*," etc.
 >p. 314 Vol 2 Prop 130
-
-
-
 ### Important Additions
 >Obs. 1. While all writers on prophecy insist upon the translation of living saints at the Advent of Jesus, and the Millenarian authors direct especial attention to it; while it was a special object of hope and desire to the early believers and to succeeding ones, it is only more recently, since eschatology has received remarkable study and investigation, that *important additions* (resulting from comparing Scripture with Scripture) have been made to our knowledge respecting it. Our work would be incomplete without noticing this feature, and adding something to a subject imperfectly comprehended by many.
 >p. 314 Vol. 2 Prop. 130 Obs. 1
-
-See Cautions note regarding the above statement.
 ### Private Resurrection
 >Thus e.g. the common view that the resurrection will be a public affair, to be witnessed by the world, is now discarded as untenable in the light of Christ’s (also pertaining to “the first-fruits”) resurrection, which was *strictly private*. It is now held, and properly, that the members will be raised *like* the Head was (for if a public resurrection, humanly speaking, is desirable, then surely it ought to have been that of Christ’s), in order that the preparatory events for the coming judgment of the world may be introduced in such a manner (privately) as to establish “*the snare*” and “*the net*” intended for the unbelieving and wicked.
 >p. 314-315 Vol 2 Prop 130 Obs. 1
-
-See Cautions note regarding the above statement.
 ### Invisible Resurrection
 >Leading prophetical writers justly have no hesitancy in asserting that no mortal eye of unbelief shall behold the resurrection.
 >p. 315 Vol 2 Prop 130 Obs. 1
@@ -63,7 +55,6 @@ See Cautions note regarding the above statement.
 
 >The Second Advent inaugurates a series of most tremendous judgments, both upon the Church and the world—so terrific that they are constantly pointed out as *the culmination of God’s wrath*—and it is reasonable to suppose, judging from God’s past dealings, that He again will grant *special deliverance* to those who are devoted to Him. At this time also, the removal being designed not only to save out of tribulation, but to prepare the saints, deemed worthy of it, *for promised rulership then to be instituted, and for joint participation* in the administration of judgments upon the nations, a translation accompanied by the same transforming change, glorification, which the resurrected saints experience, is precisely that which we ought to anticipate.
 >p. 316 Vol 2 Prop. 130 Obs. 1
-
 ### Begins in 'the night'
 > "It is universally admitted by Millenarians that "the day of the Lord Jesus" is preceded not only by "*a morning*", but that it virtually begins in "*the night*"; Christ representing His Coming to be when it is yet "*night*", He being "*the morning star*", which ushers in "*the morning*" of the glorious day." 
 > p. 316 Vol 2 Prop. 130 Obs. 1
@@ -73,7 +64,6 @@ See Cautions note regarding the above statement.
 ### The day has come
 >Again, critical writers in investigating 2 Thess. 2:2 have shown that the word translated “*is at hand*” (in the phrase “*the day of Christ* (or Lord) *is at hand*”) means, correctly rendered, “*is come*," or “*has come*,” i.e. is something *already* present, and *not* something still future. This correctly explains the trouble and alarm of the Thessalonian brethren, who were certainly not afraid of “the blessed hope,” which Paul says they waited for (1 Thess. 1:10), and for which they were prepared (1 Thess. 2:19 and 3:13, and 5:4, 5), but apprehending that “the day of Christ” had *already come*, and they *not having experienced* the promised translation, and their pious dead being still with them without an experienced resurrection, they were *troubled and distressed* at the thought. Those brethren with hearts full of love for the Saviour were not so fearful that they would desire and pray (as multitudes now) that the blessed Lord *should delay* His Coming, but, in some way misapprehending the real state of affairs, they believed that the initiatory proceedings belonging to the day of Christ *had already commenced*, and that they and their pious dead *were left without realizing* the exceeding precious promises given to them. This simple change in a single word, supported too by the strongest of evidence, explains not only the cause of the Thessalonians’ trouble (which Paul proceeds to remove by showing that an apostasy must *first come* to develop into the predicted Antichrist, implying that such an apostasy with its result necessarily required time, still in the future, before “the day of Christ” came), but throws much light, corroborative, on the subject of the resurrection and the translation of the saints. For, to cause such trouble they must have believed that ”the day of Christ” would be inaugurated by *preliminaries unseen* by the world, and that the resurrection and translation would *both be invisible*, and they, not participating were doomed to terrible tribulation, or that the predictions were false. We say nothing respecting the source from whence they derived such thoughts, but one thing is impressive, viz., that the Apostle does not correct *such impressions*, but rather by his silence confirms them in them. Yea, more, in beseeching them “by our gathering together unto Him,” he *virtually indorses* the views entertained by them respecting this gathering.
 >p. 316-317 Vol 2 Prop. 130 Obs. 1
-
 ### FOR and WITH
 p. 318-319 Vol 2 Prop. 130 Obs. 2 
 
