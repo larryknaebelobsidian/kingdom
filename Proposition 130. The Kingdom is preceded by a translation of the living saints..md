@@ -16,9 +16,12 @@ tags:
 # Proposition 130. The Kingdom is preceded by a translation of the living saints.
 ### Props Mentioned
 81 114 121 123 [126](Proposition%20126.%20In%20confirmation%20of%20our%20position,%20the%20Old%20Testament%20clearly%20teaches%20a%20Pre-Millennial%20resurrection%20of%20the%20saints..md) [127](Proposition%20127.%20In%20support%20of%20our%20view,%20the%20Apocalypse%20unmistakably%20teaches%20a%20Pre-Millennial%20resurrection%20of%20the%20saints..md) [128](Proposition%20128.%20The%20language%20of%20the%20Gospels%20and%20Epistles%20is%20in%20strict%20accord%20with%20the%20requirements%20of%20a%20Pre-Millennial%20resurrection..md) [129](Proposition%20129.%20The%20Jewish%20view%20of%20a%20Pre-Mill,%20resurrection%20requisite%20for%20the%20introduction%20of%20the%20Messianic%20Kingdom%20is%20fully%20sustained%20by%20the%20grammatical%20sense%20of%20the%20New%20Testament..md) 135 154 160 161 162 163 164 166 169 173 174 177 [181](Proposition%20181.%20Our%20doctrinal%20position%20illustrated%20and%20enforced%20by%20the%20Parable%20of%20the%20Ten%20Virgins..md) 
+
 ## Prerequisite
 >This is a *prerequisite*, in order that those accounted worthy to inherit the Kingdom, and rule the nations with Christ, may be gathered. In reference to the dead saints, a Pre-Mill, resurrection (Props. 126-129) is promised by which to attain this object; and with such a resurrection (i.e. at that time) a translation of the living saints is also connected in 1 Thess. 4:17, “*the dead in Christ shall rise first* (or away); *then we which are alive and remain shall be caught up together with them in the clouds* (or, in clouds) *to meet the Lord in the air*," etc. The same is repeated in 1 Cor. 15:61, 52, in union only with the resurrection of believers: “*Behold, I shew you a mystery: We shall not all sleep, but we shall all be changed*," etc.
 >p. 314 Vol 2 Prop 130
+
+
 
 ### Important Additions
 >Obs. 1. While all writers on prophecy insist upon the translation of living saints at the Advent of Jesus, and the Millenarian authors direct especial attention to it; while it was a special object of hope and desire to the early believers and to succeeding ones, it is only more recently, since eschatology has received remarkable study and investigation, that *important additions* (resulting from comparing Scripture with Scripture) have been made to our knowledge respecting it. Our work would be incomplete without noticing this feature, and adding something to a subject imperfectly comprehended by many.
@@ -155,7 +158,7 @@ p. 329 Vol 2 Prop. 130 Obs. 9
 >... as Christ comes to make the preliminary arrangements for the setting up of the Theocratic Davidic Kingdom, it is *eminently suitable*, that all the saints down to that period should be gathered in order to receive their instructions, to have their positions, etc., assigned, so that they can act with Him as executors in the Divine administrations that follow. This (Prop. 166) measured by the creatures capacity requires time, and such time will be given to this particular purpose in the place predicted. Hence this distinction grows out of the Divine purpose; which such saints are designed to aid in executing and establishing.
 >p. 333 Vol 2 Prop. 130 Obs. 11
 ### Watchful with purity of heart and life
->All who are *watchful* servants, and whom the truth leads *to purity* of heart and life, out of all denomination, shall be thus translated, but they who despise prophecy (Jer. 23:33-36) shall bear their burden.
+>All who are *watchful* servants, and whom the truth leads *to purity* of heart and life, out of all denomination, shall be thus translated, but they who despise prophecy (Jer. 23:33-36) shall bear their burden. 
 >p. 333 Vol 2 Prop. 130 Obs. 11 Note
 
 
