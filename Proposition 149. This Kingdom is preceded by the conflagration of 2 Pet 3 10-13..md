@@ -9,7 +9,7 @@ subjects:
 tags:
   - toc
 ---
-# Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.
+# Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3:10-13.
 
 LSB
 Copyright © 2021 by The Lockman Foundation. All rights reserved.  
