@@ -8,7 +8,7 @@ subjects:
 tags:
   - toc
 ---
-# Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.
+# Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things" mentioned, Acts 3 19-21.
 
 ### Props Mentioned
 65 70 86 113 120 124 127 159
@@ -52,13 +52,13 @@ Therefore repent and return, so that your sins may be wiped away, in order that 
 >p. 469 Vol. 2 Prop. 144 Obs. 6
 ### Multiple "times"
 >Dr. Craven (Lange’s *Com. Rev.*, p. 339) gives an interesting note on this passage, well worthy of notice. He refers to the plural “times” as indicative of lengthened period (to which we also attach the idea of successive stages or periods), and fully advocates our position. We give this extract: “The following seem to be the elements of *the restitution* predicted in the foregoing Scriptures: 
->1. A restoration of the hearts of the fathers to the children, Mai. 4:6. 
+>1. A restoration of the hearts of the fathers to the children, Mal. 4:6. 
 >2. The restoration of the rejected seed of Jacob to holiness and the subsequent favor of God, Isa. 1:25; Jer. 24:7. 
 >3. The restoration of Israel to their own land, *passim*. 
 >4. The establishment of Israel not again to be dispersed, Jer. 24:6, 7. 
->5. The establishment of the Kingdom of righteousness as a visible Kingdom, in power and great glory, with its seat at Jerusalem, Isa. 1:25, 26 (2:2,.3); 58:12-14; Jer. 23:5-8; 23:7 sqq. 
+>5. The establishment of the Kingdom of righteousness as a visible Kingdom, in power and great glory, with its seat at Jerusalem, Isa. 1:25, 26 (2:2, 3); 58:12-14; Jer. 23:5-8; 23:7 sqq. 
 >6. The gathering of all nations as tributary to Israel or the Church. 
->7. The Palingenesia, Isa. 11; 65:17 sqq.”
+>7. The Palingenesia, Isa. 11; 65:17 sqq."
 >p. 471 Vol. 2 Prop. 144 Obs. 7 reformatted
 
 
