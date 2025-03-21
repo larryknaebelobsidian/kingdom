@@ -40,5 +40,10 @@ subjects:
 >the Patriarchs are personally promised such an inheriting; that the Messiah is personally to receive the land as an inheritance; that the saints, as part of a perfected Redemption, are to realize it; that a thousand predictions direct attention to it,...
 >p. 447 Vol. 2 Prop. 142 Obs.  7
 
+>Thus e.g. Pressence (*The Early Days of Chris.*, p. 249), taking 1 Pet. 1:4, isolated and overlooking its context, says: "The hope of the Church reaches far beyond the horizon of the Theocracy. It is fixed no longer on *an earthly inheritance*, like the land of Canaan; it is changed into the lively hope of "an inheritance incorruptible and undefiled, and that fadeth not away, reserved in heaven, 1 Pet. 1:4."  Now, the exact reverse of this is the scriptural truth, confirmed by oath. We are to look for a gloriously restored Theocracy under David's Son, its central location in Canaan and extending over the whole earth. But this restoration includes much that is heavenly, as the descending New Jerusalem, the descending Mighty Heir, the descending resurrecting power and glorification, the heavenly derived Kingship and priesthood, all of which is *to be revealed* (as the same apostle asserts in immediate connection) *at the Second Coming of the Restorer*. Our opponents seem to be willingly ignorant of the fact -- often expressed by us -- that the saints, in virtue of their relationship to the Divine-human Saviour and King, have a twofold inheritance, the earth redeemed and the Kingdom, with all its heavenly endowments and accomplishments, established on the earth.
+>...
+>If we look for any other, we *deceive* ourselves and *dishonor* God's promises.
+>p. 447 Vol. 2 Prop. 142 Obs.  7 note
+
 
 
