@@ -17,8 +17,8 @@ tags:
 >Obs. 2. For it is employed by Jesus Himself in His address to the Jews, without any alleged change of meaning, and in accord with their views. Thus Matt. 13:39, 40, 49, “*the harvest is the end of the world*” “*so shall it be at the end of this world*” simply means that such things will be at “the end of the age.”
 >p. 421 Vol. 2 Prop. 140 Obs. 2
 ### Some interpret "end" as annihilation
->Obs. 4. The expressions “end of the world,” “last day,” etc., have influenced many to reject the Jewish idea of *a dispensation* to follow this one; and in their eagerness to make out such an age or era impracticable, they have even asserted the complete destruction or the world (some even have it annihilated, see following Prop.), and a previous withdrawal of the righteous to the third heaven, where they forever remain.
+>Obs. 4. The expressions “end of the world,” “last day,” etc., have influenced many to reject the Jewish idea of *a dispensation* to follow this one; and in their eagerness to make out such an age or era impracticable, they have even asserted the complete destruction of the world (some even have it annihilated, see following Prop.), and a previous withdrawal of the righteous to the third heaven, where they forever remain.
 >p. 424 Vol. 2 Prop. 140 Obs. 4
-### Eminent and learned men agree in and ending of the present age and the ushering in of a glorious one
+### Eminent and learned men agree in an ending of the present age and the ushering in of a glorious one
 >Obs. 5. So powerful and convincing are the reasons for holding to the ending of the present ago or dispensation and the ushering of another and more glorious (the Sabbatism), that a multitude of the most eminent and learned men firmly hold to it.
 >p. 425 Vol. 2 Prop. 140 Obs. 5
