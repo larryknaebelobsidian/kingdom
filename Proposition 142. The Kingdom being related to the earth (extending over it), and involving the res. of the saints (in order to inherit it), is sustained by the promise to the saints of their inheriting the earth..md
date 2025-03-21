@@ -33,11 +33,11 @@ subjects:
 >it makes *the inheritance something very different from the one alone promised* to the Patriarchs and to David’s Son, and under which promise the saints *only inherit*. That inheritance is the earth and *not* the third heaven or the Universe.
 >p. 444 Vol. 2 Prop. 142 Obs.  5
 ### Many false views of inheritance
->Obs. 7. This doctrine teaches us how to regard the various theories of inheritance, such as the third heaven idea, the central universe notion, the metaphysical heaven (of Good’s, etc.), which gives no place of existence, the spiritualist’s visible unfolding of the invisible, “the Sun our Heaven” (so Mortimore, Wittie, etc.),
+>Obs. 7. This doctrine teaches us how to regard the various theories of inheritance, such as the third heaven idea, the central universe notion, the metaphysical heaven (of Good’s, etc.), which gives no place of existence, the spiritualist’s visible unfolding of the invisible, “the Sun our Heaven” (so Mortimore, Wittie, etc.), and the infidel’s no future inheritance. By overlooking the plainest promises and oath-bound covenants, or by spiritualizing them, men manufacture inheritances of their own.
 >...
 >the inheriting of the earth was a favorite Jewish doctrine based on the Messianic prophecies and the predicted supremacy;
 >...
->the Patriarchs are personally promised such an inheriting; that the Messiah is personally to receive the land as an inheritance; that the saints, ad part of a perfected Redemption, are to realize it; that a thousand predictions direct attention to it,...
+>the Patriarchs are personally promised such an inheriting; that the Messiah is personally to receive the land as an inheritance; that the saints, as part of a perfected Redemption, are to realize it; that a thousand predictions direct attention to it,...
 >p. 447 Vol. 2 Prop. 142 Obs.  7
 
 
