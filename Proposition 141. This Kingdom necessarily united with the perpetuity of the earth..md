@@ -56,7 +56,7 @@ Ps. 89:34-37.
 >(8) *The Pre-Mill. Advent*, with the results attending it here on earth, evince the same. 
 >(9) The throne and Kingdom—the inheritance of David’s Son, cannot be received, *as covenanted*, unless the perpetuity of the earth after His Coming is upheld. In brief, 
 >(10) the restitution, the heirship of the world (Rom. 4:13), removal of the curse, the predicted reign of the saints on the earth, the occurrences after the Millennial era, as related by John and the prophets, etc., *all inculcate* the same truth.
->p. 432 Vol. 2 Prop. 141 Obs. 5
+>p. 432 Vol. 2 Prop. 141 Obs. 5 -- slightly reformatted
 ### Not blotted out of existence
 >Obs. 6. Besides this, it may well be asked whether an earth so highly honored by the birth, presence, sufferings, and death of Christ (and which is His also by inheritance), *can possibly* be blotted out of existence.
 >p. 432 Vol. 2 Prop. 141 Obs. 6
