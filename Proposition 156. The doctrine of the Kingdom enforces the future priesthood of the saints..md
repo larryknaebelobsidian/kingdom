@@ -23,7 +23,7 @@ tags:
 >Now, the saints being *co-heirs* with Him, participants of His honor and glory, partake of His Kingship and Priesthood. In this they “shall be like Him,” thus fulfilling the promises pertaining to *the greatness* of their joy, honor, and glory. Hence they are distinctively promised, not only the exaltation of kingship, but also that of priesthood.
 >p. 607 Vol. 2 Prop. 156 Obs. 2
 
->Obs. 3. A Theocracy being a *Divine-Civil* Government, God Himself being the earthly Ruler, a certain pre-eminence is given to the religions above the civil.
+>Obs. 3. A Theocracy being a *Divine-Civil* Government, God Himself being the earthly Ruler, a certain pre-eminence is given to the religious above the civil.
 >p. 608 Vol. 2 Prop. 156 Obs. 3
 
 >Obs. 4. In Ex. 19:5, 6 we have presented God’s desire to exalt the Theocratic ordering by making it “a Kingdom of priests,” i.e. a Kingdom so permeated by heartfelt allegiance to God, the Ruler, that it would be under the permanent authority of a holy priesthood, thus making *the Divine a controlling element*.
