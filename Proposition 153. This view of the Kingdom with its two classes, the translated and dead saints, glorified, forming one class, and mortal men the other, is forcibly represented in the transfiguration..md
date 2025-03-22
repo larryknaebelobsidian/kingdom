@@ -9,7 +9,7 @@ completion: 1
 tags:
   - toc
 ---
-# Proposition 153. This view of the Kingdom with its two classes (viz., the translated and dead saints, glorified, forming one class) and mortal men the other) is forcibly represented in the transfiguration.
+# Proposition 153. This view of the Kingdom with its two classes (viz., the translated and dead saints, glorified, forming one class and mortal men the other) is forcibly represented in the transfiguration.
 
 ### Props Mentioned
 50 81 83 86 114 118 124 130 138 184 205
