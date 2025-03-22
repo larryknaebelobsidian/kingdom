@@ -828,7 +828,7 @@ Proposition 206. This earth will yet witness the re-establishment of a glorious 
 
 ---
 
-![Proposition 153. This view of the Kingdom with its two classes (viz., the translated and dead saints, glorified, forming one class) and mortal men the other) is forcibly represented in the transfiguration.](Proposition%20153.%20This%20view%20of%20the%20Kingdom%20with%20its%20two%20classes%20(viz.,%20the%20translated%20and%20dead%20saints,%20glorified,%20forming%20one%20class)%20and%20mortal%20men%20the%20other)%20is%20forcibly%20represented%20in%20the%20transfiguration..md)
+![Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration.](Proposition%20153.%20This%20view%20of%20the%20Kingdom%20with%20its%20two%20classes,%20the%20translated%20and%20dead%20saints,%20glorified,%20forming%20one%20class,%20and%20mortal%20men%20the%20other,%20is%20forcibly%20represented%20in%20the%20transfiguration..md)
 
 ---
 
