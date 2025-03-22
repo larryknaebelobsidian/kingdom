@@ -133,7 +133,7 @@ Proposition 130. The Kingdom is preceded by a translation of the living saints.�
 Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth.   
 Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.   
 Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”   
-Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.   
+Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25:31-46.   
 Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers,.   
 Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.    
 Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”   
@@ -143,14 +143,14 @@ Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of th
 Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.   
 Proposition 142. The Kingdom being related to the earth (extending over it), and involving the res. of the saints (in order to inherit it), is sustained by the promise to the saints of their inheriting the earth.   
 Proposition 143. The early church doctrine of the Kingdom is supported by “the Rest” or keeping of the Sabbath, mentioned by Paul.   
-Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.  
-Proposition 145. This Kingdom includes “the regeneration” of Matt 19 28.   
+Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3:19-21.  
+Proposition 145. This Kingdom includes “the regeneration” of Matt 19:28.   
 Proposition 146. This Kingdom is associated with the deliverance of creation.   
 Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth.   
 Proposition 148. This Kingdom embraces the new heavens and new earth.  
-Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.   
+Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3:10-13.   
 Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.   
-Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.   
+Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65:17 and 66:22, of 2 Pet. 3:13, and of Rev. 21:1.   
 Proposition 152. This Kingdom is connected with the perpetuation of the human race.   
 Proposition 153. This view of the Kingdom with its two classes (viz., the translated and dead saints, glorified, forming one class) and mortal men the other) is forcibly represented in the transfiguration.   
 Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.   
@@ -169,7 +169,7 @@ Proposition 166. The rudimentary reorganization of this Kingdom will be made at 
 Proposition 167. The re-establishment of this Kingdom embraces also the reception of a New Revelation of the Divine Will.   
 Proposition 168. This Kingdom has its place of manifested royalty.  
 Proposition 169. This Theocratic Kingdom embraces the marriage of Christ to the New Jerusalem.   
-Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.   
+Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14:2.   
 Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.   
 Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.
 Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.   

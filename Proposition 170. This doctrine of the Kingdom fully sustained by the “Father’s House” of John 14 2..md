@@ -6,7 +6,7 @@ completion: 1
 tags:
   - toc
 ---
-# Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.
+# Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14:2.
 
 ### Props Mentioned
 43 69 70 71 72 73 74 75 76 121 152 168 169
