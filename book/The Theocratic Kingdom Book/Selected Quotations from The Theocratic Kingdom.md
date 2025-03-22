@@ -161,7 +161,7 @@ Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3:10-13.
 Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.   
 Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65:17 and 66:22, of 2 Pet. 3:13, and of Rev. 21:1.   
 Proposition 152. This Kingdom is connected with the perpetuation of the human race.   
-Proposition 153. This view of the Kingdom with its two classes (viz., the translated and dead saints, glorified, forming one class) and mortal men the other) is forcibly represented in the transfiguration.   
+Proposition 153. This view of the Kingdom with its two classes (viz., the translated and dead saints, glorified, forming one class and mortal men the other) is forcibly represented in the transfiguration.   
 Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.   
 Proposition 155. This Kingdom exhibits Jesus, not only as the King, but as “the Priest.”   
 Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.   
