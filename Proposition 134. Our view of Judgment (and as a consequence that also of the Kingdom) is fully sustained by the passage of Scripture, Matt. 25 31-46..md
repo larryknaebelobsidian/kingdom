@@ -40,7 +40,7 @@ tags:
 >(8) The phrase “*all* nations” does not by any means include every individual, *much less* the generations past ...
 >p. 375 Vol. 2 Prop. 134 Obs. 2 Item 7.
 
->The wicked are represented as cast into “a fire.” Now *precisely this* will occur at *the Pre-Mill. Advent* of Jesus. The reader is urged *to compare* e.g. on this point, Rev. 19:20; Dan. 7:10,11; Isa. 66:15, 16, 24; Mai. 4:1-3, etc. Fire, as indicating the vengeance of God, is frequently predicted as belonging to the introduction of the Kingdom or the Mill, blessedness.
+>The wicked are represented as cast into “a fire.” Now *precisely this* will occur at *the Pre-Mill. Advent* of Jesus. The reader is urged *to compare* e.g. on this point, Rev. 19:20; Dan. 7:10,11; Isa. 66:15, 16, 24; Mal. 4:1-3, etc. Fire, as indicating the vengeance of God, is frequently predicted as belonging to the introduction of the Kingdom or the Mill, blessedness.
 >p. 377 Vol. 2 Prop. 134 Obs. 2 Item 16.
 
 >The saints that come with Jesus, as other passages show, *participate* in this judgment, judgment, for they have obtained *a priority* of rulership or Judgeship, and the intended dealing of King Jesus with the nations, as preparatory to the establishment of His Kingdom, is thus briefly and powerfully stated in the line of thought suggested by the manner in which rulership is secured in it.

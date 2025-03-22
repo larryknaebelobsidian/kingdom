@@ -32,7 +32,7 @@ tags:
 >p. 82 Vol. 2 Prop 113 Obs. 4
 ### Extraordinary repentance
 >It is no *ordinary* repentance, and not merely that of individuals, but *extraordinary and national* in its extent, Micah 7:15-20, etc. It is *caused* by 
->1. the judgments of God, Mai. 3:2—4; Hos. 5:15; Isa. 30:18-19, and 
+>1. the judgments of God, Mal. 3:2-4; Hos. 5:15; Isa. 30:18-19, and 
 >2. the personal presence of the King, Micah 2:12-13; Ezek. 20:33-44; Zeph. 3:15. 
 >3. It is done that God’s faithfulness may appear, Ezek. 36:22; Isa. .43:25; Isa. 44:22-26. 
 >4. It is bestowed in the land given to their fathers into which they are brought, Ezek. 36:24-35; Jer. 33:7-16; Jer. 32:37-44; Jer. 31, etc. 

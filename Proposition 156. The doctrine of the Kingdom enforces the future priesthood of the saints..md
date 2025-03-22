@@ -32,7 +32,7 @@ tags:
 >Obs. 5. “The first-born” of Israel were regarded as *specially belonging to the Lord and consecrated to the Priesthood*.
 >p. 608 Vol. 2 Prop. 156 Obs. 5
 
->Obs. 6. The priests were specially charged (Deut. 33:9,10 and 17:9-13; Lev. 10:11; Hos. 4:6; Mai. 2:7, etc.) to preserve and teach the laws, Theocratic, that were already given.
+>Obs. 6. The priests were specially charged (Deut. 33:9,10 and 17:9-13; Lev. 10:11; Hos. 4:6; Mal. 2:7, etc.) to preserve and teach the laws, Theocratic, that were already given.
 >p. 609-610 Vol. 2 Prop. 156 Obs. 6
 
 >Obs. 7. The priests acted as Judges (Deut. 21:5 and 17:8-13, etc.), so that with the priestly, there was inseparably associated the civil character. They were by virtue of their priesthood in the service of the State and Church—they were, as a Theocratic ordering necessitates, *ministers of Church and State*.
