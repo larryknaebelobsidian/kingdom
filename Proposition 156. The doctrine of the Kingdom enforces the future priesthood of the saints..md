@@ -38,10 +38,10 @@ tags:
 >Obs. 7. The priests acted as Judges (Deut. 21:5 and 17:8-13, etc.), so that with the priestly, there was inseparably associated the civil character. They were by virtue of their priesthood in the service of the State and Church—they were, as a Theocratic ordering necessitates, *ministers of Church and State*.
 >p. 610 Vol. 2 Prop. 156 Obs. 7
 ### Not all believers
->Not all believers will be kings or priests (Props. 130, 153), but only those *specially counted worthy of the honor*.
+>Not all believers will be kings or priests (Props. 130, 153), but only those *specially counted worthy of the honor*. But such will be the honor and delight, the fulness of happiness and the recognition of grace, that even the most subsidiary position will be abundantly satisfactory, as expressed by David, Ps. 84:10.
 >p. 610-611 Vol. 2 Prop. 156 Obs. 8
 ### Spiritual sacrifices
->Obs. 9. These priests tender the sacrifices of heart, lips, and life— “spiritual sacrifices” (1 Pet. 2:5; Heb. 13:15, 16, etc., showing how the word “sacrifice” is employed). The offerings that they bring are not bloody sacrifices, for these are superseded by the one offering (Heb. 10:12-14, etc.) of Jesus, but offerings offerings indicative of allegiance, friendship, reverence, gratitude, praise, service.
+>Obs. 9. These priests tender the sacrifices of heart, lips, and life— “spiritual sacrifices” (1 Pet. 2:5; Heb. 13:15, 16, etc., showing how the word “sacrifice” is employed). The offerings that they bring are not bloody sacrifices, for these are superseded by the one offering (Heb. 10:12-14, etc.) of Jesus, but offerings indicative of allegiance, friendship, reverence, gratitude, praise, service. This has been so amply discussed that it needs no repetition (see Prop. 172).
 >p. 611 Vol. 2 Prop. 156 Obs. 9
 ### To glorify the King
 >Obs. 10. These glorified priests are an elect, chosen body (Props. 62, 64, 65) in person and office, representative of the majesty of the Theocratic King, raised to their exalted position and nearness officially to Him that they may be “*to the praise of His glory*.” Their number, rank, duty, devotedness, etc., serve to glorify the Messiah (comp, preceding Prop., Obs. 8).
