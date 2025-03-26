@@ -38,6 +38,6 @@ None
 >p. 381 Vol. 3 Prop. 190 Obs. 4 slightly reformatted
 
 ### The Church is a probationary and preparatory stage
->Indeed, these epistles if in agreement with the general analogy of the Word, must, of necessity, make the Church a probationary and preparatory stage, and must designate with special prominence the Second Advent, because then the glorious promises of God, covenanted and predicted, with be amply realized.
+>Indeed, these epistles if in agreement with the general analogy of the Word, must, of necessity, make the Church a probationary and preparatory stage, and must designate with special prominence the Second Advent, because then the glorious promises of God, covenanted and predicted, will be amply realized.
 >p. 381 Vol. 3 Prop. 190 Obs. 4 note
 
