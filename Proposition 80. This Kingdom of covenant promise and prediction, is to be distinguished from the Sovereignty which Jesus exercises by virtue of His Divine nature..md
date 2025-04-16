@@ -14,7 +14,7 @@ tags:
 >This is distinctively shown by a simple fact (overlooked by the multitude) that the Kingdom is *never* promised to Him as “*the Son of God*” but as (the covenants and predictions demand it) “*the Son of Man*" or “*the Son of David*".
 >p. 559 Vol. 1 Prop. 80
 ### Jesus is Lord over all in his divine nature
->Obs. 1. It may be premised, in order to avoid misconception, that Jesus now in His Divine nature, in His Oneness with the Father, does exercise a dominion over all things. According to this nature He is Lord over all, and this is, in our estimation, most unequivocally taught in such passages as John 1:8; Col. 1:15, 19; Phil.’ 2:9,11; 1 Cor. 8:6; Rom. 11:36; Rev. 1:5-6, etc.
+>Obs. 1. It may be premised, in order to avoid misconception, that Jesus now in His Divine nature, in His Oneness with the Father, does exercise a dominion over all things. According to this nature He is Lord over all, and this is, in our estimation, most unequivocally taught in such passages as John 1:8; Col. 1:15, 19; Phil. 2:9,11; 1 Cor. 8:6; Rom. 11:36; Rev. 1:5-6, etc.
 >p. 559 Vol. 1 Prop. 80 Obs. 1
 ### Divine-Human
 >The Theocracy, by incorporating the Davidic kingship, embraces, as *the grand instrumentality* for its future re-establishment in sublime power and glory, *the Divine-Human*, now united in Jesus, the Messiah.
