@@ -21,7 +21,7 @@ tags:
 >...
 >Such spiritualize the dominion, and do not allow *its ultimate realization in the very place where it was forfeited*, i.e. they refuse to believe in man’s restored dominion *over the earth*, and make thus *an imperfect* Redemption.
 >p. 573 Vol. 1 Prop. 82 Obs. 2
-### Restored Theocratic David throne and Kingdom
+### Restored Theocratic Davidic throne and Kingdom
 >Obs. 3. This dominion, here on earth, will be exerted by Jesus, the Man, through the re-establishment *of the Theocratic* ordering. It is the restored Theocratic Davidic throne and Kingdom, in its organized and associated capacity, under the leadership of the covenanted King that constitutes *the leverage* for the exertion of this dominion. The saints, made like unto Christ and associated with Him in His power, largely participate in it, *all nature* being brought into subjection to them. Thus the Scriptures will be *amply fulfilled*.
 >p. 574 Vol. 1 Prop. 82 Obs. 3
 ### In abeyance until the kingdom

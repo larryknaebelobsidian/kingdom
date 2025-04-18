@@ -1,4 +1,11 @@
 File is automatically generated and any changes will be overwritten
+### Psalms
+| Verse | Ref |
+| ---- | ---- |
+| 8:5 | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
+| 8:6 | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
+| 8:7 | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
+| 8:8 | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
 ### Daniel
 | Verse | Ref |
 | ---- | ---- |
@@ -32,6 +39,8 @@ File is automatically generated and any changes will be overwritten
 | Verse | Ref |
 | ---- | ---- |
 | 1 | [[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature..md\|Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]] |
+| 2:6 | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
+| 2:7 | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
 | 4:14 | [[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature..md\|Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]] |
 | 12:2 | [[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature..md\|Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]] |
 ### Revelation
