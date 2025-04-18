@@ -8,40 +8,14 @@ File is automatically generated and any changes will be overwritten
 | 8:21 | [[Proposition 141. This Kingdom necessarily united with the perpetuity of the earth..md\|Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.]] |
 | 8:22 | [[Proposition 141. This Kingdom necessarily united with the perpetuity of the earth..md\|Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.]] |
 | 11 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 12 | [[supporting/You shall be a blessing.md\|You shall be a blessing]] |
-| | [[supporting/Make your name great.md\|Make your name great]] |
-| | [[supporting/Make you a great nation.md\|Make you a great nation]] |
-| | [[supporting/God will bless you (Abraham).md\|God will bless you (Abraham)]] |
-| | [[supporting/Curse those who curse you.md\|Curse those who curse you]] |
-| | [[supporting/Bless those who bless you.md\|Bless those who bless you]] |
-| | [[supporting/Bless all the families of the earth in you.md\|Bless all the families of the earth in you]] |
-| | [[supporting/Abrahamic Covenant.md\|Abrahamic Covenant]] |
-| 12:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 12:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 12:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 12:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 12:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 12:1 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 12:2 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 12:3 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 12:7 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 13:14 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 13:15 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 13:16 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 13:17 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 15 | [[supporting/Your descendents will be as numerous as the stars.md\|Your descendents will be as numerous as the stars]] |
-| | [[supporting/Your reward shall be very great.md\|Your reward shall be very great]] |
-| | [[supporting/Your descendents will be strangers in a land.md\|Your descendents will be strangers in a land]] |
-| | [[supporting/One from your own body shall be your heir.md\|One from your own body shall be your heir]] |
-| | [[supporting/Give you this land to possess it.md\|Give you this land to possess it]] |
-| | [[supporting/Abrahamic Covenant.md\|Abrahamic Covenant]] |
 | 15:4 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 15:5 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 15:6 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
@@ -69,15 +43,6 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 15:21 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 17 | [[supporting/Multiply you exceedingly.md\|Multiply you exceedingly]] |
-| | [[supporting/Make you exceeding fruitful.md\|Make you exceeding fruitful]] |
-| | [[supporting/Make nations of you.md\|Make nations of you]] |
-| | [[supporting/Kings will come forth from you.md\|Kings will come forth from you]] |
-| | [[supporting/Give you this land to possess it.md\|Give you this land to possess it]] |
-| | [[supporting/Father of a multitude of nations.md\|Father of a multitude of nations]] |
-| | [[supporting/Everlasting Covenant.md\|Everlasting Covenant]] |
-| | [[supporting/Circumcision.md\|Circumcision]] |
-| | [[supporting/Abrahamic Covenant.md\|Abrahamic Covenant]] |
 | 17:4 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 17:5 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 17:6 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
@@ -93,88 +58,12 @@ File is automatically generated and any changes will be overwritten
 | 17:16 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 19:15 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 19:19 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
-| 22:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 22:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 22:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 22:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 22:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 22:15 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 22:16 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 22:17 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 22:18 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 27:29 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | 28:12 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
-| 28:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 ### Exodus
 | Verse | Ref |
 | ---- | ---- |
@@ -200,17 +89,6 @@ File is automatically generated and any changes will be overwritten
 | ---- | ---- |
 | 3:13 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | 11:29 | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
-| 24:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 ### Deuteronomy
 | Verse | Ref |
 | ---- | ---- |
@@ -248,41 +126,10 @@ File is automatically generated and any changes will be overwritten
 | 17:13 | [[Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom..md\|Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom.]] |
 | 21:5 | [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints..md\|Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.]] |
 | 21:17 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
-| 29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 29:10 | [[Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom..md\|Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom.]] |
 | 29:11 | [[Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom..md\|Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom.]] |
 | 29:12 | [[Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom..md\|Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom.]] |
 | 29:13 | [[Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom..md\|Proposition 25. The Theocracy was an earnest, introductory, or initiatory form of this Kingdom.]] |
-| 30:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 31:16 | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
 | 32 | [[Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation..md\|Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation.]] |
 | | [[Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine..md\|Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine.]] |
@@ -295,10 +142,6 @@ File is automatically generated and any changes will be overwritten
 | 33:9 | [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints..md\|Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.]] |
 | 33:10 | [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints..md\|Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.]] |
 | 33:12 | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
-### Joshua
-| Verse | Ref |
-| ---- | ---- |
-| 5:6 | [[supporting/Milk and Honey.md\|Milk and Honey]] |
 ### Judges
 | Verse | Ref |
 | ---- | ---- |
@@ -330,10 +173,6 @@ File is automatically generated and any changes will be overwritten
 ### 2 Samuel
 | Verse | Ref |
 | ---- | ---- |
-| 7 | [[supporting/Make your name great.md\|Make your name great]] |
-| | [[supporting/Give you rest from all your enemies.md\|Give you rest from all your enemies]] |
-| | [[supporting/Davidic Covenant.md\|Davidic Covenant]] |
-| | [[supporting/A place for my people Israel.md\|A place for my people Israel]] |
 | 7:1 | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
 | 7:10 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 7:11 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
@@ -369,37 +208,17 @@ File is automatically generated and any changes will be overwritten
 ### 1 Chronicles
 | Verse | Ref |
 | ---- | ---- |
-| 17 | [[supporting/Your house, kingdom, throne shall be established forever.md\|Your house, kingdom, throne shall be established forever]] |
-| | [[supporting/My lovingkindness shall not depart from him.md\|My lovingkindness shall not depart from him]] |
-| | [[supporting/I will raise up your descendant after you.md\|I will raise up your descendant after you]] |
-| | [[supporting/I will establish his kingdom.md\|I will establish his kingdom]] |
-| | [[supporting/I will establish the throne of his kingdom forever.md\|I will establish the throne of his kingdom forever]] |
-| | [[supporting/I will be a father to him.md\|I will be a father to him]] |
-| | [[supporting/He shall build a house for my name.md\|He shall build a house for my name]] |
-| | [[supporting/Davidic Covenant.md\|Davidic Covenant]] |
-| | [[supporting/A place for my people Israel.md\|A place for my people Israel]] |
-| 17:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 17:11 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
-| 17:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 17:12 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
-| 17:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 17:13 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
-| 17:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 17:14 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
-| 17:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
-| 17:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
-| 17:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 83. This Kingdom is given to the Son of Man by God, the Father..md\|Proposition 83. This Kingdom is given to the Son of Man by God, the Father.]] |
+| 17:15 | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
+| 17:16 | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
+| 17:17 | [[Proposition 83. This Kingdom is given to the Son of Man by God, the Father..md\|Proposition 83. This Kingdom is given to the Son of Man by God, the Father.]] |
 | | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
 | 17:18 | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
 | 17:19 | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
@@ -430,32 +249,20 @@ File is automatically generated and any changes will be overwritten
 | ---- | ---- |
 | 9:36 | [[Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown..md\|Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown.]] |
 | 9:37 | [[Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown..md\|Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown.]] |
-### Job
-| Verse | Ref |
-| ---- | ---- |
-| 19:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 ### Psalms
 | Verse | Ref |
 | ---- | ---- |
-| 1:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 2 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 2:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 2:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 2:7 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 3:3 | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
 | 3:4 | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
 | 8:3 | [[Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds..md\|Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds.]] |
-| 8:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds..md\|Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds.]] |
-| 8:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
-| 8:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
+| 8:4 | [[Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds..md\|Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds.]] |
+| 8:5 | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
+| 8:6 | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 8:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
-| 8:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
+| 8:7 | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
+| 8:8 | [[Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man..md\|Proposition 82. This Kingdom is a complete restoration in the person of the Second Adam or Man, of the dominion lost by the First Adam or Man.]] |
 | 9:1 | [[Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order..md\|Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order.]] |
 | 9:2 | [[Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order..md\|Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order.]] |
 | 9:3 | [[Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order..md\|Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order.]] |
@@ -465,14 +272,6 @@ File is automatically generated and any changes will be overwritten
 | 9:7 | [[Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order..md\|Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order.]] |
 | 9:8 | [[Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order..md\|Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order.]] |
 | 9:14 | [[Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes..md\|Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.]] |
-| 16:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 21:7 | [[Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order..md\|Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order.]] |
 | 21:8 | [[Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order..md\|Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order.]] |
 | 21:9 | [[Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order..md\|Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order.]] |
@@ -484,78 +283,12 @@ File is automatically generated and any changes will be overwritten
 | 22:28 | [[Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order..md\|Proposition 176. Our doctrine of the Kingdom embraces the conversion of the world, but in the Scriptural order.]] |
 | 23 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | 23:5 | [[Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”.md\|Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”]] |
-| 24:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 27:13 | [[Proposition 148. This Kingdom embraces the new heavens and new earth..md\|Proposition 148. This Kingdom embraces the new heavens and new earth.]] |
 | 28:9 | [[Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine..md\|Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine.]] |
 | 37 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 142. The Kingdom being related to the earth (extending over it), and involving the res. of the saints (in order to inherit it), is sustained by the promise to the saints of their inheriting the earth..md\|Proposition 142. The Kingdom being related to the earth (extending over it), and involving the res. of the saints (in order to inherit it), is sustained by the promise to the saints of their inheriting the earth.]] |
 | 37:39 | [[Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes..md\|Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.]] |
-| 40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 45:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 46:5 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
-| 48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 49:14 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | 49:15 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | 58:10 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
@@ -563,166 +296,11 @@ File is automatically generated and any changes will be overwritten
 | 65 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 65:7 | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
 | 67:4 | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
-| 68:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 68:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:51 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:52 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:53 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:54 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:55 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:56 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:57 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:58 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:59 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:60 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:61 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:62 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:63 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:64 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:65 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:66 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:67 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 68:68 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 68:23 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 69 | [[Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents..md\|Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents.]] |
-| 69:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:51 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:52 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:53 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:54 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:55 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:56 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:57 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:58 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:59 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:60 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:61 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:62 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:63 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:64 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:65 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:66 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:67 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:68 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 69:69 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 72 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 72:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 72:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 72:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:51 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:52 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:53 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:54 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:55 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:56 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:57 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:58 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:59 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:60 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:61 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:62 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:63 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:64 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:65 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:66 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:67 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:68 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:69 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:70 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:71 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 72:72 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 72:15 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
+| 72:17 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 74 | [[Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes..md\|Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.]] |
 | 76 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 78:54 | [[Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine..md\|Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine.]] |
@@ -731,7 +309,6 @@ File is automatically generated and any changes will be overwritten
 | 81:15 | [[Proposition 26. The Theocracy thus instituted would have been permanently established if the people, in their national capacity, had been faithful in obedience..md\|Proposition 26. The Theocracy thus instituted would have been permanently established if the people, in their national capacity, had been faithful in obedience.]] |
 | 81:16 | [[Proposition 26. The Theocracy thus instituted would have been permanently established if the people, in their national capacity, had been faithful in obedience..md\|Proposition 26. The Theocracy thus instituted would have been permanently established if the people, in their national capacity, had been faithful in obedience.]] |
 | 84:10 | [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints..md\|Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.]] |
-| 85 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 88:10 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | 88:11 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | 88:12 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
@@ -739,375 +316,67 @@ File is automatically generated and any changes will be overwritten
 | 88:14 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | 88:15 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | 89 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 89:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 89:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 89:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 89:17 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
+| 89:18 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
+| 89:20 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:21 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:22 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:23 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:24 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:25 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:26 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:27 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:28 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:29 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:30 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:31 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:32 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:33 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:34 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
 | | [[Proposition 141. This Kingdom necessarily united with the perpetuity of the earth..md\|Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.]] |
-| 89:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:35 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
 | | [[Proposition 141. This Kingdom necessarily united with the perpetuity of the earth..md\|Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.]] |
-| 89:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:36 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
 | | [[Proposition 141. This Kingdom necessarily united with the perpetuity of the earth..md\|Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.]] |
-| 89:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:37 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
 | | [[Proposition 141. This Kingdom necessarily united with the perpetuity of the earth..md\|Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.]] |
-| 89:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:51 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:52 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
-| 89:53 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:54 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:55 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:56 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:57 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:58 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:59 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:60 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:61 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:62 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:63 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:64 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:65 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:66 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:67 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:68 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:69 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:70 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:71 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:72 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:73 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:74 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:75 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:76 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:77 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:78 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:79 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:80 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:81 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:82 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:83 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:84 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:85 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:86 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:87 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:88 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 89:89 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 89:38 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:39 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:40 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:41 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:42 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:43 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:44 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:45 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:46 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:47 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:48 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:49 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:50 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:51 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
+| 89:52 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
 | 90 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | 92:7 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | 92:8 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | 92:9 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
-| 93 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
-| 94 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 95 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 93 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | 95:8 | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
-| 96 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 96:10 | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
 | 96:11 | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
 | 96:12 | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
 | 96:13 | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
-| 97 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 97:3 | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
-| 98 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 98:2 | [[Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes..md\|Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.]] |
 | 98:5 | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
 | 98:6 | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
 | 98:7 | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
 | 98:8 | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
 | 98:9 | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
-| 99 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 101:8 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
-| 102:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:51 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:52 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:53 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:54 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:55 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:56 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:57 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:58 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:59 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:60 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:61 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:62 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:63 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:64 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:65 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:66 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:67 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:68 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:69 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:70 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:71 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:72 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:73 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:74 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:75 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:76 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:77 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:78 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:79 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:80 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:81 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:82 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:83 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:84 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:85 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:86 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:87 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:88 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:89 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:90 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:91 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:92 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:93 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:94 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:95 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:96 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:97 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:98 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:99 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:100 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:101 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 102:102 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 104:5 | [[Proposition 141. This Kingdom necessarily united with the perpetuity of the earth..md\|Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.]] |
 | 110 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 110:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:51 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:52 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:53 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:54 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:55 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:56 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:57 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:58 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:59 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:60 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:61 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:62 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:63 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:64 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:65 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:66 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:67 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:68 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:69 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:70 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:71 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:72 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:73 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:74 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:75 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:76 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:77 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:78 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:79 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:80 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:81 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:82 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:83 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:84 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:85 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:86 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:87 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:88 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:89 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:90 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:91 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:92 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:93 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:94 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:95 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:96 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:97 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:98 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:99 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:100 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:101 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:102 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:103 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:104 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:105 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:106 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:107 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:108 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:109 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 110:110 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 117 | [[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation..md\|Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]] |
 | 118:14 | [[Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes..md\|Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.]] |
 | 118:24 | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
@@ -1153,8 +422,7 @@ File is automatically generated and any changes will be overwritten
 ### Isaiah
 | Verse | Ref |
 | ---- | ---- |
-| 1:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
+| 1:1 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | 1:2 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | 1:3 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | 1:4 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
@@ -1189,10 +457,8 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 2 | [[Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end..md\|Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 2:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 2:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
+| 2:1 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
+| 2:2 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 2:3 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
@@ -1218,58 +484,27 @@ File is automatically generated and any changes will be overwritten
 | 2:20 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 2:21 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 2:22 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 3:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 3:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 3:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 8:19 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | 8:20 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | 9 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 9:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:6 | [[supporting/Messiah.md\|Messiah]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 93. The Covenanted Kingdom is not the Christian Church..md\|Proposition 93. The Covenanted Kingdom is not the Christian Church.]] |
-| 9:7 | [[supporting/Messiah.md\|Messiah]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 93. The Covenanted Kingdom is not the Christian Church..md\|Proposition 93. The Covenanted Kingdom is not the Christian Church.]] |
+| 9:6 | [[Proposition 93. The Covenanted Kingdom is not the Christian Church..md\|Proposition 93. The Covenanted Kingdom is not the Christian Church.]] |
+| 9:7 | [[Proposition 93. The Covenanted Kingdom is not the Christian Church..md\|Proposition 93. The Covenanted Kingdom is not the Christian Church.]] |
 | | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end..md\|Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end.]] |
-| 9:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11 | [[supporting/Messiah.md\|Messiah]] |
-| | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
+| 11 | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 11:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 11:4 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 11:5 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 11:6 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 11:7 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 11:8 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 11:9 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 11:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 11:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 11:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 11:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 11:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 11:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom..md\|Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom.]] |
+| 11:10 | [[Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom..md\|Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom.]] |
 | | [[Proposition 143. The early church doctrine of the Kingdom is supported by “the Rest” or keeping of the Sabbath, mentioned by Paul..md\|Proposition 143. The early church doctrine of the Kingdom is supported by “the Rest” or keeping of the Sabbath, mentioned by Paul.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 11:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom..md\|Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom.]] |
+| 11:11 | [[Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom..md\|Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
 | 11:12 | [[Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom..md\|Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom.]] |
@@ -1292,424 +527,66 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 12:2 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 13:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:6 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:9 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 14:26 | [[Proposition 185. This doctrine enforces that of Divine Providence..md\|Proposition 185. This doctrine enforces that of Divine Providence.]] |
 | 14:27 | [[Proposition 185. This doctrine enforces that of Divine Providence..md\|Proposition 185. This doctrine enforces that of Divine Providence.]] |
-| 15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 17:14 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
-| 18:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 19:20 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 22:22 | [[Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine..md\|Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine.]] |
-| 23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 23:18 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 24 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 24:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
+| 24:23 | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
 | | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 24:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 24:25 | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | 24:26 | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | 25 | [[Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth..md\|Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 25:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
+| 25:6 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 25:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
+| 25:7 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 25:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
+| 25:8 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 25:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes..md\|Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.]] |
+| 25:9 | [[Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes..md\|Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 25:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 25:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 26:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 148. This Kingdom embraces the new heavens and new earth..md\|Proposition 148. This Kingdom embraces the new heavens and new earth.]] |
-| 26:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
-| 26:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
+| 25:10 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
+| 26:1 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 26:6 | [[Proposition 148. This Kingdom embraces the new heavens and new earth..md\|Proposition 148. This Kingdom embraces the new heavens and new earth.]] |
+| 26:8 | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
+| 26:19 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 26:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 26:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 27:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 27:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 27:12 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 28:12 | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
-| 28:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 29:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it..md\|Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.]] |
-| 29:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it..md\|Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.]] |
-| 29:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 29:17 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 29:22 | [[Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it..md\|Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.]] |
+| 29:23 | [[Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it..md\|Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.]] |
 | 30:18 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
 | 30:19 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 30:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 32:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 32:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
-| 32:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 32:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 32:1 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 32:4 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 32:15 | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
 | 33 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 33:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 33:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 33:24 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 34 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
-| 34:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 35 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 35:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 35:1 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 35:2 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 35:3 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 35:4 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 35:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 35:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 35:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 35:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 35:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 35:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 35:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 35:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 35:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 35:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 35:5 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 35:6 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 35:7 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 35:8 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 35:9 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 41:15 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 41:16 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 43 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
@@ -1727,78 +604,35 @@ File is automatically generated and any changes will be overwritten
 | 49:3 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
 | 49:4 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
 | 49:5 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 49:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:6 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
 | 49:7 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 49:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 49:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 49:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 49:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 49:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 49:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 49:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 49:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 49:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 49:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 49:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:8 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:9 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:10 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:11 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:12 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:13 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:14 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:15 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:16 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:17 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:18 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
 | | [[Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it..md\|Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.]] |
-| 49:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:19 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 49:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:20 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 49:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 49:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:21 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:22 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 49:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 49:23 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 49:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
-| 49:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
-| 49:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
+| 49:24 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
+| 49:25 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
+| 49:26 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 49:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 51 | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
 | 51:3 | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
@@ -1826,510 +660,82 @@ File is automatically generated and any changes will be overwritten
 | 54:13 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 55:3 | [[Proposition 117. The Kingdom of God re-established will form a divinely appointed and visibly manifested Theocracy..md\|Proposition 117. The Kingdom of God re-established will form a divinely appointed and visibly manifested Theocracy.]] |
 | 55:4 | [[Proposition 117. The Kingdom of God re-established will form a divinely appointed and visibly manifested Theocracy..md\|Proposition 117. The Kingdom of God re-established will form a divinely appointed and visibly manifested Theocracy.]] |
-| 58:13 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
-| 59:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 59:19 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 59:20 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 59:21 | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 59:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 59:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 59:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:51 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:52 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:53 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:54 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:55 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:56 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:57 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:58 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 59:59 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 60 | [[Proposition 35. The Prophets describe but one Kingdom..md\|Proposition 35. The Prophets describe but one Kingdom.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 60:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it..md\|Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.]] |
-| 60:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 60:4 | [[Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it..md\|Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.]] |
+| 60:5 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 60:9 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 60:12 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
+| 60:13 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 60:14 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 60:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 60:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 60:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 60:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 60:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
+| 60:15 | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
 | | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | | [[Proposition 152. This Kingdom is connected with the perpetuation of the human race..md\|Proposition 152. This Kingdom is connected with the perpetuation of the human race.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 60:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 60:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 60:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 60:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:51 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:52 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:53 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:54 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:55 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:56 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:57 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:58 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:59 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 60:60 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 60:16 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 60:17 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 60:21 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 61:9 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
+| 62:1 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
+| 62:2 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 61:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:51 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:52 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:53 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:54 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:55 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:56 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:57 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:58 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:59 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:60 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 61:61 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
-| 62:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
-| | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 62:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
+| 62:3 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | | [[Proposition 169. This Theocratic Kingdom embraces the marriage of Christ to the New Jerusalem..md\|Proposition 169. This Theocratic Kingdom embraces the marriage of Christ to the New Jerusalem.]] |
-| 62:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
-| 62:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:51 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:52 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:53 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:54 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:55 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:56 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:57 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:58 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:59 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:60 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:61 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 62:62 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 62:4 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | 63 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 63:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
+| 63:1 | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
 | | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 63:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
+| 63:2 | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
 | | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 63:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
+| 63:3 | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
 | | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 63:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
+| 63:4 | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
 | | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 63:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
+| 63:5 | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
 | | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 63:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
+| 63:6 | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
 | | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 63:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine..md\|Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine.]] |
-| 63:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:51 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:52 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:53 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:54 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:55 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:56 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:57 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:58 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:59 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:60 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:61 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:62 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 63:63 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 64 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65 | [[book/The Theocratic Kingdom Book/Prop 151.md\|Prop 151]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Table of Contents.md\|Table of Contents]] |
+| 63:17 | [[Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine..md\|Proposition 122. As Son of Man, David’s Son, Jesus inherits David’s throne and Kingdom, and also the land of Palestine.]] |
+| 65 | [[Table of Contents.md\|Table of Contents]] |
 | | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
 | | [[Proposition 141. This Kingdom necessarily united with the perpetuity of the earth..md\|Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.]] |
-| 65:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it..md\|Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.]] |
-| 65:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:17 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
+| 65:9 | [[Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it..md\|Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.]] |
+| 65:17 | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
 | | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
 | | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
 | | [[Proposition 148. This Kingdom embraces the new heavens and new earth..md\|Proposition 148. This Kingdom embraces the new heavens and new earth.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 65:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 148. This Kingdom embraces the new heavens and new earth..md\|Proposition 148. This Kingdom embraces the new heavens and new earth.]] |
-| 65:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
-| 65:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 65:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:51 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:52 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:53 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:54 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:55 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:56 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:57 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:58 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:59 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:60 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:61 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:62 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:63 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:64 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 65:65 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 66:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
+| 65:18 | [[Proposition 148. This Kingdom embraces the new heavens and new earth..md\|Proposition 148. This Kingdom embraces the new heavens and new earth.]] |
+| 65:19 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
+| 65:25 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 66:12 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
+| 66:15 | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 66:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
+| 66:16 | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 66:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 66:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 66:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 66:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 66:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 66:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
+| 66:17 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 66:18 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 66:19 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 66:20 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 66:21 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 66:22 | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 66:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 66:23 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 66:24 | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 66:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 66:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:51 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:52 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:53 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:54 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:55 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:56 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:57 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:58 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:59 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:60 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:61 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:62 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:63 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:64 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:65 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 66:66 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 ### Jeremiah
 | Verse | Ref |
 | ---- | ---- |
@@ -2341,11 +747,7 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | 3:18 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | 3:20 | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
-| 11:5 | [[supporting/Milk and Honey.md\|Milk and Honey]] |
 | 14:8 | [[Proposition 182. This Kingdom embraces the “One Hope”.md\|Proposition 182. This Kingdom embraces the “One Hope”]] |
-| 16:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 17:25 | [[Proposition 26. The Theocracy thus instituted would have been permanently established if the people, in their national capacity, had been faithful in obedience..md\|Proposition 26. The Theocracy thus instituted would have been permanently established if the people, in their national capacity, had been faithful in obedience.]] |
 | | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
 | 18:2 | [[Proposition 185. This doctrine enforces that of Divine Providence..md\|Proposition 185. This doctrine enforces that of Divine Providence.]] |
@@ -2357,200 +759,76 @@ File is automatically generated and any changes will be overwritten
 | 18:8 | [[Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned..md\|Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned.]] |
 | 18:9 | [[Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned..md\|Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned.]] |
 | 18:10 | [[Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned..md\|Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned.]] |
-| 23:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 23:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 23:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 23:3 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 23:4 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 23:5 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 23:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 23:6 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 23:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
+| 23:7 | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 23:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
+| 23:8 | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 23:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 23:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 23:33 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | 23:34 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | 23:35 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | 23:36 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
-| 24:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
-| 24:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
-| 24:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 24:6 | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
+| 24:7 | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
 | 25:29 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 25:30 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 25:31 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 25:32 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 25:33 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 29:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 30:4 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 30:5 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 30:6 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 30:7 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 30:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 30:8 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 30:9 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 30:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 30:10 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 30:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 30:11 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 30:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 30:12 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 30:13 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 30:14 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 30:15 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 30:16 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 30:17 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 30:18 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 30:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 30:19 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 30:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 30:20 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 30:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 30:21 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 30:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 30:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 30:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 30:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 30:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 30:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 30:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 30:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 30:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 30:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 30:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 30:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 30:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 30:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 30:22 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 30:23 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 30:24 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 31 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 31:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 31:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 31:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 31:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 31:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 31:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 31:2 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 31:3 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 31:5 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 31:6 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 31:34 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 31:35 | [[Proposition 141. This Kingdom necessarily united with the perpetuity of the earth..md\|Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.]] |
 | 31:36 | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
@@ -2558,7 +836,6 @@ File is automatically generated and any changes will be overwritten
 | 31:38 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 31:39 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 31:40 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 32:22 | [[supporting/Milk and Honey.md\|Milk and Honey]] |
 | 32:37 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
 | 32:38 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
@@ -2575,177 +852,43 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
 | 32:44 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 33:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 33:7 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 33:8 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 33:9 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 33:10 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 33:11 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 33:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 33:12 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 33:13 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 33:14 | [[Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration..md\|Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 33:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 33:15 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 33:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 33:16 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 33:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 33:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 33:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 33:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration..md\|Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 33:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 33:17 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 33:18 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 33:19 | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
 | | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 33:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 33:20 | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
 | | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 33:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 33:21 | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
 | | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 33:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 33:22 | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
 | | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 33:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
+| 33:23 | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
 | | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 33:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
+| 33:24 | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
 | | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 33:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 33:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 33:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 33:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 33:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
+| 33:25 | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
 | | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 141. This Kingdom necessarily united with the perpetuity of the earth..md\|Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.]] |
-| 33:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
+| 33:26 | [[Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized..md\|Proposition 47. The Jews had the strongest possible assurance given to them that the Kingdom based on these covenants would be realized.]] |
 | | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 141. This Kingdom necessarily united with the perpetuity of the earth..md\|Proposition 141. This Kingdom necessarily united with the perpetuity of the earth.]] |
-| 33:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 33:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 46:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 48:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 48:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 48:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 50:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:40 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:41 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:43 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:44 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:45 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:46 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:47 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:48 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:49 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 50:50 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 50:4 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 51:19 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 51:20 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-### Lamentations
-| Verse | Ref |
-| ---- | ---- |
-| 2:22 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
 ### Ezekiel
 | Verse | Ref |
 | ---- | ---- |
@@ -2755,7 +898,6 @@ File is automatically generated and any changes will be overwritten
 | 11:19 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | 11:20 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 13:5 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
 | 16 | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
 | 16:20 | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
 | 16:21 | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
@@ -2763,8 +905,6 @@ File is automatically generated and any changes will be overwritten
 | 17:22 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | 17:23 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | 17:24 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 20:6 | [[supporting/Milk and Honey.md\|Milk and Honey]] |
-| 20:15 | [[supporting/Milk and Honey.md\|Milk and Honey]] |
 | 20:33 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
 | 20:34 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
 | 20:35 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
@@ -2780,72 +920,40 @@ File is automatically generated and any changes will be overwritten
 | 21:25 | [[Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown..md\|Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown.]] |
 | 21:26 | [[Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown..md\|Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown.]] |
 | 21:27 | [[Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown..md\|Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown.]] |
-| 28:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 28:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 29:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 30:3 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 30:27 | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
-| 34:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 34:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 34:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 34:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 34:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 34:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 34:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 34:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 34:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 34:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 34:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 34:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 34:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 34:11 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:12 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:13 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:14 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:15 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:16 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:17 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:18 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:19 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:20 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:21 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:22 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:23 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 34:24 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 34:25 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 34:26 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 34:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 34:27 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 34:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:28 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 34:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:29 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 34:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:30 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 34:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 34:31 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 34:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 34:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 34:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 34:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 34:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 36:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 36:8 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | 36:9 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | 36:10 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
@@ -2864,52 +972,39 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
 | | [[Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation..md\|Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation.]] |
 | 36:23 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 36:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 36:24 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 36:25 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 36:26 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 36:27 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 36:28 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 36:29 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 36:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 36:30 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 36:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 36:31 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 36:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 36:32 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 36:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 36:33 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 36:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 36:34 | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 36:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 36:35 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 36:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 36:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 36:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 36:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 36:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 36:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
+| 36:36 | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | 36:37 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | 36:38 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
@@ -2924,130 +1019,26 @@ File is automatically generated and any changes will be overwritten
 | 37:8 | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
 | 37:9 | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
 | 37:10 | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
-| 37:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 37:11 | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
+| 37:12 | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
+| 37:13 | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
+| 37:14 | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
 | | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
-| 37:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
-| 37:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
-| 37:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
-| | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
-| 37:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
-| 37:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
-| 37:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
-| 37:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration..md\|Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration.]] |
+| 37:18 | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
+| 37:19 | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
+| 37:20 | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
+| 37:21 | [[Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration..md\|Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration.]] |
 | | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 37:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration..md\|Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration.]] |
+| 37:22 | [[Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration..md\|Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration.]] |
 | | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 37:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 37:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 37:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 37:23 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 38 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 38:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 38:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:28 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 39:29 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
-| 39:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:31 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:32 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:33 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:34 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:36 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 39:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 39:28 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 39:29 | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
 | 43:7 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
 | 43:8 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
 | 43:9 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
@@ -3077,18 +1068,14 @@ File is automatically generated and any changes will be overwritten
 | 2:41 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 2:42 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 2:43 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 2:44 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end..md\|Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end.]] |
+| 2:44 | [[Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end..md\|Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end.]] |
 | | [[Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.)..md\|Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.).]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | | [[Proposition 101. The invisible Church is not the covenanted Kingdom of Christ..md\|Proposition 101. The invisible Church is not the covenanted Kingdom of Christ.]] |
 | 2:45 | [[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation..md\|Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | | [[Proposition 101. The invisible Church is not the covenanted Kingdom of Christ..md\|Proposition 101. The invisible Church is not the covenanted Kingdom of Christ.]] |
-| 4:3 | [[supporting/Kingdom.md\|Kingdom]] |
-| 4:34 | [[supporting/Kingdom.md\|Kingdom]] |
-| 6:26 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 79. The Kingdom of God, promised by covenant and prophets, is to be distinguished from the general and universal Sovereignty of God..md\|Proposition 79. The Kingdom of God, promised by covenant and prophets, is to be distinguished from the general and universal Sovereignty of God.]] |
+| 6:26 | [[Proposition 79. The Kingdom of God, promised by covenant and prophets, is to be distinguished from the general and universal Sovereignty of God..md\|Proposition 79. The Kingdom of God, promised by covenant and prophets, is to be distinguished from the general and universal Sovereignty of God.]] |
 | 7 | [[Proposition 66. The Kingdom that was nigh at one time (viz.  at the First Advent) to the Jewish nation, is now removed to the close of its tribulation, and of “the times of the Gentiles.”.md\|Proposition 66. The Kingdom that was nigh at one time (viz.  at the First Advent) to the Jewish nation, is now removed to the close of its tribulation, and of “the times of the Gentiles.”]] |
 | | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | | [[Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown..md\|Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown.]] |
@@ -3102,27 +1089,20 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 7:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 7:1 | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
+| | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
+| 7:2 | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 7:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
-| | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
+| 7:3 | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 7:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
+| 7:4 | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 7:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
+| 7:5 | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 7:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
+| 7:6 | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 7:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
-| | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 7:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
+| 7:7 | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 7:8 | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
@@ -3138,15 +1118,13 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 7:12 | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 7:13 | [[supporting/Revelation event list ordered as revealed.md\|Revelation event list ordered as revealed]] |
-| | [[Proposition 81. This Kingdom, thus covenanted, belongs to Jesus as “the Son of Man.”.md\|Proposition 81. This Kingdom, thus covenanted, belongs to Jesus as “the Son of Man.”]] |
+| 7:13 | [[Proposition 81. This Kingdom, thus covenanted, belongs to Jesus as “the Son of Man.”.md\|Proposition 81. This Kingdom, thus covenanted, belongs to Jesus as “the Son of Man.”]] |
 | | [[Proposition 83. This Kingdom is given to the Son of Man by God, the Father..md\|Proposition 83. This Kingdom is given to the Son of Man by God, the Father.]] |
 | | [[Proposition 22. John the Baptist, Jesus, and the disciples, employed the phrases “Kingdom of heaven,” “Kingdom of God,” etc., in accordance with the usage of the Jews..md\|Proposition 22. John the Baptist, Jesus, and the disciples, employed the phrases “Kingdom of heaven,” “Kingdom of God,” etc., in accordance with the usage of the Jews.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.)..md\|Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.).]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 7:14 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 83. This Kingdom is given to the Son of Man by God, the Father..md\|Proposition 83. This Kingdom is given to the Son of Man by God, the Father.]] |
+| 7:14 | [[Proposition 83. This Kingdom is given to the Son of Man by God, the Father..md\|Proposition 83. This Kingdom is given to the Son of Man by God, the Father.]] |
 | | [[Proposition 22. John the Baptist, Jesus, and the disciples, employed the phrases “Kingdom of heaven,” “Kingdom of God,” etc., in accordance with the usage of the Jews..md\|Proposition 22. John the Baptist, Jesus, and the disciples, employed the phrases “Kingdom of heaven,” “Kingdom of God,” etc., in accordance with the usage of the Jews.]] |
 | | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
 | | [[Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end..md\|Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end.]] |
@@ -3160,8 +1138,7 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 7:17 | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 7:18 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 148. This Kingdom embraces the new heavens and new earth..md\|Proposition 148. This Kingdom embraces the new heavens and new earth.]] |
+| 7:18 | [[Proposition 148. This Kingdom embraces the new heavens and new earth..md\|Proposition 148. This Kingdom embraces the new heavens and new earth.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.)..md\|Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.).]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
@@ -3175,8 +1152,7 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.)..md\|Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.).]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 7:22 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
+| 7:22 | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.)..md\|Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.).]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
@@ -3192,8 +1168,7 @@ File is automatically generated and any changes will be overwritten
 | 7:26 | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.)..md\|Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.).]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 7:27 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
+| 7:27 | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | | [[Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.)..md\|Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.).]] |
@@ -3201,40 +1176,18 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 101. The invisible Church is not the covenanted Kingdom of Christ..md\|Proposition 101. The invisible Church is not the covenanted Kingdom of Christ.]] |
 | 7:28 | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 8:17 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 8:19 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 10:13 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
-| 10:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 10:20 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 11 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | 12 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 12:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 12:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
+| 12:1 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 12:2 | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 12:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
-| 12:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 12:4 | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
 | 12:13 | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
 | 13 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 ### Hosea
@@ -3245,65 +1198,37 @@ File is automatically generated and any changes will be overwritten
 | 2:14 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | 2:21 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 3:4 | [[Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown..md\|Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown.]] |
-| 3:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown..md\|Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown.]] |
+| 3:5 | [[Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown..md\|Proposition 32. This Theocratic Kingdom, thus incorporated with the Davidic, is removed when the Davidic Kingdom is overthrown.]] |
 | 4:6 | [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints..md\|Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.]] |
 | | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
 | 5:7 | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
 | 5:14 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | 5:15 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 6:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 6:3 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | 9:14 | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
 | 9:15 | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
 | 9:16 | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
 | 9:17 | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
 | 10:1 | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
-| 11:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
-| 14:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 13:14 | [[Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints..md\|Proposition 126. In confirmation of our position, the Old Testament clearly teaches a Pre-Millennial resurrection of the saints.]] |
 ### Joel
 | Verse | Ref |
 | ---- | ---- |
-| 1:15 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
 | 2 | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
-| 2:1 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 2:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 2:11 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
 | 2:28 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 2:29 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 2:30 | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 2:31 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 2:31 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 2:32 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 3 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 3:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 3:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
-| 3:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 3:2 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | 3:11 | [[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth..md\|Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.]] |
 | 3:12 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | 3:13 | [[Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”.md\|Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”]] |
-| 3:14 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
 | 3:16 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | 3:17 | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
 | | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
@@ -3312,26 +1237,10 @@ File is automatically generated and any changes will be overwritten
 ### Amos
 | Verse | Ref |
 | ---- | ---- |
-| 5:18 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
-| 5:20 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
-| 8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 9 | [[Proposition 31. This Theocracy or Kingdom was identified with the Davidic Kingdom..md\|Proposition 31. This Theocracy or Kingdom was identified with the Davidic Kingdom.]] |
-| 9:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 9:11 | [[Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration..md\|Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration.]] |
 | 9:12 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | 9:13 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-### Obadiah
-| Verse | Ref |
-| ---- | ---- |
-| 15 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
 ### Micah
 | Verse | Ref |
 | ---- | ---- |
@@ -3341,22 +1250,18 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
 | 3 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | 4 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 4:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
+| 4:1 | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 4:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
+| 4:2 | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 4:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
+| 4:3 | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 4:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
+| 4:4 | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 4:5 | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
@@ -3378,27 +1283,12 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 4:13 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 5 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 5:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:2 | [[supporting/Messiah.md\|Messiah]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 5:3 | [[supporting/Messiah.md\|Messiah]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 5:4 | [[supporting/Messiah.md\|Messiah]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 5:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 5:2 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 5:3 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 5:4 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
 | 5:8 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 5:9 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 5:10 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 7:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 7:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 7:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 7:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 7:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 7:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 7:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 7:15 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
@@ -3418,13 +1308,6 @@ File is automatically generated and any changes will be overwritten
 ### Zephaniah
 | Verse | Ref |
 | ---- | ---- |
-| 1:7 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
-| 1:8 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
-| 1:14 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
-| 2:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 2:2 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 2:3 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
 | 3:5 | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
 | 3:8 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
@@ -3470,47 +1353,19 @@ File is automatically generated and any changes will be overwritten
 ### Zechariah
 | Verse | Ref |
 | ---- | ---- |
-| 2:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 2:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 2:10 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | 2:11 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | 2:12 | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
 | | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | 2:13 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
-| 3:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 3:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 3:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 6:13 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 7:14 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | 8 | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 8:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
+| 8:3 | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
 | | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 8:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 8:12 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 8:13 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 117. The Kingdom of God re-established will form a divinely appointed and visibly manifested Theocracy..md\|Proposition 117. The Kingdom of God re-established will form a divinely appointed and visibly manifested Theocracy.]] |
@@ -3520,97 +1375,50 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | 8:23 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| 9:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 9:10 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 9:13 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 9:14 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 9:15 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 9:16 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 10:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 10:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 10:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 10:3 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 10:4 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 10:5 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 10:6 | [[Proposition 24. The Kingdom is offered to an elect nation, viz. the Jewish nation..md\|Proposition 24. The Kingdom is offered to an elect nation, viz. the Jewish nation.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 10:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 10:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 10:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 24. The Kingdom is offered to an elect nation, viz. the Jewish nation..md\|Proposition 24. The Kingdom is offered to an elect nation, viz. the Jewish nation.]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 10:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 10:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 10:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 10:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 10:7 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 10:8 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 10:9 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 10:10 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 10:11 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 10:12 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 11:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 12 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 12:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 12:1 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 12:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 12:2 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 12:3 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 12:4 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 12:5 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 12:6 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 12:7 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 12:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 12:8 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 12:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 12:9 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 12:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 12:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 12:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 12:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 12:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 12:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 12:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 12:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 12:10 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 12:11 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 12:12 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | 12:13 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | 12:14 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
 | 13 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 13:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 13:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
-| 13:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 13:7 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 13:8 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
+| 13:9 | [[Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology..md\|Proposition 94. The overlooking of the postponement of this Kingdom is a fundamental mistake, and a fruitful source of error in many systems of Theology.]] |
 | | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 13:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 14 | [[Proposition 66. The Kingdom that was nigh at one time (viz.  at the First Advent) to the Jewish nation, is now removed to the close of its tribulation, and of “the times of the Gentiles.”.md\|Proposition 66. The Kingdom that was nigh at one time (viz.  at the First Advent) to the Jewish nation, is now removed to the close of its tribulation, and of “the times of the Gentiles.”]] |
 | | [[Proposition 168. This Kingdom has its place of manifested royalty..md\|Proposition 168. This Kingdom has its place of manifested royalty.]] |
 | | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
@@ -3622,56 +1430,42 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 14:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
+| 14:1 | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 14:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 14:2 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 14:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
+| 14:3 | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 14:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
+| 14:4 | [[Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai..md\|Proposition 166. The rudimentary reorganization of this Kingdom will be made at Mt. Sinai.]] |
 | | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 14:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
+| 14:5 | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
 | | [[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth..md\|Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.]] |
 | | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 107. The passages referring to heaven in connection with the saints do not conflict with, but confirm our doctrine of the Kingdom..md\|Proposition 107. The passages referring to heaven in connection with the saints do not conflict with, but confirm our doctrine of the Kingdom.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 14:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
+| 14:6 | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 14:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
+| 14:7 | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 14:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
+| 14:8 | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 14:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
+| 14:9 | [[Proposition 184. In this Kingdom will be exhibited a Manifested Unity..md\|Proposition 184. In this Kingdom will be exhibited a Manifested Unity.]] |
 | | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | | [[Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.)..md\|Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.).]] |
 | | [[Proposition 107. The passages referring to heaven in connection with the saints do not conflict with, but confirm our doctrine of the Kingdom..md\|Proposition 107. The passages referring to heaven in connection with the saints do not conflict with, but confirm our doctrine of the Kingdom.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 14:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 14:10 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
+| 14:11 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
+| 14:12 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 14:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 14:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 14:13 | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 14:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
-| | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
-| | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 14:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
+| 14:14 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 14:15 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
@@ -3699,25 +1493,16 @@ File is automatically generated and any changes will be overwritten
 | Verse | Ref |
 | ---- | ---- |
 | 2:7 | [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints..md\|Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.]] |
-| 3:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 3:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 3:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 3:2 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
+| 3:3 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
 | 3:4 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
 | 4 | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
 | | [[Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”.md\|Proposition 139. The Theocratic-Davidic Kingdom, as covenanted, is sustained by what is to take place in “the morning” of “the day of Christ.”]] |
-| 4:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
+| 4:1 | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 4:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 4:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 4:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:5 | [[supporting/Day of Yahweh.md\|Day of Yahweh]] |
-| | [[supporting/Elijah.md\|Elijah]] |
-| | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
+| 4:2 | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
+| 4:3 | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
+| 4:5 | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
 | | [[Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration..md\|Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration.]] |
 | | [[Proposition 138. This doctrine of the Kingdom fully corroborated by “the day of the Lord Jesus Christ.”.md\|Proposition 138. This doctrine of the Kingdom fully corroborated by “the day of the Lord Jesus Christ.”]] |
 | 4:6 | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
@@ -3733,8 +1518,7 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth..md\|Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.]] |
 | 3:1 | [[Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man..md\|Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man.]] |
 | | [[Proposition 41. The Kingdom was not established under John’s ministry..md\|Proposition 41. The Kingdom was not established under John’s ministry.]] |
-| 3:2 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 41. The Kingdom was not established under John’s ministry..md\|Proposition 41. The Kingdom was not established under John’s ministry.]] |
+| 3:2 | [[Proposition 41. The Kingdom was not established under John’s ministry..md\|Proposition 41. The Kingdom was not established under John’s ministry.]] |
 | | [[Proposition 37. The Kingdom, thus predicted and promised, was not in existence when the Forerunner of Jesus appeared..md\|Proposition 37. The Kingdom, thus predicted and promised, was not in existence when the Forerunner of Jesus appeared.]] |
 | 3:3 | [[Proposition 41. The Kingdom was not established under John’s ministry..md\|Proposition 41. The Kingdom was not established under John’s ministry.]] |
 | 3:4 | [[Proposition 41. The Kingdom was not established under John’s ministry..md\|Proposition 41. The Kingdom was not established under John’s ministry.]] |
@@ -3749,89 +1533,60 @@ File is automatically generated and any changes will be overwritten
 | 3:11 | [[Proposition 41. The Kingdom was not established under John’s ministry..md\|Proposition 41. The Kingdom was not established under John’s ministry.]] |
 | | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
 | 3:12 | [[Proposition 41. The Kingdom was not established under John’s ministry..md\|Proposition 41. The Kingdom was not established under John’s ministry.]] |
-| 4:8 | [[supporting/Kingdom.md\|Kingdom]] |
 | 4:11 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
-| 4:17 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation..md\|Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]] |
+| 4:17 | [[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation..md\|Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]] |
 | | [[Proposition 42. Jesus Christ, in His early ministry, preached that the Kingdom of God was nigh at hand..md\|Proposition 42. Jesus Christ, in His early ministry, preached that the Kingdom of God was nigh at hand.]] |
 | | [[Proposition 41. The Kingdom was not established under John’s ministry..md\|Proposition 41. The Kingdom was not established under John’s ministry.]] |
-| 4:23 | [[supporting/Kingdom.md\|Kingdom]] |
-| 5:3 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
+| 5:3 | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | 5:5 | [[Proposition 148. This Kingdom embraces the new heavens and new earth..md\|Proposition 148. This Kingdom embraces the new heavens and new earth.]] |
 | | [[Proposition 142. The Kingdom being related to the earth (extending over it), and involving the res. of the saints (in order to inherit it), is sustained by the promise to the saints of their inheriting the earth..md\|Proposition 142. The Kingdom being related to the earth (extending over it), and involving the res. of the saints (in order to inherit it), is sustained by the promise to the saints of their inheriting the earth.]] |
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 5:10 | [[supporting/Kingdom.md\|Kingdom]] |
 | 5:12 | [[Proposition 107. The passages referring to heaven in connection with the saints do not conflict with, but confirm our doctrine of the Kingdom..md\|Proposition 107. The passages referring to heaven in connection with the saints do not conflict with, but confirm our doctrine of the Kingdom.]] |
 | 5:16 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
-| 5:19 | [[supporting/Kingdom.md\|Kingdom]] |
-| 5:20 | [[supporting/Kingdom.md\|Kingdom]] |
 | 6:9 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | | [[Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom..md\|Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.]] |
-| 6:10 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
+| 6:10 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | | [[Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom..md\|Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.]] |
 | 6:11 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | | [[Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom..md\|Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.]] |
 | 6:12 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | | [[Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom..md\|Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.]] |
-| 6:13 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
+| 6:13 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | | [[Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom..md\|Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.]] |
-| 6:33 | [[supporting/Kingdom.md\|Kingdom]] |
-| 7:21 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
+| 7:21 | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | 7:22 | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | 7:33 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
-| 8:11 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 8:11 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | | [[Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation..md\|Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation.]] |
-| 8:12 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 8:12 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | 8:13 | [[Proposition 78. The early church doctrine was revived after the Reformation..md\|Proposition 78. The early church doctrine was revived after the Reformation.]] |
 | 8:14 | [[Proposition 78. The early church doctrine was revived after the Reformation..md\|Proposition 78. The early church doctrine was revived after the Reformation.]] |
 | 8:17 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 9:6 | [[Proposition 200. While the Kingdom is given to Jesus Christ as the Son of Man, He becomes thereby the actual representative of God, manifesting God in the Person of One related to humanity..md\|Proposition 200. While the Kingdom is given to Jesus Christ as the Son of Man, He becomes thereby the actual representative of God, manifesting God in the Person of One related to humanity.]] |
-| 9:27 | [[supporting/Jesus is the Son of David.md\|Jesus is the Son of David]] |
-| 9:35 | [[supporting/Kingdom.md\|Kingdom]] |
 | 10:1 | [[Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom..md\|Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.]] |
 | 10:5 | [[Proposition 54. The preaching of the Kingdom by John, Jesus, and the disciples, was confined to the Jewish nation..md\|Proposition 54. The preaching of the Kingdom by John, Jesus, and the disciples, was confined to the Jewish nation.]] |
 | 10:6 | [[Proposition 54. The preaching of the Kingdom by John, Jesus, and the disciples, was confined to the Jewish nation..md\|Proposition 54. The preaching of the Kingdom by John, Jesus, and the disciples, was confined to the Jewish nation.]] |
-| 10:7 | [[supporting/Kingdom.md\|Kingdom]] |
 | 10:8 | [[Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom..md\|Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.]] |
 | 10:21 | [[Proposition 57. This Kingdom, was offered to the Jewish nation, but the nation rejected it..md\|Proposition 57. This Kingdom, was offered to the Jewish nation, but the nation rejected it.]] |
-| 10:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration..md\|Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration.]] |
-| 10:35 | [[supporting/Micah.md\|Micah]] |
-| 10:36 | [[supporting/Micah.md\|Micah]] |
+| 10:23 | [[Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration..md\|Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration.]] |
 | 11:3 | [[Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ..md\|Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ.]] |
-| 11:11 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
-| 11:12 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 37. The Kingdom, thus predicted and promised, was not in existence when the Forerunner of Jesus appeared..md\|Proposition 37. The Kingdom, thus predicted and promised, was not in existence when the Forerunner of Jesus appeared.]] |
+| 11:11 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
+| 11:12 | [[Proposition 37. The Kingdom, thus predicted and promised, was not in existence when the Forerunner of Jesus appeared..md\|Proposition 37. The Kingdom, thus predicted and promised, was not in existence when the Forerunner of Jesus appeared.]] |
 | | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | 11:13 | [[Proposition 37. The Kingdom, thus predicted and promised, was not in existence when the Forerunner of Jesus appeared..md\|Proposition 37. The Kingdom, thus predicted and promised, was not in existence when the Forerunner of Jesus appeared.]] |
-| 11:14 | [[supporting/Elijah.md\|Elijah]] |
 | 11:18 | [[Proposition 41. The Kingdom was not established under John’s ministry..md\|Proposition 41. The Kingdom was not established under John’s ministry.]] |
 | 11:27 | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
 | 12:8 | [[Proposition 200. While the Kingdom is given to Jesus Christ as the Son of Man, He becomes thereby the actual representative of God, manifesting God in the Person of One related to humanity..md\|Proposition 200. While the Kingdom is given to Jesus Christ as the Son of Man, He becomes thereby the actual representative of God, manifesting God in the Person of One related to humanity.]] |
-| 12:23 | [[supporting/Jesus is the Son of David.md\|Jesus is the Son of David]] |
-| | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
-| 12:25 | [[supporting/Kingdom.md\|Kingdom]] |
-| 12:26 | [[supporting/Kingdom.md\|Kingdom]] |
-| 12:28 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 67. The Kingdom could not therefore have been set up at that time, viz.; at the First Advent..md\|Proposition 67. The Kingdom could not therefore have been set up at that time, viz.; at the First Advent.]] |
+| 12:23 | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
+| 12:28 | [[Proposition 67. The Kingdom could not therefore have been set up at that time, viz.; at the First Advent..md\|Proposition 67. The Kingdom could not therefore have been set up at that time, viz.; at the First Advent.]] |
 | | [[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation..md\|Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]] |
 | | [[Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it..md\|Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it.]] |
 | 12:36 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | 13 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 13:11 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
+| 13:11 | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | | [[Proposition 11. The mysteries of the kingdom were given to the apostles..md\|Proposition 11. The mysteries of the kingdom were given to the apostles.]] |
 | 13:13 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 13:19 | [[supporting/Kingdom.md\|Kingdom]] |
-| 13:24 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
+| 13:24 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:25 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:26 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:27 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
@@ -3839,69 +1594,45 @@ File is automatically generated and any changes will be overwritten
 | 13:29 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:30 | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 13:31 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
+| 13:31 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:32 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 13:33 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
+| 13:33 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:35 | [[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world..md\|Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.]] |
 | 13:37 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 13:38 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
+| 13:38 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:39 | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
 | | [[Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”.md\|Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:40 | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
 | | [[Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”.md\|Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 13:41 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
+| 13:41 | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | | [[Proposition 200. While the Kingdom is given to Jesus Christ as the Son of Man, He becomes thereby the actual representative of God, manifesting God in the Person of One related to humanity..md\|Proposition 200. While the Kingdom is given to Jesus Christ as the Son of Man, He becomes thereby the actual representative of God, manifesting God in the Person of One related to humanity.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:42 | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 13:43 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
+| 13:43 | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 13:44 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 13:45 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
+| 13:44 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
+| 13:45 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:46 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 13:47 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
+| 13:47 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:48 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:49 | [[Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”.md\|Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:50 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 13:52 | [[supporting/Kingdom.md\|Kingdom]] |
-| 15:22 | [[supporting/Jesus is the Son of David.md\|Jesus is the Son of David]] |
-| 16:14 | [[supporting/Elijah.md\|Elijah]] |
 | 16:16 | [[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”.md\|Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] |
 | | [[Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration..md\|Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration.]] |
 | 16:18 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
-| 16:19 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 16:19 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | 16:20 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | 16:21 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 16:27 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 16:28 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
-| 17:3 | [[supporting/Elijah.md\|Elijah]] |
-| 17:4 | [[supporting/Elijah.md\|Elijah]] |
-| 17:10 | [[supporting/Elijah.md\|Elijah]] |
-| 17:11 | [[supporting/Elijah.md\|Elijah]] |
-| 17:12 | [[supporting/Elijah.md\|Elijah]] |
+| 16:28 | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | 17:20 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 18:1 | [[supporting/Kingdom.md\|Kingdom]] |
-| 18:3 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man..md\|Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man.]] |
-| 18:4 | [[supporting/Kingdom.md\|Kingdom]] |
+| 18:3 | [[Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man..md\|Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man.]] |
 | 18:10 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
-| 18:23 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
+| 18:23 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 18:24 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 18:25 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 18:26 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
@@ -3914,23 +1645,14 @@ File is automatically generated and any changes will be overwritten
 | 18:33 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 18:34 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 18:35 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 19 | [[book/The Theocratic Kingdom Book/Prop 145.md\|Prop 145]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Table of Contents.md\|Table of Contents]] |
-| 19:12 | [[supporting/Kingdom.md\|Kingdom]] |
-| 19:14 | [[supporting/Kingdom.md\|Kingdom]] |
+| 19 | [[Table of Contents.md\|Table of Contents]] |
 | 19:21 | [[Proposition 107. The passages referring to heaven in connection with the saints do not conflict with, but confirm our doctrine of the Kingdom..md\|Proposition 107. The passages referring to heaven in connection with the saints do not conflict with, but confirm our doctrine of the Kingdom.]] |
-| 19:23 | [[supporting/Kingdom.md\|Kingdom]] |
-| 19:24 | [[supporting/Kingdom.md\|Kingdom]] |
-| 19:28 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
+| 19:28 | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 145. This Kingdom includes “the regeneration” of Matt 19 28..md\|Proposition 145. This Kingdom includes “the regeneration” of Matt 19 28.]] |
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | 19:29 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 20:1 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
+| 20:1 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 20:2 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 20:3 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 20:4 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
@@ -3954,24 +1676,17 @@ File is automatically generated and any changes will be overwritten
 | 20:20 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom..md\|Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.]] |
 | | [[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”.md\|Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] |
-| 20:21 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
+| 20:21 | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | | [[Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom..md\|Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.]] |
 | | [[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”.md\|Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] |
 | 20:27 | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 20:30 | [[supporting/Jesus is the Son of David.md\|Jesus is the Son of David]] |
-| 20:31 | [[supporting/Jesus is the Son of David.md\|Jesus is the Son of David]] |
 | 21 | [[Proposition 59. This Kingdom of God, offered to the Jewish nation, lest the purpose of God fail, is to be given to others who are adopted..md\|Proposition 59. This Kingdom of God, offered to the Jewish nation, lest the purpose of God fail, is to be given to others who are adopted.]] |
-| 21:31 | [[supporting/Kingdom.md\|Kingdom]] |
-| 21:43 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 60. This Kingdom of God is given, not to nations, but to one nation..md\|Proposition 60. This Kingdom of God is given, not to nations, but to one nation.]] |
+| 21:43 | [[Proposition 60. This Kingdom of God is given, not to nations, but to one nation..md\|Proposition 60. This Kingdom of God is given, not to nations, but to one nation.]] |
 | | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | 22 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
 | 22:1 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 22:2 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
+| 22:2 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 22:3 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
@@ -4000,56 +1715,28 @@ File is automatically generated and any changes will be overwritten
 | 22:24 | [[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation..md\|Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]] |
 | 22:30 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 22:42 | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
-| 23:13 | [[supporting/Kingdom.md\|Kingdom]] |
 | 23:37 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation..md\|Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation.]] |
 | 23:38 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
 | | [[Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation..md\|Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation.]] |
-| 23:39 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 23:39 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation..md\|Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation.]] |
-| 24:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
+| 24:3 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”.md\|Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
-| 24:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 24:7 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 24:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 24:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 24:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 24:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 24:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 24:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 24:14 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 24:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 24:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 24:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 24:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 24:6 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 24:7 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 24:8 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 24:9 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 24:10 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 24:11 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 24:12 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 24:13 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 24:14 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 24:15 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 24:23 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 24:24 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 24:25 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 24:26 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 24:27 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
@@ -4093,89 +1780,60 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand..md\|Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.]] |
 | 24:51 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand..md\|Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.]] |
-| 25 | [[book/The Theocratic Kingdom Book/Prop 134.md\|Prop 134]] |
-| | [[supporting/Judgement.md\|Judgement]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Table of Contents.md\|Table of Contents]] |
+| 25 | [[Table of Contents.md\|Table of Contents]] |
 | | [[Proposition 66. The Kingdom that was nigh at one time (viz.  at the First Advent) to the Jewish nation, is now removed to the close of its tribulation, and of “the times of the Gentiles.”.md\|Proposition 66. The Kingdom that was nigh at one time (viz.  at the First Advent) to the Jewish nation, is now removed to the close of its tribulation, and of “the times of the Gentiles.”]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:1 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 25:1 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
+| 25:2 | [[Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents..md\|Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents..md\|Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents.]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:3 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:4 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:5 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:6 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:7 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:8 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:9 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:10 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:11 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:12 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:13 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
+| 25:14 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 25:15 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:16 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:17 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:18 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:19 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:20 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:21 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:22 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:23 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:24 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 25:25 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 25:26 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
@@ -4187,29 +1845,20 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 25:30 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 25:31 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:31 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
 | | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
-| 25:32 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:32 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:33 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:33 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:34 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 25:34 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | | [[Proposition 85. Neither Abraham, nor his engrafted seed have as yet inherited the Kingdom  hence the Kingdom must be something different from “piety,” “religion” and “God’s reign in the heart.”.md\|Proposition 85. Neither Abraham, nor his engrafted seed have as yet inherited the Kingdom  hence the Kingdom must be something different from “piety,” “religion” and “God’s reign in the heart.”]] |
 | | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | | [[Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents..md\|Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents.]] |
@@ -4218,77 +1867,49 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:35 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:35 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:36 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:36 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:37 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:37 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:38 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:38 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:39 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:39 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:40 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:40 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:41 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:41 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:42 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:42 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:43 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:43 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:44 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:44 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:45 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:45 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 25:46 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 25:46 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
-| 26:29 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
+| 26:29 | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 50. The Kingdom will be the outgrowth of the renewed Abrahamic covenant, under which renewal we now live..md\|Proposition 50. The Kingdom will be the outgrowth of the renewed Abrahamic covenant, under which renewal we now live.]] |
 | | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | 26:51 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 26:52 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
-| 26:64 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 27:47 | [[supporting/Elijah.md\|Elijah]] |
-| 27:49 | [[supporting/Elijah.md\|Elijah]] |
+| 26:64 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 27:52 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
 | 27:53 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
@@ -4302,64 +1923,31 @@ File is automatically generated and any changes will be overwritten
 | 1:8 | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
 | 1:14 | [[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation..md\|Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]] |
 | | [[Proposition 42. Jesus Christ, in His early ministry, preached that the Kingdom of God was nigh at hand..md\|Proposition 42. Jesus Christ, in His early ministry, preached that the Kingdom of God was nigh at hand.]] |
-| 1:15 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation..md\|Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]] |
+| 1:15 | [[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation..md\|Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]] |
 | 2 | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
-| 3:24 | [[supporting/Kingdom.md\|Kingdom]] |
-| 4:11 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
+| 4:11 | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | | [[Proposition 11. The mysteries of the kingdom were given to the apostles..md\|Proposition 11. The mysteries of the kingdom were given to the apostles.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 4:26 | [[supporting/Kingdom.md\|Kingdom]] |
-| 4:30 | [[supporting/Kingdom.md\|Kingdom]] |
-| 6:15 | [[supporting/Elijah.md\|Elijah]] |
-| 6:23 | [[supporting/Kingdom.md\|Kingdom]] |
 | 8:20 | [[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”.md\|Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] |
-| 8:28 | [[supporting/Elijah.md\|Elijah]] |
-| 8:38 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 9:1 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
-| 9:4 | [[supporting/Elijah.md\|Elijah]] |
-| 9:5 | [[supporting/Elijah.md\|Elijah]] |
+| 8:38 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 9:1 | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | 9:9 | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | 9:10 | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
-| 9:11 | [[supporting/Elijah.md\|Elijah]] |
-| 9:12 | [[supporting/Elijah.md\|Elijah]] |
-| 9:13 | [[supporting/Elijah.md\|Elijah]] |
 | 9:29 | [[Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration..md\|Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration.]] |
-| 9:47 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous..md\|Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.]] |
+| 9:47 | [[Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous..md\|Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.]] |
 | | [[Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man..md\|Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man.]] |
-| 10:14 | [[supporting/Kingdom.md\|Kingdom]] |
-| 10:15 | [[supporting/Kingdom.md\|Kingdom]] |
-| 10:23 | [[supporting/Kingdom.md\|Kingdom]] |
-| 10:24 | [[supporting/Kingdom.md\|Kingdom]] |
-| 10:25 | [[supporting/Kingdom.md\|Kingdom]] |
-| 10:47 | [[supporting/Jesus is the Son of David.md\|Jesus is the Son of David]] |
-| 10:52 | [[supporting/Jesus is the Son of David.md\|Jesus is the Son of David]] |
-| 11:10 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous..md\|Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.]] |
+| 11:10 | [[Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous..md\|Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.]] |
 | 12:10 | [[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation..md\|Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]] |
 | 12:26 | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
-| 12:34 | [[supporting/Kingdom.md\|Kingdom]] |
-| 12:35 | [[supporting/Jesus is the Son of David.md\|Jesus is the Son of David]] |
-| 12:36 | [[supporting/Jesus is the Son of David.md\|Jesus is the Son of David]] |
-| | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
-| 12:37 | [[supporting/Jesus is the Son of David.md\|Jesus is the Son of David]] |
+| 12:36 | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
 | 13:6 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 13:7 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 13:8 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 13:8 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 13:9 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 13:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 13:10 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 13:11 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 13:12 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 13:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 13:13 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 13:25 | [[Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth..md\|Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth.]] |
 | 13:26 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 13:27 | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
@@ -4367,22 +1955,15 @@ File is automatically generated and any changes will be overwritten
 | 13:33 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 13:37 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 13:3337 | [[Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand..md\|Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.]] |
-| 14:25 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
+| 14:25 | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
-| 14:62 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
-| 15:35 | [[supporting/Elijah.md\|Elijah]] |
-| 15:36 | [[supporting/Elijah.md\|Elijah]] |
-| 15:43 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
+| 14:62 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
+| 15:43 | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 ### Luke
 | Verse | Ref |
 | ---- | ---- |
 | 1 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 1:17 | [[supporting/Elijah.md\|Elijah]] |
 | 1:30 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 1:31 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 1:32 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
@@ -4393,8 +1974,7 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 182. This Kingdom embraces the “One Hope”.md\|Proposition 182. This Kingdom embraces the “One Hope”]] |
 | | [[Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end..md\|Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end.]] |
 | | [[Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation..md\|Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation.]] |
-| 1:33 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 1:33 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 46. The Kingdom anticipated by the Jews at the First Advent is based on the Abrahamic and Davidic Covenants..md\|Proposition 46. The Kingdom anticipated by the Jews at the First Advent is based on the Abrahamic and Davidic Covenants.]] |
 | | [[Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration..md\|Proposition 33. The Prophets, some even before the Captivity, foreseeing the overthrow of the Kingdom, both foretell its downfall and its final restoration.]] |
 | | [[Proposition 31. This Theocracy or Kingdom was identified with the Davidic Kingdom..md\|Proposition 31. This Theocracy or Kingdom was identified with the Davidic Kingdom.]] |
@@ -4414,55 +1994,27 @@ File is automatically generated and any changes will be overwritten
 | 2:13 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 2:14 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 3:10 | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
-| 4:5 | [[supporting/Kingdom.md\|Kingdom]] |
 | 4:6 | [[Proposition 106. Our doctrine of the Kingdom sustained by the temptation of Christ..md\|Proposition 106. Our doctrine of the Kingdom sustained by the temptation of Christ.]] |
 | 4:18 | [[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation..md\|Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]] |
 | 4:19 | [[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation..md\|Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]] |
 | 4:23 | [[Proposition 42. Jesus Christ, in His early ministry, preached that the Kingdom of God was nigh at hand..md\|Proposition 42. Jesus Christ, in His early ministry, preached that the Kingdom of God was nigh at hand.]] |
-| 4:25 | [[supporting/Elijah.md\|Elijah]] |
-| 4:26 | [[supporting/Elijah.md\|Elijah]] |
-| 4:43 | [[supporting/Kingdom.md\|Kingdom]] |
-| 6:20 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
-| 7:28 | [[supporting/Kingdom.md\|Kingdom]] |
-| 8:1 | [[supporting/Kingdom.md\|Kingdom]] |
-| 8:10 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 9:2 | [[supporting/Kingdom.md\|Kingdom]] |
-| 9:8 | [[supporting/Elijah.md\|Elijah]] |
-| 9:11 | [[supporting/Kingdom.md\|Kingdom]] |
-| 9:19 | [[supporting/Elijah.md\|Elijah]] |
+| 6:20 | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
+| 8:10 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 9:20 | [[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”.md\|Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] |
 | | [[Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration..md\|Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration.]] |
-| 9:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 9:27 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
-| 9:30 | [[supporting/Elijah.md\|Elijah]] |
+| 9:26 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 9:27 | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | 9:31 | [[Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration..md\|Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration.]] |
-| 9:33 | [[supporting/Elijah.md\|Elijah]] |
 | 9:56 | [[Proposition 19. The New Testament begins the announcement of the kingdom in terms expressive of its being previously well known..md\|Proposition 19. The New Testament begins the announcement of the kingdom in terms expressive of its being previously well known.]] |
 | 9:57 | [[Proposition 19. The New Testament begins the announcement of the kingdom in terms expressive of its being previously well known..md\|Proposition 19. The New Testament begins the announcement of the kingdom in terms expressive of its being previously well known.]] |
-| 9:60 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 19. The New Testament begins the announcement of the kingdom in terms expressive of its being previously well known..md\|Proposition 19. The New Testament begins the announcement of the kingdom in terms expressive of its being previously well known.]] |
-| 9:62 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man..md\|Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man.]] |
-| 10:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 10:9 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
-| 10:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 10:11 | [[supporting/Kingdom.md\|Kingdom]] |
+| 9:60 | [[Proposition 19. The New Testament begins the announcement of the kingdom in terms expressive of its being previously well known..md\|Proposition 19. The New Testament begins the announcement of the kingdom in terms expressive of its being previously well known.]] |
+| 9:62 | [[Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man..md\|Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man.]] |
+| 10:9 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | 10:17 | [[Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom..md\|Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.]] |
-| 11:2 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom..md\|Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.]] |
+| 11:2 | [[Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom..md\|Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.]] |
 | 11:3 | [[Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom..md\|Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.]] |
 | 11:4 | [[Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom..md\|Proposition 105. The Lord’s Prayer is indicative of the fact that the Church is not the covenanted Messianic Kingdom.]] |
-| 11:17 | [[supporting/Kingdom.md\|Kingdom]] |
-| 11:18 | [[supporting/Kingdom.md\|Kingdom]] |
-| 11:20 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 67. The Kingdom could not therefore have been set up at that time, viz.; at the First Advent..md\|Proposition 67. The Kingdom could not therefore have been set up at that time, viz.; at the First Advent.]] |
+| 11:20 | [[Proposition 67. The Kingdom could not therefore have been set up at that time, viz.; at the First Advent..md\|Proposition 67. The Kingdom could not therefore have been set up at that time, viz.; at the First Advent.]] |
 | | [[Proposition 59. This Kingdom of God, offered to the Jewish nation, lest the purpose of God fail, is to be given to others who are adopted..md\|Proposition 59. This Kingdom of God, offered to the Jewish nation, lest the purpose of God fail, is to be given to others who are adopted.]] |
 | | [[Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation..md\|Proposition 55. It was necessary that Jesus and His disciples should at first preach the Kingdom as nigh to the Jewish nation.]] |
 | | [[Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it..md\|Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it.]] |
@@ -4470,9 +2022,7 @@ File is automatically generated and any changes will be overwritten
 | 12:8 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 12:9 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 12:12 | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
-| 12:31 | [[supporting/Kingdom.md\|Kingdom]] |
-| 12:32 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous..md\|Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.]] |
+| 12:32 | [[Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous..md\|Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.]] |
 | | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | 12:35 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand..md\|Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.]] |
@@ -4490,18 +2040,11 @@ File is automatically generated and any changes will be overwritten
 | 12:46 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 12:47 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 12:48 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 13:18 | [[supporting/Kingdom.md\|Kingdom]] |
-| 13:20 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
+| 13:20 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
 | 13:21 | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 13:28 | [[supporting/Kingdom.md\|Kingdom]] |
-| 13:29 | [[supporting/Kingdom.md\|Kingdom]] |
-| 13:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 13:35 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 14:14 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
-| 14:15 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
+| 14:15 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | 14:16 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | 14:17 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | 14:18 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
@@ -4512,14 +2055,11 @@ File is automatically generated and any changes will be overwritten
 | 14:23 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | 14:24 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | 15:10 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
-| 16:16 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
+| 16:16 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | 17:19 | [[Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ..md\|Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ.]] |
-| 17:20 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ..md\|Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ.]] |
+| 17:20 | [[Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ..md\|Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ.]] |
 | | [[Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it..md\|Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it.]] |
-| 17:21 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 59. This Kingdom of God, offered to the Jewish nation, lest the purpose of God fail, is to be given to others who are adopted..md\|Proposition 59. This Kingdom of God, offered to the Jewish nation, lest the purpose of God fail, is to be given to others who are adopted.]] |
+| 17:21 | [[Proposition 59. This Kingdom of God, offered to the Jewish nation, lest the purpose of God fail, is to be given to others who are adopted..md\|Proposition 59. This Kingdom of God, offered to the Jewish nation, lest the purpose of God fail, is to be given to others who are adopted.]] |
 | | [[Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it..md\|Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it.]] |
 | | [[Proposition 101. The invisible Church is not the covenanted Kingdom of Christ..md\|Proposition 101. The invisible Church is not the covenanted Kingdom of Christ.]] |
 | 17:23 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
@@ -4542,81 +2082,45 @@ File is automatically generated and any changes will be overwritten
 | 17:36 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | 17:37 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
-| 18:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
-| 18:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
+| 18:7 | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
+| 18:8 | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 177. This doctrine of the Kingdom  will not be received, in faith, by the Church as a body..md\|Proposition 177. This doctrine of the Kingdom  will not be received, in faith, by the Church as a body.]] |
-| 18:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:16 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:17 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:24 | [[supporting/Kingdom.md\|Kingdom]] |
-| 18:25 | [[supporting/Kingdom.md\|Kingdom]] |
-| 18:29 | [[supporting/Kingdom.md\|Kingdom]] |
-| 18:38 | [[supporting/Jesus is the Son of David.md\|Jesus is the Son of David]] |
-| 19:11 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
+| 19:11 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 19:12 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
+| 19:12 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 19:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
+| 19:13 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 19:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
+| 19:14 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 57. This Kingdom, was offered to the Jewish nation, but the nation rejected it..md\|Proposition 57. This Kingdom, was offered to the Jewish nation, but the nation rejected it.]] |
 | | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 19:15 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
+| 19:15 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 19:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
+| 19:16 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 19:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
+| 19:17 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 19:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
+| 19:18 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom..md\|Proposition 108. The formula “Kingdom of heaven” connected with the parables confirms our doctrine of the Kingdom.]] |
-| 19:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
+| 19:19 | [[Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh..md\|Proposition 58. Jesus, toward the close of His ministry, preached that the Kingdom was not nigh.]] |
 | | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
@@ -4662,24 +2166,6 @@ File is automatically generated and any changes will be overwritten
 | 20:35 | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | 20:36 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
-| 21:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:10 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 21:24 | [[Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation..md\|Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation.]] |
 | 21:25 | [[Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand..md\|Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.]] |
 | 21:26 | [[Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand..md\|Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.]] |
@@ -4694,37 +2180,22 @@ File is automatically generated and any changes will be overwritten
 | 21:29 | [[Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand..md\|Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.]] |
 | 21:30 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | | [[Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand..md\|Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.]] |
-| 21:31 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
+| 21:31 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | | [[Proposition 66. The Kingdom that was nigh at one time (viz.  at the First Advent) to the Jewish nation, is now removed to the close of its tribulation, and of “the times of the Gentiles.”.md\|Proposition 66. The Kingdom that was nigh at one time (viz.  at the First Advent) to the Jewish nation, is now removed to the close of its tribulation, and of “the times of the Gentiles.”]] |
 | | [[Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it..md\|Proposition 110. The passage most relied on to prove the Church-Kingdom theory utterly disproves it.]] |
 | 21:34 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 21:36 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 21:43 | [[Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous..md\|Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.]] |
-| 22:16 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it..md\|Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.]] |
-| 22:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:18 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:29 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous..md\|Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.]] |
+| 22:16 | [[Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it..md\|Proposition 124. This Kingdom is delayed several thousand years, to raise up a nation or people capable of sustaining it.]] |
+| 22:29 | [[Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous..md\|Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.]] |
 | | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
-| 22:30 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
+| 22:30 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | 22:43 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 23:2 | [[Proposition 57. This Kingdom, was offered to the Jewish nation, but the nation rejected it..md\|Proposition 57. This Kingdom, was offered to the Jewish nation, but the nation rejected it.]] |
 | 23:3 | [[Proposition 57. This Kingdom, was offered to the Jewish nation, but the nation rejected it..md\|Proposition 57. This Kingdom, was offered to the Jewish nation, but the nation rejected it.]] |
-| 23:42 | [[supporting/Kingdom.md\|Kingdom]] |
-| 23:51 | [[supporting/Kingdom.md\|Kingdom]] |
 | 24:1 | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
-| 24:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom..md\|Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.]] |
+| 24:21 | [[Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom..md\|Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.]] |
 | | [[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”.md\|Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] |
 | 24:47 | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | 24:49 | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
@@ -4741,19 +2212,15 @@ File is automatically generated and any changes will be overwritten
 | 1:10 | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
 | | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 1:11 | [[Proposition 57. This Kingdom, was offered to the Jewish nation, but the nation rejected it..md\|Proposition 57. This Kingdom, was offered to the Jewish nation, but the nation rejected it.]] |
-| 1:21 | [[supporting/Elijah.md\|Elijah]] |
-| 1:25 | [[supporting/Elijah.md\|Elijah]] |
 | 1:33 | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
 | 1:51 | [[Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds..md\|Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds.]] |
 | 2 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 2:19 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
 | 2:24 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 2:25 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 3:3 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
+| 3:3 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | 3:4 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
-| 3:5 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
+| 3:5 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | 3:19 | [[Proposition 180. This doctrine of the Kingdom will not be received, in faith, by the World..md\|Proposition 180. This doctrine of the Kingdom will not be received, in faith, by the World.]] |
 | 3:20 | [[Proposition 180. This doctrine of the Kingdom will not be received, in faith, by the World..md\|Proposition 180. This doctrine of the Kingdom will not be received, in faith, by the World.]] |
 | 5:18 | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
@@ -4811,44 +2278,28 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”.md\|Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”]] |
 | 12:45 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 13:3 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 14 | [[book/The Theocratic Kingdom Book/Prop 170.md\|Prop 170]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Table of Contents.md\|Table of Contents]] |
+| 14 | [[Table of Contents.md\|Table of Contents]] |
 | 14:1 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
 | | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
-| 14:2 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 14:2 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
 | | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
-| 14:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 14:3 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
 | | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
-| 14:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 14:7 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
+| 14:8 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
+| 14:9 | [[Proposition 204. Such a view of the Kingdom gives definiteness and a continued exaltation to the human nature of Christ, and indicates the majestic relationship that it sustains throughout the ages to the race of man..md\|Proposition 204. Such a view of the Kingdom gives definiteness and a continued exaltation to the human nature of Christ, and indicates the majestic relationship that it sustains throughout the ages to the race of man.]] |
 | | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 14:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 14:10 | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
 | | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 14:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 204. Such a view of the Kingdom gives definiteness and a continued exaltation to the human nature of Christ, and indicates the majestic relationship that it sustains throughout the ages to the race of man..md\|Proposition 204. Such a view of the Kingdom gives definiteness and a continued exaltation to the human nature of Christ, and indicates the majestic relationship that it sustains throughout the ages to the race of man.]] |
-| | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 14:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
-| | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 14:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 14:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 14:11 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
+| 14:12 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
-| 14:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 14:13 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
-| 14:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
+| 14:14 | [[Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture..md\|Proposition 192. This doctrine of the Kingdom greatly serves to explain Scripture.]] |
 | 14:25 | [[Proposition 4. The literal, grammatical interpretation of the Scriptures must (connected with the figurative, tropical, or rhetorical) be observed in order to obtain a correct understanding of this kingdom..md\|Proposition 4. The literal, grammatical interpretation of the Scriptures must (connected with the figurative, tropical, or rhetorical) be observed in order to obtain a correct understanding of this kingdom.]] |
 | 14:26 | [[Proposition 4. The literal, grammatical interpretation of the Scriptures must (connected with the figurative, tropical, or rhetorical) be observed in order to obtain a correct understanding of this kingdom..md\|Proposition 4. The literal, grammatical interpretation of the Scriptures must (connected with the figurative, tropical, or rhetorical) be observed in order to obtain a correct understanding of this kingdom.]] |
 | 14:27 | [[Proposition 4. The literal, grammatical interpretation of the Scriptures must (connected with the figurative, tropical, or rhetorical) be observed in order to obtain a correct understanding of this kingdom..md\|Proposition 4. The literal, grammatical interpretation of the Scriptures must (connected with the figurative, tropical, or rhetorical) be observed in order to obtain a correct understanding of this kingdom.]] |
@@ -4856,12 +2307,10 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 14:30 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 16:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
+| 16:13 | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
 | 16:14 | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
 | 16:15 | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
-| 16:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 16:16 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 16:17 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 16:18 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 16:19 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
@@ -4884,23 +2333,18 @@ File is automatically generated and any changes will be overwritten
 | 16:33 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 17:10 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 17:24 | [[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world..md\|Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.]] |
-| 18:36 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
+| 18:36 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | | [[Proposition 101. The invisible Church is not the covenanted Kingdom of Christ..md\|Proposition 101. The invisible Church is not the covenanted Kingdom of Christ.]] |
 | 19:7 | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
-| 21:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 ### Acts
 | Verse | Ref |
 | ---- | ---- |
 | 1 | [[Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah..md\|Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah.]] |
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 1:3 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 69. The death of Jesus did not remove the notion entertained by the disciples and apostles concerning the Kingdom..md\|Proposition 69. The death of Jesus did not remove the notion entertained by the disciples and apostles concerning the Kingdom.]] |
+| 1:3 | [[Proposition 69. The death of Jesus did not remove the notion entertained by the disciples and apostles concerning the Kingdom..md\|Proposition 69. The death of Jesus did not remove the notion entertained by the disciples and apostles concerning the Kingdom.]] |
 | | [[Proposition 42. Jesus Christ, in His early ministry, preached that the Kingdom of God was nigh at hand..md\|Proposition 42. Jesus Christ, in His early ministry, preached that the Kingdom of God was nigh at hand.]] |
 | 1:5 | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
-| 1:6 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 69. The death of Jesus did not remove the notion entertained by the disciples and apostles concerning the Kingdom..md\|Proposition 69. The death of Jesus did not remove the notion entertained by the disciples and apostles concerning the Kingdom.]] |
+| 1:6 | [[Proposition 69. The death of Jesus did not remove the notion entertained by the disciples and apostles concerning the Kingdom..md\|Proposition 69. The death of Jesus did not remove the notion entertained by the disciples and apostles concerning the Kingdom.]] |
 | | [[Proposition 56. The Kingdom was not established during the ministry of Christ..md\|Proposition 56. The Kingdom was not established during the ministry of Christ.]] |
 | | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | | [[Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom..md\|Proposition 43. The disciples sent forth by Jesus to preach this Kingdom were not ignorant of the meaning to be attached to the Kingdom.]] |
@@ -4943,9 +2387,7 @@ File is automatically generated and any changes will be overwritten
 | 2:36 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”.md\|Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] |
 | 2:38 | [[Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation..md\|Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation.]] |
-| 3 | [[book/The Theocratic Kingdom Book/Prop 144.md\|Prop 144]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Table of Contents.md\|Table of Contents]] |
+| 3 | [[Table of Contents.md\|Table of Contents]] |
 | | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
 | 3:12 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 3:13 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
@@ -4954,24 +2396,18 @@ File is automatically generated and any changes will be overwritten
 | 3:16 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 3:17 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 3:18 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
-| 3:19 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 3:19 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | | [[Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation..md\|Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation.]] |
-| 3:20 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 3:20 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”.md\|Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | | [[Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation..md\|Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation.]] |
-| 3:21 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 3:21 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21..md\|Proposition 144. This Kingdom embraces “the times of refreshing” and “the times of the restitution of all things mentioned, Acts 3 19-21.]] |
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
@@ -4990,8 +2426,7 @@ File is automatically generated and any changes will be overwritten
 | 5:20 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 5:42 | [[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”.md\|Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] |
 | 8:5 | [[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”.md\|Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] |
-| 8:12 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 8:12 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | | [[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”.md\|Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] |
 | 8:26 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 9:20 | [[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”.md\|Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] |
@@ -5039,8 +2474,7 @@ File is automatically generated and any changes will be overwritten
 | 10:40 | [[Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation..md\|Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation.]] |
 | | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
 | 10:41 | [[Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation..md\|Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation.]] |
-| 10:42 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation..md\|Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation.]] |
+| 10:42 | [[Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation..md\|Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation.]] |
 | 10:43 | [[Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation..md\|Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation.]] |
 | 10:44 | [[Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation..md\|Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation.]] |
 | 10:45 | [[Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation..md\|Proposition 64. The Kingdom being given to the elect only, any adoption into that elect portion must be revealed by express Divine Revelation.]] |
@@ -5053,16 +2487,12 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 54. The preaching of the Kingdom by John, Jesus, and the disciples, was confined to the Jewish nation..md\|Proposition 54. The preaching of the Kingdom by John, Jesus, and the disciples, was confined to the Jewish nation.]] |
 | 13:50 | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
 | 14:2 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
-| 14:22 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous..md\|Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.]] |
+| 14:22 | [[Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous..md\|Proposition 95. If the church is the Kingdom, then the terms “church” and “kingdom,” should be synonymous.]] |
 | | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | 15 | [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews..md\|Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.]] |
 | | [[Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom..md\|Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom.]] |
-| 15:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 88. The Church is then a preparatory stage for this Kingdom..md\|Proposition 88. The Church is then a preparatory stage for this Kingdom.]] |
-| 15:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 15:14 | [[Proposition 88. The Church is then a preparatory stage for this Kingdom..md\|Proposition 88. The Church is then a preparatory stage for this Kingdom.]] |
 | 15:16 | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | | [[Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes..md\|Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.]] |
 | | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
@@ -5076,9 +2506,7 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
 | 17:32 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
 | 18:4 | [[Proposition 9. The nature of, and the things pertaining to the kingdom, can only be ascertained within the limits of Scripture..md\|Proposition 9. The nature of, and the things pertaining to the kingdom, can only be ascertained within the limits of Scripture.]] |
-| 19:8 | [[supporting/Kingdom.md\|Kingdom]] |
-| 20:25 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 20:25 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | 20:29 | [[Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah..md\|Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah.]] |
 | 20:30 | [[Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah..md\|Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah.]] |
 | 23:6 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
@@ -5129,16 +2557,14 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 182. This Kingdom embraces the “One Hope”.md\|Proposition 182. This Kingdom embraces the “One Hope”]] |
 | 28:21 | [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews..md\|Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.]] |
 | 28:22 | [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews..md\|Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.]] |
-| 28:23 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews..md\|Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.]] |
+| 28:23 | [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews..md\|Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.]] |
 | 28:24 | [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews..md\|Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.]] |
 | 28:25 | [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews..md\|Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.]] |
 | 28:26 | [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews..md\|Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.]] |
 | 28:27 | [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews..md\|Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.]] |
 | 28:28 | [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews..md\|Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.]] |
 | 28:29 | [[Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews..md\|Proposition 73. The doctrine of the Kingdom preached by the Apostles and Elders, raised up no controversy with the Jews.]] |
-| 28:31 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 28:31 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 ### Romans
 | Verse | Ref |
 | ---- | ---- |
@@ -5220,14 +2646,6 @@ File is automatically generated and any changes will be overwritten
 | 11 | [[Proposition 68. This Kingdom is then essentially a Jewish Kingdom..md\|Proposition 68. This Kingdom is then essentially a Jewish Kingdom.]] |
 | | [[Proposition 117. The Kingdom of God re-established will form a divinely appointed and visibly manifested Theocracy..md\|Proposition 117. The Kingdom of God re-established will form a divinely appointed and visibly manifested Theocracy.]] |
 | | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
-| 11:2 | [[supporting/Elijah.md\|Elijah]] |
-| 11:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 11:25 | [[Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion..md\|Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.]] |
 | 11:26 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
@@ -5240,23 +2658,18 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation..md\|Proposition 111. The Kingdom being identified with, the elect Jewish nation, it cannot be established without the restoration of that nation.]] |
 | 11:29 | [[Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth..md\|Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.]] |
 | 11:36 | [[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature..md\|Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]] |
-| 13:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
-| 13:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
-| 13:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 13:11 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
+| 13:12 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | 14:9 | [[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature..md\|Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]] |
 | | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
 | 14:10 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | | [[Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ..md\|Proposition 132. This view of the Kingdom confirmed by the Judgeship of Christ.]] |
 | 14:12 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
-| 14:17 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
+| 14:17 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | 15:13 | [[Proposition 182. This Kingdom embraces the “One Hope”.md\|Proposition 182. This Kingdom embraces the “One Hope”]] |
 | 16:1 | [[Proposition 12. There is some mystery yet connected with the things of the kingdom..md\|Proposition 12. There is some mystery yet connected with the things of the kingdom.]] |
 | 16:17 | [[Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah..md\|Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah.]] |
-| 16:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
+| 16:20 | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | 16:25 | [[Proposition 12. There is some mystery yet connected with the things of the kingdom..md\|Proposition 12. There is some mystery yet connected with the things of the kingdom.]] |
 ### 1 Corinthians
 | Verse | Ref |
@@ -5285,44 +2698,31 @@ File is automatically generated and any changes will be overwritten
 | 3:10 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | 3:11 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | 3:12 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
-| 3:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
+| 3:13 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | 3:14 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | 3:15 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | 3:16 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
-| 4:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 4:5 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 4:9 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 4:14 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
-| 4:20 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
-| 5:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
-| 6:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
-| 6:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
-| 6:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:9 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 4:20 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
+| 5:5 | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
+| 6:2 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
+| 6:3 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
+| 6:9 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | | [[Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man..md\|Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man.]] |
-| 6:10 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man..md\|Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man.]] |
+| 6:10 | [[Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man..md\|Proposition 8. The doctrine of the kingdom presupposes that of sin, the apostasy of man.]] |
 | 6:14 | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | 7:29 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | 7:30 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | 7:31 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | 8:6 | [[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature..md\|Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]] |
 | 9:24 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
-| 10:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
+| 10:11 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | | [[Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”.md\|Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”]] |
 | 11:3 | [[Proposition 89. Christ, in view of this future Kingdom, sustains a peculiar relationship to the Church..md\|Proposition 89. Christ, in view of this future Kingdom, sustains a peculiar relationship to the Church.]] |
 | 11:19 | [[Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah..md\|Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah.]] |
-| 11:26 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 11:26 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 15 | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | 15:20 | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
@@ -5334,7 +2734,6 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
-| 15:24 | [[supporting/Kingdom.md\|Kingdom]] |
 | 15:27 | [[Proposition 83. This Kingdom is given to the Son of Man by God, the Father..md\|Proposition 83. This Kingdom is given to the Son of Man by God, the Father.]] |
 | | [[Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end..md\|Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end.]] |
 | 15:28 | [[Proposition 83. This Kingdom is given to the Son of Man by God, the Father..md\|Proposition 83. This Kingdom is given to the Son of Man by God, the Father.]] |
@@ -5352,8 +2751,7 @@ File is automatically generated and any changes will be overwritten
 | 15:47 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
 | 15:48 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
 | 15:49 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
-| 15:50 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 15:50 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
 | 15:51 | [[Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration..md\|Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
@@ -5379,14 +2777,8 @@ File is automatically generated and any changes will be overwritten
 | 1:22 | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
 | 2 | [[Proposition 93. The Covenanted Kingdom is not the Christian Church..md\|Proposition 93. The Covenanted Kingdom is not the Christian Church.]] |
 | 3:6 | [[Proposition 4. The literal, grammatical interpretation of the Scriptures must (connected with the figurative, tropical, or rhetorical) be observed in order to obtain a correct understanding of this kingdom..md\|Proposition 4. The literal, grammatical interpretation of the Scriptures must (connected with the figurative, tropical, or rhetorical) be observed in order to obtain a correct understanding of this kingdom.]] |
-| 4:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
-| 5:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 5:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 4:14 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
+| 5:2 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 5:15 | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
 | 6:2 | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | 6:16 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
@@ -5398,8 +2790,7 @@ File is automatically generated and any changes will be overwritten
 | Verse | Ref |
 | ---- | ---- |
 | 3 | [[Proposition 61. The Kingdom which by promise exclusively belonged to the Jewish nation, the rightful seed of Abraham, was now to be given to an engrafted people..md\|Proposition 61. The Kingdom which by promise exclusively belonged to the Jewish nation, the rightful seed of Abraham, was now to be given to an engrafted people.]] |
-| 5:21 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 5:21 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | 6:9 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 ### Ephesians
 | Verse | Ref |
@@ -5412,8 +2803,7 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world..md\|Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.]] |
 | 1:5 | [[Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation..md\|Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation.]] |
 | 1:9 | [[Proposition 11. The mysteries of the kingdom were given to the apostles..md\|Proposition 11. The mysteries of the kingdom were given to the apostles.]] |
-| 1:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 87. The postponement of the Kingdom is the key to the understanding of the meaning of this dispensation..md\|Proposition 87. The postponement of the Kingdom is the key to the understanding of the meaning of this dispensation.]] |
+| 1:10 | [[Proposition 87. The postponement of the Kingdom is the key to the understanding of the meaning of this dispensation..md\|Proposition 87. The postponement of the Kingdom is the key to the understanding of the meaning of this dispensation.]] |
 | | [[Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”.md\|Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”]] |
 | 1:13 | [[Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes..md\|Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.]] |
 | | [[Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire..md\|Proposition 171. This Kingdom is connected with the Baptism of the Holy Ghost and of Fire.]] |
@@ -5424,7 +2814,6 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 1:22 | [[Proposition 89. Christ, in view of this future Kingdom, sustains a peculiar relationship to the Church..md\|Proposition 89. Christ, in view of this future Kingdom, sustains a peculiar relationship to the Church.]] |
 | 1:23 | [[Proposition 89. Christ, in view of this future Kingdom, sustains a peculiar relationship to the Church..md\|Proposition 89. Christ, in view of this future Kingdom, sustains a peculiar relationship to the Church.]] |
-| 2:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 2:10 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | 2:20 | [[Proposition 51. The relation that the Kingdom sustains to “the covenants of promise” enables us to appreciate the prophecies pertaining to the Kingdom..md\|Proposition 51. The relation that the Kingdom sustains to “the covenants of promise” enables us to appreciate the prophecies pertaining to the Kingdom.]] |
 | 3 | [[Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom..md\|Proposition 30. The Prophets, however, without specifying the manner of introduction, predict that the Gentiles shall participate in the blessings of this Theocracy or Kingdom.]] |
@@ -5436,17 +2825,12 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 3:11 | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 4:4 | [[Proposition 182. This Kingdom embraces the “One Hope”.md\|Proposition 182. This Kingdom embraces the “One Hope”]] |
-| 4:30 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
+| 4:30 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
 | | [[Proposition 120. This Kingdom with its Millennial blessings can only be introduced through the power of God in Christ Jesus..md\|Proposition 120. This Kingdom with its Millennial blessings can only be introduced through the power of God in Christ Jesus.]] |
-| 5:5 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 5:5 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
-| 5:27 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
-| 6:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 5:27 | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
 ### Philippians
 | Verse | Ref |
 | ---- | ---- |
@@ -5467,7 +2851,6 @@ File is automatically generated and any changes will be overwritten
 | 2:10 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 2:11 | [[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature..md\|Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]] |
 | 2:12 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
-| 2:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 3:3 | [[Proposition 63. The present elect to whom the Kingdom will be given, is the continuation of the previous election, chiefly in another engrafted people..md\|Proposition 63. The present elect to whom the Kingdom will be given, is the continuation of the previous election, chiefly in another engrafted people.]] |
 | 3:10 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
 | 3:11 | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
@@ -5477,8 +2860,7 @@ File is automatically generated and any changes will be overwritten
 | 3:21 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration..md\|Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration.]] |
 | | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
-| 4:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
+| 4:5 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 ### Colossians
 | Verse | Ref |
@@ -5486,9 +2868,7 @@ File is automatically generated and any changes will be overwritten
 | 1 | [[Proposition 182. This Kingdom embraces the “One Hope”.md\|Proposition 182. This Kingdom embraces the “One Hope”]] |
 | | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
-| 1:13 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
+| 1:13 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | 1:15 | [[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature..md\|Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]] |
 | | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 1:16 | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
@@ -5510,8 +2890,7 @@ File is automatically generated and any changes will be overwritten
 | 3:1 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 3:2 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 3:3 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 3:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 3:4 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration..md\|Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration.]] |
 | | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
@@ -5522,9 +2901,7 @@ File is automatically generated and any changes will be overwritten
 | 3:12 | [[Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation..md\|Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation.]] |
 | 3:24 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
-| 4:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:11 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 4:11 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 ### 1 Thessalonians
 | Verse | Ref |
 | ---- | ---- |
@@ -5534,15 +2911,13 @@ File is automatically generated and any changes will be overwritten
 | 1:3 | [[Proposition 182. This Kingdom embraces the “One Hope”.md\|Proposition 182. This Kingdom embraces the “One Hope”]] |
 | 1:4 | [[Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation..md\|Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation.]] |
 | 1:9 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 1:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 1:10 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 182. This Kingdom embraces the “One Hope”.md\|Proposition 182. This Kingdom embraces the “One Hope”]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | 2 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 2:12 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 2:12 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | 2:19 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
@@ -5573,8 +2948,7 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
-| 4:16 | [[Cautions.md\|Cautions]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 4:16 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration..md\|Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration.]] |
 | | [[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth..md\|Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
@@ -5582,8 +2956,7 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 120. This Kingdom with its Millennial blessings can only be introduced through the power of God in Christ Jesus..md\|Proposition 120. This Kingdom with its Millennial blessings can only be introduced through the power of God in Christ Jesus.]] |
-| 4:17 | [[Cautions.md\|Cautions]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 4:17 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration..md\|Proposition 153. This view of the Kingdom with its two classes, the translated and dead saints, glorified, forming one class, and mortal men the other, is forcibly represented in the transfiguration.]] |
 | | [[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth..md\|Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
@@ -5592,31 +2965,24 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
 | 4:18 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
-| 5:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 5:1 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 5:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 5:2 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 5:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 5:3 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 5:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 5:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 5:4 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 5:5 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 5:6 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 5:23 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 5:23 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 ### 2 Thessalonians
 | Verse | Ref |
 | ---- | ---- |
 | 1 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth..md\|Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.]] |
 | 1:4 | [[Proposition 93. The Covenanted Kingdom is not the Christian Church..md\|Proposition 93. The Covenanted Kingdom is not the Christian Church.]] |
-| 1:5 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 93. The Covenanted Kingdom is not the Christian Church..md\|Proposition 93. The Covenanted Kingdom is not the Christian Church.]] |
+| 1:5 | [[Proposition 93. The Covenanted Kingdom is not the Christian Church..md\|Proposition 93. The Covenanted Kingdom is not the Christian Church.]] |
 | | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | 1:6 | [[Proposition 93. The Covenanted Kingdom is not the Christian Church..md\|Proposition 93. The Covenanted Kingdom is not the Christian Church.]] |
@@ -5647,21 +3013,16 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 2:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Cautions.md\|Cautions]] |
-| | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
+| 2:1 | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
 | | [[Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth..md\|Proposition 154. This Theocratic Kingdom includes the visible reign of the risen and glorified saints here on the earth.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
-| 2:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Cautions.md\|Cautions]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 2:2 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2..md\|Proposition 170. This doctrine of the Kingdom fully sustained by the “Father’s House” of John 14 2.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
-| 2:3 | [[Cautions.md\|Cautions]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 2:3 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | 2:4 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
@@ -5705,8 +3066,7 @@ File is automatically generated and any changes will be overwritten
 | 2 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | 3:16 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 4:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
+| 4:1 | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
 | 4:2 | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
 | 4:3 | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
 | 4:4 | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
@@ -5726,19 +3086,15 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 2:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 2:12 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 2:17 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
 | 2:18 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
 | 2:21 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
-| 3:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
+| 3:1 | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 3:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
+| 3:2 | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 3:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
+| 3:3 | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 3:4 | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
@@ -5756,46 +3112,32 @@ File is automatically generated and any changes will be overwritten
 | 3:11 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 3:12 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 3:13 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 3:16 | [[supporting/Inspiration.md\|Inspiration]] |
-| | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
+| 3:16 | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
 | | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
-| 3:17 | [[supporting/Inspiration.md\|Inspiration]] |
-| | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
+| 3:17 | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
 | | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
-| 4:1 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
+| 4:1 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | | [[Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents..md\|Proposition 34. The Prophets describe this restored Kingdom, its extension, glory, etc. without distinguishing between the First and Second Advents.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 4:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 4:2 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 4:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah..md\|Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah.]] |
+| 4:3 | [[Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah..md\|Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah.]] |
 | | [[Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated..md\|Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 4:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah..md\|Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah.]] |
+| 4:4 | [[Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah..md\|Proposition 96. The differences visible in the Church are evidences that it is not the predicted Kingdom of the Messiah.]] |
 | | [[Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated..md\|Proposition 75. The doctrine of the Kingdom, as held by the churches established by the Apostles, was perpetuated.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 4:5 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 4:6 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 4:7 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 4:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 4:8 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
-| 4:18 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
-### Titus
-| Verse | Ref |
-| ---- | ---- |
-| 2:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 4:18 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 ### Hebrews
 | Verse | Ref |
 | ---- | ---- |
@@ -5810,8 +3152,7 @@ File is automatically generated and any changes will be overwritten
 | 1:5 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 1:6 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
-| 1:8 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
+| 1:8 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | | [[Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end..md\|Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end.]] |
 | 1:10 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 1:12 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
@@ -5849,9 +3190,7 @@ File is automatically generated and any changes will be overwritten
 | 7:26 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
 | 7:27 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
 | 8:1 | [[Proposition 155. This Kingdom exhibits Jesus, not only as the King, but as “the Priest.”.md\|Proposition 155. This Kingdom exhibits Jesus, not only as the King, but as “the Priest.”]] |
-| 8:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
+| 8:8 | [[Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated..md\|Proposition 49. The covenants being in Revelation, the foundation of the Kingdom, must first be received and appreciated.]] |
 | 9:9 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
 | 9:11 | [[Proposition 155. This Kingdom exhibits Jesus, not only as the King, but as “the Priest.”.md\|Proposition 155. This Kingdom exhibits Jesus, not only as the King, but as “the Priest.”]] |
 | 9:26 | [[Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”.md\|Proposition 140. This doctrine of the Kingdom confirmed by the phraseology of the New Testament respecting “the end of the age.”]] |
@@ -5875,8 +3214,7 @@ File is automatically generated and any changes will be overwritten
 | 10:12 | [[Proposition 83. This Kingdom is given to the Son of Man by God, the Father..md\|Proposition 83. This Kingdom is given to the Son of Man by God, the Father.]] |
 | | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
 | | [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints..md\|Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.]] |
-| 10:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
+| 10:13 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
 | | [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints..md\|Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.]] |
 | 10:14 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
 | | [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints..md\|Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.]] |
@@ -5884,17 +3222,13 @@ File is automatically generated and any changes will be overwritten
 | 10:16 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
 | 10:17 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
 | 10:18 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
-| 10:25 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
+| 10:25 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | 10:27 | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
 | 10:36 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 10:37 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
+| 10:37 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 11:19 | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
-| 11:33 | [[supporting/Kingdom.md\|Kingdom]] |
-| 11:35 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 12:2 | [[Proposition 84. As this Kingdom is specially given to the Son of Man as the result of his obedience, sufferings, and death, it must be something different.md\|Proposition 84. As this Kingdom is specially given to the Son of Man as the result of his obedience, sufferings, and death, it must be something different]] |
 | | [[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature..md\|Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]] |
 | 12:22 | [[Proposition 93. The Covenanted Kingdom is not the Christian Church..md\|Proposition 93. The Covenanted Kingdom is not the Christian Church.]] |
@@ -5904,8 +3238,7 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | 12:26 | [[Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth..md\|Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth.]] |
 | 12:27 | [[Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth..md\|Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth.]] |
-| 12:28 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 12:28 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | | [[Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth..md\|Proposition 147. This Kingdom is preceded by a wonderful shaking of the heavens and earth.]] |
 | 13:8 | [[Proposition 155. This Kingdom exhibits Jesus, not only as the King, but as “the Priest.”.md\|Proposition 155. This Kingdom exhibits Jesus, not only as the King, but as “the Priest.”]] |
 | 13:15 | [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints..md\|Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.]] |
@@ -5918,12 +3251,8 @@ File is automatically generated and any changes will be overwritten
 | ---- | ---- |
 | 2 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
-| 2:5 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation..md\|Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation.]] |
-| 5:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
-| 5:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 2:5 | [[Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation..md\|Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation.]] |
+| 5:3 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | 5:7 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
@@ -5932,7 +3261,6 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | 5:9 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
-| 5:17 | [[supporting/Elijah.md\|Elijah]] |
 ### 1 Peter
 | Verse | Ref |
 | ---- | ---- |
@@ -6005,39 +3333,27 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 4:12 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 4:13 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 5:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 5:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 5:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 5:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 5:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 5:1 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 5:2 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 5:3 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 5:4 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 ### 2 Peter
 | Verse | Ref |
 | ---- | ---- |
 | 1:10 | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | | [[Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation..md\|Proposition 62. This people, to whom the Kingdom is to be given, gathered out of the nations, becomes the elect nation.]] |
-| 1:11 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
+| 1:11 | [[Proposition 90. Members of the Church who are faithful, are promised this Kingdom..md\|Proposition 90. Members of the Church who are faithful, are promised this Kingdom.]] |
 | | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | | [[Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom..md\|Proposition 45. The phrases “Kingdom of heaven,” “Kingdom of God,” “Kingdom of Christ,” etc., denote the same Kingdom.]] |
 | | [[Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end..md\|Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end.]] |
 | 1:16 | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | 1:19 | [[Proposition 9. The nature of, and the things pertaining to the kingdom, can only be ascertained within the limits of Scripture..md\|Proposition 9. The nature of, and the things pertaining to the kingdom, can only be ascertained within the limits of Scripture.]] |
 | | [[Proposition 164. This Kingdom ends the Gentile-domination..md\|Proposition 164. This Kingdom ends the Gentile-domination.]] |
-| 1:20 | [[supporting/Inspiration.md\|Inspiration]] |
-| | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
-| 1:21 | [[supporting/Inspiration.md\|Inspiration]] |
-| | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
-| 3 | [[book/The Theocratic Kingdom Book/Prop 151.md\|Prop 151]] |
-| | [[book/The Theocratic Kingdom Book/Prop 149.md\|Prop 149]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Table of Contents.md\|Table of Contents]] |
+| 1:20 | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
+| 1:21 | [[Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God..md\|Proposition 5. The doctrine of the kingdom is based on the inspiration of the Word of God.]] |
+| 3 | [[Table of Contents.md\|Table of Contents]] |
 | | [[Proposition 148. This Kingdom embraces the new heavens and new earth..md\|Proposition 148. This Kingdom embraces the new heavens and new earth.]] |
-| 3:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
+| 3:3 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 3:4 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
@@ -6048,29 +3364,17 @@ File is automatically generated and any changes will be overwritten
 | 3:8 | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
 | | [[Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”.md\|Proposition 133. This view of the Kingdom is confirmed by “the Day of Judgment.”]] |
 | 3:9 | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
-| 3:10 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[supporting/Relative Position of Events per Peters.md\|Relative Position of Events per Peters]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
+| 3:10 | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
 | | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 3:11 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[supporting/Relative Position of Events per Peters.md\|Relative Position of Events per Peters]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
+| 3:11 | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
+| | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
+| | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
+| 3:12 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
 | | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
 | | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
-| 3:12 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[supporting/Relative Position of Events per Peters.md\|Relative Position of Events per Peters]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
-| | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
-| | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
-| 3:13 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[supporting/Relative Position of Events per Peters.md\|Relative Position of Events per Peters]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
+| 3:13 | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
 | | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
 | | [[Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13..md\|Proposition 149. This Kingdom is preceded by the conflagration of 2 Pet 3 10-13.]] |
 | 3:14 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
@@ -6086,28 +3390,20 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | 2:23 | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
 | 2:28 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 3:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 3:2 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead..md\|Proposition 125. The Kingdom to be inherited by these gathered saints requires their resurrection from among the dead.]] |
-| 3:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 3:3 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | 3:8 | [[Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes..md\|Proposition 196. This doctrine of the Kingdom gives us a more comprehensive view of the work of Christ for redemptive purposes.]] |
-| 4:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 4:15 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 4:17 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 | 5:20 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 ### 2 John
 | Verse | Ref |
 | ---- | ---- |
-| 1:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 8 | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
 ### Jude
 | Verse | Ref |
 | ---- | ---- |
-| 1:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 1:24 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 14 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ..md\|Proposition 121. This Kingdom, of necessity, requires a Pre-Millennial Personal Advent of Jesus Christ.]] |
@@ -6117,16 +3413,13 @@ File is automatically generated and any changes will be overwritten
 | ---- | ---- |
 | 1 | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
-| 1:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
+| 1:1 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | 1:3 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | 1:5 | [[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature..md\|Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]] |
-| 1:6 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature..md\|Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]] |
+| 1:6 | [[Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature..md\|Proposition 80. This Kingdom of covenant promise and prediction, is to be distinguished from the Sovereignty which Jesus exercises by virtue of His Divine nature.]] |
 | | [[Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints..md\|Proposition 156. The doctrine of the Kingdom enforces the future priesthood of the saints.]] |
 | 1:7 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 1:9 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
+| 1:9 | [[Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom..md\|Proposition 109. An examination of the passages of Scripture supposed to teach the Church-Kingdom theory will confirm our doctrine of the Kingdom.]] |
 | 1:17 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 1:18 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 2:11 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
@@ -6142,88 +3435,25 @@ File is automatically generated and any changes will be overwritten
 | 3:17 | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
 | 3:21 | [[Proposition 155. This Kingdom exhibits Jesus, not only as the King, but as “the Priest.”.md\|Proposition 155. This Kingdom exhibits Jesus, not only as the King, but as “the Priest.”]] |
 | 4 | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 4:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 4:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 5:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 5:8 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 5:9 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
-| 5:10 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
+| 5:10 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | 5:11 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 5:12 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | | [[Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels..md\|Proposition 157. This doctrine of the Kingdom enforces the future ministration of angels.]] |
 | 5:13 | [[Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God..md\|Proposition 198. This doctrine of the Kingdom confirms the credibility and inspiration of the Word of God.]] |
 | | [[Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds..md\|Proposition 195. This doctrine of the Kingdom may, analogically give in a clew to the Government of other worlds.]] |
-| 6:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 6:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
 | 6:9 | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
 | 6:10 | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
 | 6:11 | [[Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out..md\|Proposition 65. Before this Kingdom can be given to this elect people, they must first be gathered out.]] |
 | | [[Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state..md\|Proposition 136. The doctrine of the Kingdom in agreement with the doctrine of the intermediate state.]] |
-| 7 | [[supporting/Questions while studying Peters' book.md\|Questions while studying Peters' book]] |
-| | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
-| 7:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 7:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 7:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 7:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 7:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 7:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 7:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 8:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 9:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 10:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 10:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 10:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 10:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 10:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 10:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 10:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 14. Some things pertaining to the kingdom not so easily comprehended as many suppose..md\|Proposition 14. Some things pertaining to the kingdom not so easily comprehended as many suppose.]] |
+| 7 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
+| 10:7 | [[Proposition 14. Some things pertaining to the kingdom not so easily comprehended as many suppose..md\|Proposition 14. Some things pertaining to the kingdom not so easily comprehended as many suppose.]] |
 | | [[Proposition 12. There is some mystery yet connected with the things of the kingdom..md\|Proposition 12. There is some mystery yet connected with the things of the kingdom.]] |
-| 10:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 10:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 10:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 11:15 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
+| 11:15 | [[Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day..md\|Proposition 199. This doctrine of the Kingdom materially aids in deciding the great Christological question of the day.]] |
 | | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
 | | [[Proposition 164. This Kingdom ends the Gentile-domination..md\|Proposition 164. This Kingdom ends the Gentile-domination.]] |
 | | [[Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end..md\|Proposition 159. This Theocratic Kingdom of the Lord Jesus, the Christ, will never come to an end.]] |
@@ -6253,80 +3483,38 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 11:19 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 12:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 12:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:10 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 12:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 12:5 | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
 | 13 | [[Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown..md\|Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown.]] |
-| 13:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
-| 13:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown..md\|Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown.]] |
-| 13:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world..md\|Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.]] |
-| 13:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 13:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14 | [[supporting/Questions while studying Peters' book.md\|Questions while studying Peters' book]] |
-| | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
+| 13:1 | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
+| 13:3 | [[Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown..md\|Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown.]] |
+| 13:8 | [[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world..md\|Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.]] |
+| 14 | [[Proposition 174. This Kingdom of the Messiah is preceded by signs..md\|Proposition 174. This Kingdom of the Messiah is preceded by signs.]] |
 | | [[Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand..md\|Proposition 173. This Kingdom of the Lord Jesus Christ may be near at hand.]] |
 | | [[Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown..md\|Proposition 161. This Kingdom will not be re-established until after Antichrist is overthrown.]] |
 | | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 103. This Kingdom is not a Kingdom in the third heaven..md\|Proposition 103. This Kingdom is not a Kingdom in the third heaven.]] |
-| 14:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
+| 14:1 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 14:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
+| 14:2 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 14:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
+| 14:3 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 14:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
+| 14:4 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 14:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
+| 14:5 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 14:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
-| 14:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 14:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 14:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 14:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 14:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 14:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 14:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
+| 14:6 | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
+| 14:9 | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
+| 14:10 | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
+| 14:11 | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
+| 14:12 | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
+| 14:13 | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
+| 14:14 | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
 | | [[Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”.md\|Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”]] |
 | 14:15 | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
 | | [[Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”.md\|Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”]] |
-| 14:16 | [[supporting/Questions while studying Peters' book.md\|Questions while studying Peters' book]] |
-| | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
+| 14:16 | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
 | | [[Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”.md\|Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”]] |
 | 14:17 | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
 | | [[Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”.md\|Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”]] |
@@ -6341,87 +3529,17 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration..md\|Proposition 150. The establishment of this Kingdom is not affected by the extent of Peter’s conflagration.]] |
 | | [[Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”.md\|Proposition 137. This doctrine of the Kingdom sustained by the phrase “the world to come.”]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 15:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 15:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
+| 15:15 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 15:16 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 15:17 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 15:18 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
 | 15:19 | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 16:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:10 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 16:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 16:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
+| 16:15 | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
+| 16:16 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | 17 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 160. This Kingdom is set up in the divided state of the Roman Empire..md\|Proposition 160. This Kingdom is set up in the divided state of the Roman Empire.]] |
-| 17:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world..md\|Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.]] |
-| 17:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:12 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
-| 17:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:17 | [[supporting/Kingdom.md\|Kingdom]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 17:18 | [[supporting/Kingdom.md\|Kingdom]] |
-| 18:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 18:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 17:8 | [[Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world..md\|Proposition 2. The establishment of this kingdom, was determined before, and designed and prepared from, the foundation of the world.]] |
+| 17:14 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | 19 | [[Proposition 70. The apostles, after Christ’s ascension, did not preach, either to Jews or Gentiles, that the Kingdom was established..md\|Proposition 70. The apostles, after Christ’s ascension, did not preach, either to Jews or Gentiles, that the Kingdom was established.]] |
 | | [[Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”.md\|Proposition 205. The doctrine of the Kingdom materially aids us in preaching “the Christ”— the distinctive “Messiah.”]] |
 | | [[Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned..md\|Proposition 18. The prophecies relating to the establishment of the Kingdom of God are both conditioned and unconditioned.]] |
@@ -6432,79 +3550,55 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist..md\|Proposition 123. The Pre-Millennial Advent and the accompanying Kingdom are united with, the destruction of Antichrist.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 19:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 19:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 19:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 19:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 19:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 19:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 19:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 19:2 | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
+| 19:7 | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
+| 19:9 | [[Proposition 169. This Theocratic Kingdom embraces the marriage of Christ to the New Jerusalem..md\|Proposition 169. This Theocratic Kingdom embraces the marriage of Christ to the New Jerusalem.]] |
 | | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
-| 19:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 19:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 169. This Theocratic Kingdom embraces the marriage of Christ to the New Jerusalem..md\|Proposition 169. This Theocratic Kingdom embraces the marriage of Christ to the New Jerusalem.]] |
-| | [[Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman..md\|Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.]] |
-| 19:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 19:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
+| 19:11 | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
 | | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
-| 19:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
-| 19:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
-| 19:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
+| 19:12 | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
+| 19:13 | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
+| 19:14 | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
-| 19:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
+| 19:15 | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
 | | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
-| 19:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
+| 19:16 | [[Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions..md\|Proposition 36. The Prophets, with one voice, describe this one Kingdom, thus restored in terms expressive of the most glorious additions.]] |
 | | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
-| 19:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
+| 19:17 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 19:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
+| 19:18 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 19:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
+| 19:19 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 19:20 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
 | | [[Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46..md\|Proposition 134. Our view of Judgment (and as a consequence that also of the Kingdom) is fully sustained by the passage of Scripture, Matt. 25 31-46.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
 | 19:21 | [[Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”.md\|Proposition 163. This Kingdom will be preceded by the predicted “battle of that great day of God Almighty.”]] |
-| 20 | [[supporting/Questions while studying Peters' book.md\|Questions while studying Peters' book]] |
-| | [[Proposition 158. The doctrine of the Kingdom aids in locating the Millennial period..md\|Proposition 158. The doctrine of the Kingdom aids in locating the Millennial period.]] |
+| 20 | [[Proposition 158. The doctrine of the Kingdom aids in locating the Millennial period..md\|Proposition 158. The doctrine of the Kingdom aids in locating the Millennial period.]] |
 | | [[Proposition 155. This Kingdom exhibits Jesus, not only as the King, but as “the Priest.”.md\|Proposition 155. This Kingdom exhibits Jesus, not only as the King, but as “the Priest.”]] |
 | | [[Proposition 143. The early church doctrine of the Kingdom is supported by “the Rest” or keeping of the Sabbath, mentioned by Paul..md\|Proposition 143. The early church doctrine of the Kingdom is supported by “the Rest” or keeping of the Sabbath, mentioned by Paul.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
 | | [[Proposition 115. The Kingdom is not established without a period of violence or war..md\|Proposition 115. The Kingdom is not established without a period of violence or war.]] |
-| 20:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches..md\|Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]] |
+| 20:1 | [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches..md\|Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]] |
 | | [[Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form..md\|Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.]] |
 | | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
 | | [[Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth..md\|Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth.]] |
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 20:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches..md\|Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]] |
+| 20:2 | [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches..md\|Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]] |
 | | [[Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form..md\|Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.]] |
 | | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
 | | [[Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth..md\|Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth.]] |
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 20:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches..md\|Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]] |
+| 20:3 | [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches..md\|Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]] |
 | | [[Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form..md\|Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.]] |
 | | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
 | | [[Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth..md\|Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth.]] |
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 20:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches..md\|Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]] |
+| 20:4 | [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches..md\|Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]] |
 | | [[Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form..md\|Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.]] |
 | | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
 | | [[Proposition 143. The early church doctrine of the Kingdom is supported by “the Rest” or keeping of the Sabbath, mentioned by Paul..md\|Proposition 143. The early church doctrine of the Kingdom is supported by “the Rest” or keeping of the Sabbath, mentioned by Paul.]] |
@@ -6514,108 +3608,44 @@ File is automatically generated and any changes will be overwritten
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
 | | [[Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets..md\|Proposition 104. The Christian Church is not denoted by the predicted Kingdom of the Prophets.]] |
-| 20:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches..md\|Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]] |
+| 20:5 | [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches..md\|Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]] |
 | | [[Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form..md\|Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.]] |
 | | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
 | | [[Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth..md\|Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth.]] |
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 20:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches..md\|Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]] |
+| 20:6 | [[Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches..md\|Proposition 72. The doctrine of the Kingdom, as preached by the apostles, was received by the early churches.]] |
 | | [[Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form..md\|Proposition 206. This earth will yet witness the re-establishment of a glorious Theocracy—a Theocracy in its perfected form.]] |
 | | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
 | | [[Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth..md\|Proposition 131. This Kingdom embraces the visible reign of Jesus, the Christ, here on earth.]] |
 | | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
 | | [[Proposition 130. The Kingdom is preceded by a translation of the living saints..md\|Proposition 130. The Kingdom is preceded by a translation of the living saints.]] |
 | | [[Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints..md\|Proposition 127. In support of our view, the Apocalypse unmistakably teaches a Pre-Millennial resurrection of the saints.]] |
-| 20:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
-| 20:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
-| 20:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
-| 20:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 20:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
-| 20:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
-| 20:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
-| 20:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
-| 20:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
-| 20:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 20:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 20:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 20:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 20:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21 | [[book/The Theocratic Kingdom Book/Prop 151.md\|Prop 151]] |
-| | [[supporting/Questions while studying Peters' book.md\|Questions while studying Peters' book]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Table of Contents.md\|Table of Contents]] |
+| 20:7 | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
+| 20:8 | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
+| 20:9 | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
+| 20:11 | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
+| 20:12 | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
+| 20:13 | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
+| 20:14 | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
+| 20:15 | [[Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection..md\|Proposition 128. The language of the Gospels and Epistles is in strict accord with the requirements of a Pre-Millennial resurrection.]] |
+| 21 | [[Table of Contents.md\|Table of Contents]] |
 | | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
 | | [[Proposition 148. This Kingdom embraces the new heavens and new earth..md\|Proposition 148. This Kingdom embraces the new heavens and new earth.]] |
 | | [[Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings..md\|Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.]] |
-| 21:1 | [[book/The Theocratic Kingdom Book/List of Propositions.md\|List of Propositions]] |
-| | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[book/The Theocratic Kingdom Book/Selected Quotations from The Theocratic Kingdom.md\|Selected Quotations from The Theocratic Kingdom]] |
-| | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
-| 21:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
-| 21:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 63. The present elect to whom the Kingdom will be given, is the continuation of the previous election, chiefly in another engrafted people..md\|Proposition 63. The present elect to whom the Kingdom will be given, is the continuation of the previous election, chiefly in another engrafted people.]] |
-| 21:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 21:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
+| 21:1 | [[Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1..md\|Proposition 151. This Kingdom is identified with, “the new heavens and new earth,” of Isa. 65 17 and 66 22, of 2 Pet. 3 13, and of Rev. 21 1.]] |
+| 21:3 | [[Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land..md\|Proposition 112. The Kingdom, if established as predicted, demands the national restoration of the Jews in their own land.]] |
+| 21:12 | [[Proposition 63. The present elect to whom the Kingdom will be given, is the continuation of the previous election, chiefly in another engrafted people..md\|Proposition 63. The present elect to whom the Kingdom will be given, is the continuation of the previous election, chiefly in another engrafted people.]] |
 | 21:22 | [[Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice..md\|Proposition 172. This Kingdom when restored does not require the reintroduction of bloody sacrifice.]] |
-| 22:1 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:2 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:3 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:4 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:5 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:6 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:7 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
+| 22:7 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 22:8 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:9 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:10 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
-| 22:11 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:12 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
+| 22:10 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
+| 22:12 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
 | | [[Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers..md\|Proposition 135. The doctrine of the Kingdom in full accord with the Scriptural doctrine of the judgment of believers.]] |
-| 22:13 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:14 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:15 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:16 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:17 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:18 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:19 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:20 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
+| 22:20 | [[Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians..md\|Proposition 74. The belief in the speedy Advent of Christ, entertained both by the Apostles and the churches under them, indicates what Kingdom was believed in and taught by the first Christians.]] |
 | | [[Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse..md\|Proposition 191. Our doctrine enforced by the general tenor of the Apocalypse.]] |
 | | [[Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency..md\|Proposition 183. The doctrine of the Kingdom and its related subjects have a direct practical tendency.]] |
-| 22:21 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
-| 22:22 | [[SecondComingBible/The SECOND COMING BIBLE.md\|The SECOND COMING BIBLE]] |
