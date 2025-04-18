@@ -29,7 +29,7 @@ tags:
 
 >... it is not the Divine Sonship that constitutes “*the Christ*” (although an *essential* element), and it is not the Davidic Sonship that constitutes Him “*the Messiah*” (although *essentially* requisite), but it is *the two inseparably united* that makes Him “*the Christ*.”
 >p. 569 Vol. 1 Prop. 81 Obs. 4
-### David throne by covenant and promise
+### Davidic throne by covenant and promise
 >Obs. 6. “The Son of Man” is fully identified with *the re-establishment* of the Davidic throne and Kingdom by covenant and promise.
 >p. 570 Vol. 1 Prop. 81 Obs. 6
 ### A real, veritable Son of David

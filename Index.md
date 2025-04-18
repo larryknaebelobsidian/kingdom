@@ -1,4 +1,8 @@
 File is automatically generated and any changes will be overwritten
+### Daniel
+| Verse | Ref |
+| ---- | ---- |
+| 7:13 | [[Proposition 81. This Kingdom, thus covenanted, belongs to Jesus as “the Son of Man.”.md\|Proposition 81. This Kingdom, thus covenanted, belongs to Jesus as “the Son of Man.”]] |
 ### John
 | Verse | Ref |
 | ---- | ---- |
