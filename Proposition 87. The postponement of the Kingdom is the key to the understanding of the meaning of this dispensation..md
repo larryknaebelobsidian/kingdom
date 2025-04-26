@@ -14,7 +14,6 @@ tags:
 58-68 140 201 202
 
 Proposition 87. The [postponement](postponement) of the Kingdom is the key to the understanding of the meaning of this dispensation.
-#toc
 
 >So important is this fact that before entering into a direct description of the relation that the church sustains to this dispensation and to the Kingdom, we take the liberty of referring the reader to what has been proven concerning this postponement, Props. 56-68. If our position is correct (and we deem it, as the early church did, impregnable) then it follows, as a matter of course, that *many things* now applied by divines *to this* dispensation have *no relation whatever* to it.
 >p. 590 Vol. 1 Prop. 87
