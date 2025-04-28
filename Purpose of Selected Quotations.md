@@ -14,3 +14,5 @@ To glorify God -- Father, Son and Holy Spirit
 
 Come, Lord Jesus
 Rev. 22:20
+
+<small>Navigation hint: To quickly move to a proposition use search.  Example: to find proposition 170, search for "N 170." (without the quotes). This will return 2 places, one in the List of Propositions (which you probably don't want) and the second one will be the title of the proposition itself which you likely want.</small>
