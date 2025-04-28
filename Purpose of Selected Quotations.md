@@ -1,3 +1,5 @@
+# Purpose of Selected Quotations
+
 To encourage you to buy the three volume book set (as I have done) and read the full work yourself. I have no financial gain in this.
 
 To provide a free and handy electronic subset of Peters work that supports:
@@ -8,6 +10,7 @@ To provide a free and handy electronic subset of Peters work that supports:
 - viewing each proposition's pericopes only (using your epub reader's **Table of Contents** view)
 - "Selected Quotations" has also been generated in PDF.
 
-To glorify God -- Father, Son and Holy Spirit,
+To glorify God -- Father, Son and Holy Spirit
 
-Come Lord Jesus.
+Come, Lord Jesus
+Rev. 22:20
