@@ -33,7 +33,7 @@ tags:
 >The saints, elected *to be associated* with Christ in Rulership, are indeed subordinated to Christ. He is the Head, the Chief, and they being also kings with Him, it is rightfully His title to be styled “*King of Kings*” seeing that the latter are inferior to Him, but while subordinate, their rank, etc., elevates them as brethren and joint rulers above that *of mere subjects in the ordinary use* of the Word. They are truly subjects in one sense only, viz.: in the one given, e.g. 1 Cor, 11:3.
 >p. 597 Vol. 1 Prop. 89 Obs. 3
 ### The "day of the Lord"
->Obs. 4. The Kingship of Jesus Christ, as David’s Son, the Theocratic Ruler, is to be manifested in a period of time, called by way of pre-eminence “*the day of the Lord*” “*the day of Jesus Christ*, etc.
+>Obs. 4. The Kingship of Jesus Christ, as David’s Son, the Theocratic Ruler, is to be manifested in a period of time, called by way of pre-eminence “*the day of the Lord*” “*the day of Jesus Christ*," etc.
 >...
 >The covenant promises, if actually fulfilled, require this; and hence until their realization, the church occupies the position of *waiting* (e.g. 1 Pet. 1:7, 13) for this Revelation of Jesus as King. During this expectation all things are working in behalf of the election, the contemplated gathering, the manifestation of the sons of God. The Head is preparing the members, by the bestowal of blessed privileges, sacred ordinances, rich experience, and His own ever-abiding Presence, *for the coming exaltation* of the kingdom. Communion with Christ and with each other *necessitates a churchly arrangement*, so that the requisite elect may be taken out from among the nations to place the future Theocratic Kingdom *on an immovable basis*.
 >p. 597-598 Vol. 1 Prop. 89 Obs. 4

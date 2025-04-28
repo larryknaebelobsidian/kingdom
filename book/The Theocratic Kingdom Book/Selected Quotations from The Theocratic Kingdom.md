@@ -7,6 +7,10 @@ Published on `=dateformat(date(now), "yyyy-MM-dd HH:mm")`
 
 ---
 
+![[Purpose of Selected Quotations]]
+
+---
+
 # List of Propositions
 
 Proposition 1. The kingdom of God is a subject of vital importance.   

@@ -7,6 +7,7 @@ longform:
   scenes:
     - Last Published
     - CreditPage
+    - Purpose of Selected Quotations
     - List of Propositions
     - Prop 1
     - Prop 2
