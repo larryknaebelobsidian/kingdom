@@ -39,7 +39,7 @@ Proposition 94. The overlooking of the [postponement](postponement) of this King
 ### Must include the OT prophets
 >To fully know what His mission was, and how it will be eventually realized, we must refer not merely to His life, to the preaching and testimony of His disciples, but also to what the Prophets have written, ever remembering that the covenants form *the basis* of all pertaining to the Kingdom. From these united, the doctrine of the Kingdom can be clearly adduced.
 >p. 627 Vol. 1 Prop. 94 Obs. 10
-### David covenant remains unfulfilled
+### Davidic covenant remains unfulfilled
 >Obs. 11. By this postponement the special Davidic covenant remains unfulfilled (excepting that David’s Son and Lord is born, and qualified for the immortal reign), and *“the tabernacle of David” continues “fallen down” and “in ruins”—"The house” remains “desolate.”*
 >p. 627 Vol. 1 Prop. 94 Obs. 11
 ### Evidence of the postponement
