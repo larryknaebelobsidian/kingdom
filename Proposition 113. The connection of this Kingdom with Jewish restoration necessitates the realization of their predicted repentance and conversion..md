@@ -34,7 +34,7 @@ tags:
 >It is no *ordinary* repentance, and not merely that of individuals, but *extraordinary and national* in its extent, Micah 7:15-20, etc. It is *caused* by 
 >1. the judgments of God, Mal. 3:2-4; Hos. 5:15; Isa. 30:18-19, and 
 >2. the personal presence of the King, Micah 2:12-13; Ezek. 20:33-44; Zeph. 3:15. 
->3. It is done that God’s faithfulness may appear, Ezek. 36:22; Isa. .43:25; Isa. 44:22-26. 
+>3. It is done that God’s faithfulness may appear, Ezek. 36:22; Isa. 43:25; Isa. 44:22-26. 
 >4. It is bestowed in the land given to their fathers into which they are brought, Ezek. 36:24-35; Jer. 33:7-16; Jer. 32:37-44; Jer. 31, etc. 
 >5. The reign of the Messiah is intimately connected with it, as e.g. in Jer. 23:3-8; Ezek. 34:23-31, etc. 
 >The absence of such national repentance for the last eighteen hundred years is no proof that it *never* will be accomplished. On the other hand, it is decisive that it *will yet come* to pass, if we but consider that this very absence of repentance—excepting in individual cases—this “veil” of unbelief covering them, is also predicted.
@@ -51,7 +51,7 @@ Zech. 14:2, Zech. 12:2,
 >This *partial* restoration must be carefully distinguished *from the one* under the Messiah, for *this* is a restoration which means suffering and terrible persecution by Antichrist, while *the other* is full of blessing. This restoration will be, in all probability, *between* the two stages of the Sec. Advent, and, owing to the unbelief of the nation in Jesus as the Messiah, will result in the re-establishment of a temple, a splendid temple service, a return to the Mosaic ritual and former distinctive national usages. The *persistent* rejection of Jesus as the true Messiah will cause the fearful tribulation predicted to overwhelm them and plunge them in despair.
 >p. 85 Vol. 2 Prop 113 Obs. 6
 
->The Lord shall save “*Judah first*” (Zech. 12:7) and He (v. 10) “*will pour upon the house of David, and upon the inhabitants of Jerusalem, the spirit of grace and of supplications: and they shall look upon Me whom they nave pierced, and they shall mourn for him, as one mourneth for his only son, and shall be in bitterness for him, as one that is in bitterness for his first-born. In that day shall there be a great mourning in Jerusalem*” etc. (Some representatives of the ten tribes are also present, as in “house of Levi, family of Shimei,” or Sep., “Simeon,” but Judah is largely predominant and hence most prominently mentioned.)
+>The Lord shall save “*Judah first*” (Zech. 12:7) and He (v. 10) “*will pour upon the house of David, and upon the inhabitants of Jerusalem, the spirit of grace and of supplications: and they shall look upon Me whom they have pierced, and they shall mourn for him, as one mourneth for his only son, and shall be in bitterness for him, as one that is in bitterness for his first-born. In that day shall there be a great mourning in Jerusalem*” etc. (Some representatives of the ten tribes are also present, as in “house of Levi, family of Shimei,” or Sep., “Simeon,” but Judah is largely predominant and hence most prominently mentioned.)
 >p. 85-86 Vol. 2 Prop 113 Obs. 6
 
 >... Israel (the ten tribes) is brought in at least forty years *after* the overthrow of Antichrist and *after* the restoration of Judah.
