@@ -63,5 +63,10 @@ Zech. 14:2, Zech. 12:2,
 >Elijah is a forerunner of the Sec. Advent (the open Parousia) just as John was a forerunner of the First Advent (the public appearance of the Messiah).
 >p. 87 Vol. 2 Prop 113 Obs. 6
 
+>We conclude with this declaration: Whatever agencies God may employ in this conversion, and whatever wonders of an astounding nature He may vouchsafe to manifest, *He immeasurably exalts Himself and forever enshrines Himself* in the love of a recovered people: for “*Who is a God like unto Thee, that pardoneth iniquity, and passeth by the transgression of the remnant of His heritage? He retaineth not His anger forever, because He delighteth in mercy. he will turn again, He will have compassion upon us; He will subdue our iniquities; and Thou wilt cast all their sins into the depths of the sea. Thou wilt perform the truth to Jacob and the mercy to Abraham, which Thou hath sworn unto our Fathers from the days of old. Amen*"
+>p. 88 Vol. 2 Prop 113 Obs. 6
+
+
+
 
 
