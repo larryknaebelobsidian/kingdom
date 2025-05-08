@@ -33,23 +33,22 @@ tags:
 >Obs. 2. It is requisite here to meet another objection urged against our view, on the ground that the predictions of restoration were met by the return from Babylon.
 >p. 59 Vol. 2 Prop 112 Obs. 2
 
->... the promises of restoration were never realized in the return from Babylon; 
->1. not in the King that was to reign over them, not in the magnitude of the return, 
->2. not in the dwelling safely, 
->3. removal of sorrow, 
->4. imparting of prosperity, etc., 
->5. not in the union of the two Kingdoms, or 
->6. in the protection from enemies and 
->7. perpetuity of the Kingdom, or 
->8. in a manifestation of the Branch, or 
->9. in repentance of the nation occurring as described, or 
->10. in an engrafting of Gentiles, or 
->11. in a gathering of nations against Jerusalem and a sudden deliverance, or 
->12. in a fearful overthrow of nations and corresponding exaltation of the nation, or 
->13. in a removal from nations so far off that they then did not know them (Zech. 7:14), etc.
+>... the promises of restoration were *never* realized in the return from Babylon; 
+>1. not in *the King* that was to reign over them, 
+>2. not in *the magnitude* of the return, 
+>3. not in the dwelling *safely*, removal of *sorrow*, imparting of *prosperity*, etc., 
+>4. not in the *union* of the two Kingdoms, or 
+>5. in the *protection* from enemies and 
+>6. *perpetuity* of the Kingdom, or 
+>7. in *a manifestation* of the Branch, or 
+>8. in *repentance* of the nation occurring as described, or 
+>9. in *an engrafting* of Gentiles, or 
+>10. in *a gathering* of nations against Jerusalem and a sudden deliverance, or 
+>11. in *a fearful overthrow* of nations and corresponding exaltation of the nation, or 
+>12. in *a removal* from nations so far off that they then did not know them (Zech. 7:14), etc.
 >p. 59-60 Vol. 2 Prop 112 Obs. 2 reformatted
 
->It is amazing that believers in Holy Writ can overlook the fact that not only prophets before, but prophets at and *after, the return from Babylon* predict *the same glorious restoration*. restoration. Let any one e.g. compare Zechariah, Haggai, Malachi, with previous prophets and a restoration *very different* from the one experienced is seen to be foretold.
+>It is amazing that believers in Holy Writ can overlook the fact that not only prophets before, but prophets at and *after, the return from Babylon* predict *the same glorious restoration*. Let any one e.g. compare Zechariah, Haggai, Malachi, with previous prophets and a restoration *very different* from the one experienced is seen to be foretold.
 >p. 60 Vol. 2 Prop 112 Obs. 2
 #### Zech. 12:1-14
 >(1) the multitude *gathered against* Jerusalem besieging it; 
@@ -113,7 +112,7 @@ p. 62-63 Vol. 2 Prop 112 Obs. 4
 >(17) the land *once desolate* to become like the Garden of Eden; 
 >(18) *the heathen* that are left shall acknowledge the Lord’s power when this is done; 
 >(19) *the house of Israel* shall be increased with flocks of men and the waste cities with the same.
->p. 63 Vol. 2 Prop 112 Obs. 4
+>p. 63 Vol. 2 Prop 112 Obs. 4 reformatted
 
 #### Ezek. 37
 >After describing the resurrection which (as shown Prop. 126) is also related to this period, he tells us 
@@ -128,7 +127,7 @@ p. 62-63 Vol. 2 Prop 112 Obs. 4
 >(9) that God’s sanctuary shall be in the midst of them *forever*; 
 >(10) that their situation shall be *as in* Rev. 21:3; 
 >(11) that the Gentiles shall acknowledge the great power of God when this is accomplished.
->p. 63 Vol. 2 Prop 112 Obs. 4
+>p. 63 Vol. 2 Prop 112 Obs. 4 reformatted
 
 #### Jer. 32:37-44
 
