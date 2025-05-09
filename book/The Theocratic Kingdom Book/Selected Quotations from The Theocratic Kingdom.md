@@ -128,7 +128,7 @@ Proposition 112. The Kingdom, if established as predicted, demands the national 
 Proposition 113. The connection of this Kingdom with Jewish restoration necessitates the realization of their predicted repentance and conversion.   
 Proposition 114. This Kingdom, being identified with the elect Jewish nation, its establishment at the restoration embraces the supremacy of that nation over the nations of the earth.   
 Proposition 115. The Kingdom is not established without a period of violence or war.   
-Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, in, 123, etc.).   
+Proposition 116. This Kingdom, is a visible, external one, here on the earth, taking the place of earthly kingdoms (comp. Props. 122, 111, 123, etc.).   
 Proposition 117. The Kingdom of God re-established will form a divinely appointed and visibly manifested Theocracy.   
 Proposition 118. This view of the Kingdom is most forcibly sustained by the figure of the Barren Woman.   
 Proposition 119. The Kingdom of God in the Millennial descriptions is represented as restoring all the forfeited blessings.   
