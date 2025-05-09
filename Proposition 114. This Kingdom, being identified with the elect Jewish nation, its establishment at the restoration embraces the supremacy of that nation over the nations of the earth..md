@@ -53,7 +53,7 @@ tags:
 >(2) This work *is of God*, and will be witnessed by the nations as a confirmation of His power, etc., Ezek. 17:22-24, Isa. 52:1-10, etc. 
 >(3) Jerusalem and Palestine (as the latter shall be extended according to promise) are most admirably situated (geographically) for the exercise of such supremacy. See Townsend’s *Arrangement*, Introd. p. 68-9. 
 >(4) The promise to Abraham is only *then* literally verified, “I will make of thee *a great* nation.” For David and Solomon’s reign (aside from its Theocratic arrangement), plays but a small part at the side of the great empires of history. God’s Promise unerringly points to the future; and as His promises, long delayed, *are sure*, the greatness of the nation, as the prophets predict, will be *more commensurate* with the greatness of the Being who has promised. 
->(5) The promise made to Abraham of being “*heir of the world*” is then realized, in the acknowledged acknowledged pre-eminency of his seed. 
+>(5) The promise made to Abraham of being “*heir of the world*” is then realized, in the acknowledged pre-eminency of his seed. 
 >(6) How wonderful will then the history of this people appear, and how astonishing that the Divine Purpose so plainly revealed should have been, by lack of faith and with the notion of exalting the meaning of Scripture itself, so persistently overlooked by the multitude. 
 >(7) To occupy this position of supremacy, it is necessary that the division into two kingdoms, once existing, should be perpetually abolished. This is fully predicted, as e.g. Ezek. 37:21, 22, etc. 
 >(8) The folly of being indifferent to, or totally ignoring, the predictions on this subject, just as if they were not given. 
