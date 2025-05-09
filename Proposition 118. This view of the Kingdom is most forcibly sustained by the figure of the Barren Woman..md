@@ -10,6 +10,17 @@ tags:
 
 ### Props Mentioned
 114 153 154 156 161 163 166 169 
+
+>Turning to Isa. 54:1-17, the exact order of events advocated by us is distinctly announced as follows: 
+  (1) the elect condition of the Jewish nation and union with God in Theocratic relationship; 
+  (2) the rebellion of this nation and temporary refection of the nation; 
+  (3) during this period of rejection another people is to be gathered out to which God will be specially united in the same relationship; 
+  (4) that when this gathered people enter into this relationship God will again restore the Jewish nation to its original position in virtue’ of His former union with it; 
+  (5) and the results of such a restoration to favor shall be of the highest importance, etc., to that nation.
+  p. 130 Vol. 2 Prop. 118 - reformatted
+
+>...men have attached to it the most inconsistent and contradictory interpretations.
+  p. 130 Vol. 2 Prop. 118 Obs. 1
 ### "Barren woman"
 >Who is this “*barren woman*”? The definite answer is given by the entire scope and order of the prediction. For the present, we reply: It is the Jewish nation as the covenanted elect nation, or, if the reader chooses, Jerusalem as the type of the nation, its chief representative, the nation itself being thus designated.
 >p. 131 Vol. 2 Prop. 118 Obs. 2
@@ -31,7 +42,7 @@ tags:
 >If we open the Bible and read *what follows* the rejection of the Jewish nation and its miserable fall, we find that God *during this period of abandonment* proceeds to raise up *a seed* unto Abraham of those, out of all nations, who fear and obey God. (See Prop, on election and continued election.) It is this seed, this nation thus gathered to whom the Kingdom in a high, *special sense* is to be given—i.e. they also will *be married*, i.e., *enter into this Theocratical relationship with God*. This seed is said in the New Test, in its aggregate (not before) to form “*the chaste virgin*” “*the Bride*” that is to be married *just previous* to the ushering in of the Millennial age at the Sec. Advent of Christ, 2 Cor. 11:2; Eph. 5:27; Rev. 19:7, 9. This too, of course, as intimated in the text, and as necessarily included in our argument, occurs *here on earth previous* to the restoration of the Jews.
 >p. 131-132 Vol. 2 Prop. 118 Obs. 3
 
-Personal note:  I am not convinced of the accuracy of Peter's above conclusions about the "married wife/woman".  The "married woman" is a linguistic contrast used to emphasize the condition of the "barren woman".  Any attempt to try to identify the married woman seems to take the use of the language too far.
+Personal note:  I am not convinced of the accuracy of Peter's above conclusions about the "married wife/woman" as it occurs in Isa. 54.  The "married woman" in Isa. 54 is a linguistic contrast used to emphasize the future blessed condition of the "barren woman".  Any attempt to try to identify the married woman in Isa. 54 seems to take the use of the language too far.
 
 
 
