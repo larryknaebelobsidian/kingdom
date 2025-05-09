@@ -98,7 +98,7 @@ Ps. 149:6, 7, 8, 9?
 >... *true wisdom* ought to indicate a persistent refusal to all solicitations to engage against the ancient city and people of God, and to suggest *a ready compliance* with all the demands that in that day may be made by *the Mighty One* who is to rule as the Father's beloved Theocratic King.
 >p. 113 Vol 2 Prop. 115 Obs. 10
 ### Caution against peace congresses
->Obs. 11. This again reminds us of the extreme position adopted by peace congresses, etc. A portion of the Scripture, isolated or tom from its connection, is *alone presented* in their pleas, while lengthy predictions, which show that war exists down and at this period, *are ignored* as if they did not exist. The general analogy of the Word tells us that it is only *after* (not before) this terrible conflict of, and with, the nations, that war snail be banished under the then peaceful and triumphant reign of David’s Son.
+>Obs. 11. This again reminds us of the extreme position adopted by peace congresses, etc. A portion of the Scripture, isolated or torn from its connection, is *alone presented* in their pleas, while lengthy predictions, which show that war exists down and at this period, *are ignored* as if they did not exist. The general analogy of the Word tells us that it is only *after* (not before) this terrible conflict of, and with, the nations, that war shall be banished under the then peaceful and triumphant reign of David’s Son.
 >p. 113 Vol 2 Prop. 115 Obs. 11
 
 After this war is concluded then will be realized:
