@@ -29,7 +29,7 @@ tags:
 >(7) *to relieve* creation, Rom. 8:19-21, etc.; 
 >(8) in brief, to introduce the *numerous blessings* which our argument evolves.
 >It is certainly sufficient, in order to prevent our accepting such contradictory utterances, to know that He comes for Salvation; and that that Coming is represented to be the most efficacious in removing sin and overcoming Satan.
->p. 154 Vol. 2 Prop. 120 Obs. 3
+>p. 154 Vol. 2 Prop. 120 Obs. 3 - reformatted
 ### The blessed hope
 >Obs. 4. On the other hand, it is refreshing to see even some of our most unrelenting opponents acknowledge the force of Scripture representation to the extent that they also make the Sec. Advent the most desirable object of hope, ascribing to it, as the Spirit does, divine purposes of Salvation.
 >...
