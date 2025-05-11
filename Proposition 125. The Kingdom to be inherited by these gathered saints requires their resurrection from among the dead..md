@@ -56,7 +56,7 @@ tags:
 >	(14) In *the effects* of Paul’s preaching the doctrine on Athenians, etc., Acts 17:32; 26:6, 8, etc. 
 >	(15) In the fact that if the body is not also redeemed, restored to its forfeited condition, then the Redemptive process is *in so far incomplete*. 
 >	Such considerations, with especially the deeper and more significant one that the Davidic-Theocratic arrangement *necessarily by covenant insists upon it*, are amply sufficient to cause us to retain the old form of doctrine.
->p. 228-229 Vol 2 Prop. 125 Obs. 3
+>p. 228-229 Vol 2 Prop. 125 Obs. 3 - reformatted
 
 >The "*changing of our vile bodies*." the "*quickening of our mortal bodies*," -- *completed redemption* (comp. remarks, Art. 1, *Luth. Quart. Review*, July, 1874) requiring the raising up of the body, etc. , ought certainly to influence every one who receives the authority of the Word to believe in a corporeal resurrection.  It is most reasonable to believe that the body which suffers by the fall, which has been honored by the Spirit, which has honored God by its labors and toils, will be saved as well as the soul, and will be honored by God in a glorious manner.
 >p. 229 Vol 2 Prop. 125 Obs. 3 note
