@@ -22,7 +22,7 @@ tags:
 >5. as Solomon stated in his prayer (1 Kings 8:51, 53), this nation is “*Thy people and Thine inheritance*,” “for Thou didst separate them from among all the people of the earth *to be Thine inheritance*, Thou spakest unto Moses.” Hence they are called 
 >6. “*the tribes of Thine inheritance*” (Isa. 63:17), 
 >7. “*the mountain of Thine inheritance*” (Ex. 15:17), 
->8. “*a people of inheritance*” inheritance” (Deut. 4:20), 
+>8. “*a people of inheritance*” (Deut. 4:20), 
 >9. “*Thy people and Thine inheritance*” (Deut. 9:26, 29).
 >p. 200-201 Vol. 2 Prop. 122 Obs. 2 reformatted
 
