@@ -76,7 +76,7 @@ the prince that shall come
 >The whore is *not* the Antichrist, since she comes to her doom when this Antichrist is at the height of his power,  ...
 >p. 684 Vol. 2 Prop. 161 Obs. 5
 
->The prediction of Dan. most certainly impresses the reader with the idea that this horn exists down *to* the coming of the Ancient of Days, *to* the personal Advent itself, *thus corresponding*—whatever inchoate fulfilment may be attributed to it—*with the Antichrist destroyed at Christ’s Sec. Advent and not with the whore previously previously destroyed by the Beast and ten horns*.
+>The prediction of Dan. most certainly impresses the reader with the idea that this horn exists down *to* the coming of the Ancient of Days, *to* the personal Advent itself, *thus corresponding*—whatever inchoate fulfilment may be attributed to it—*with the Antichrist destroyed at Christ’s Sec. Advent and not with the whore previously destroyed by the Beast and ten horns*.
 >p. 684 Vol. 2 Prop. 161 Obs. 5
 
 >That class of interpreters who make the first beast of Rev. 13, the Antichrist, in its last head, are to be commended as correct, when this made aside or separate from the Papacy.

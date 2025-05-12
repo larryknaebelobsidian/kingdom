@@ -45,7 +45,7 @@ tags:
 >The key lies in this simple fact, viz., that the intermediate state (whatever it may be) *has no relationship whatever to the fulfilment of covenant and prophecy pertaining to Redemption*, and consequently is not portrayed.
 >p. 397-398 Vol. 2 Prop. 136 Obs. 5
 ### The believers hope is in the Second Advent
->The Early Church doctrine, established under the direct auspices of the apostles, apostles, and the elders appointed by them, was, over against Gnosticism and other errors, *universally* held as follows: that the hope of the believer was in the Sec. Advent (expected speedy), at which period *the inheriting* of the Kingdom, *the crowning and rewarding* was located. In the intermediate state it was held that there was *a non-fulfilment* of covenant promises, the realization of which was allied *with the Sec. Coming of Jesus*.
+>The Early Church doctrine, established under the direct auspices of the apostles, and the elders appointed by them, was, over against Gnosticism and other errors, *universally* held as follows: that the hope of the believer was in the Sec. Advent (expected speedy), at which period *the inheriting* of the Kingdom, *the crowning and rewarding* was located. In the intermediate state it was held that there was *a non-fulfilment* of covenant promises, the realization of which was allied *with the Sec. Coming of Jesus*.
 >p. 398 Vol. 2 Prop. 136 Obs. 6
 ### Raised at the coming of the Messiah
 >The Jewish view must he considered by the student. This, as stated by numerous authorities, was decided, viz., that the Patriarchs and their deceased descendants, that all who had died true Israelites, were *only to be raised to glory and covenanted promises* at the Coming of the Messiah.
