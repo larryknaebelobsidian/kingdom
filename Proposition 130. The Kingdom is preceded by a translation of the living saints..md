@@ -80,9 +80,9 @@ Jesus coming "for or in behalf" of His saints (1 Thess. 3:14-17; 1 Cor. 15:51,52
 ### One taken, one left
 >Obs. 3. We now come to a passage which directly teaches a translation, viz., Luke 17:34-37, “*I tell you, in that night there shall be two men in one bed; the one shall be taken and the other left. Two women shall be grinding together; the one shall be taken and the other left And they answered and said unto Him, Where, Lord? And He said unto them: Wheresoever the body is, thither will the eagles be gathered together*” (see Matt. 24:28).
 >p. 319 Vol 2 Prop. 130  Obs. 3 
-### Vultures
+### Eagles/Vultures
 p. 319-322 Vol 2 Prop. 130  Obs. 3 
-I tell you, on that night there will be two in one bed; one will be taken and the other will be left.35 There will be two women grinding _grain_ at the same place; one will be taken and the other will be left.36 [Two men will be in the field; one will be taken and the other will be left.”]37 And answering they said to Him, “Where, Lord?” And He said to them, “Where the body _is,_ there also the vultures will be gathered.”
+I tell you, on that night there will be two in one bed; one will be taken and the other will be left. 35 There will be two women grinding _grain_ at the same place; one will be taken and the other will be left. 36 \[Two men will be in the field; one will be taken and the other will be left.”] 37 And answering they said to Him, “Where, Lord?” And He said to them, “Where the body _is,_ there also the vultures will be gathered.”
 Luke 17:34-37 - LSB
 
 eagles/vultures - saints
@@ -135,7 +135,7 @@ Peters believes there will be 2 translations: one before ("the first-fruits") th
 p. 329 Vol 2 Prop. 130 Obs. 9
 
 ### Why a distinction between "first fruits" and "harvest"
->Obs. 11. The question may be asked, Why such a distinction? The reply is, because such is God’s pleasure in the matter. It is not for us to assert with any degree of positiveness *who* shall thus be favored with a translation, and escape the great tribulation. We can only point out the general affirmation (as e.g. “them that honor me, I will honor,” etc.) upon the subject, and leave each one draw his own conclusions. There is a difference between *mere* salvation and *the special* honor, station, dignity, etc., that God *in addition& may be pleased to bestow upon certain ones. There were other pious ones when Enoch and Elijah were translated, and yet *they only* were favored; and we doubt not that *many* who ultimately will be saved with great glory (because of their faithful witnessing during the last severe trial) will *be left* at this translation.
+>Obs. 11. The question may be asked, Why such a distinction? The reply is, because such is God’s pleasure in the matter. It is not for us to assert with any degree of positiveness *who* shall thus be favored with a translation, and escape the great tribulation. We can only point out the general affirmation (as e.g. “them that honor me, I will honor,” etc.) upon the subject, and leave each one draw his own conclusions. There is a difference between *mere* salvation and *the special* honor, station, dignity, etc., that God *in addition* may be pleased to bestow upon certain ones. There were other pious ones when Enoch and Elijah were translated, and yet *they only* were favored; and we doubt not that *many* who ultimately will be saved with great glory (because of their faithful witnessing during the last severe trial) will *be left* at this translation.
 >p. 332 Vol 2 Prop. 130 Obs. 11
 ### Only the select few who watch and pray always
 >... Dr. Seiss, with whom many concur, is undoubtedly correct in saying: “I have no idea that a very large portion of mankind, or even of the professing Church, will be thus taken. The first translation, if I may so speak, will embrace *only the select few* who watch and pray always,” etc.
