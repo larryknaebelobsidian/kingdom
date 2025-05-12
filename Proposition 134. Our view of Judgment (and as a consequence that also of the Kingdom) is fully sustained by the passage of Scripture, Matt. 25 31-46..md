@@ -43,7 +43,7 @@ tags:
 >The wicked are represented as cast into “a fire.” Now *precisely this* will occur at *the Pre-Mill. Advent* of Jesus. The reader is urged *to compare* e.g. on this point, Rev. 19:20; Dan. 7:10,11; Isa. 66:15, 16, 24; Mal. 4:1-3, etc. Fire, as indicating the vengeance of God, is frequently predicted as belonging to the introduction of the Kingdom or the Mill, blessedness.
 >p. 377 Vol. 2 Prop. 134 Obs. 2 Item 16.
 
->The saints that come with Jesus, as other passages show, *participate* in this judgment, judgment, for they have obtained *a priority* of rulership or Judgeship, and the intended dealing of King Jesus with the nations, as preparatory to the establishment of His Kingdom, is thus briefly and powerfully stated in the line of thought suggested by the manner in which rulership is secured in it.
+>The saints that come with Jesus, as other passages show, *participate* in this judgment, for they have obtained *a priority* of rulership or Judgeship, and the intended dealing of King Jesus with the nations, as preparatory to the establishment of His Kingdom, is thus briefly and powerfully stated in the line of thought suggested by the manner in which rulership is secured in it.
 >p. 378 Vol. 2 Prop. 134 Obs. 2
 
 >There is no intimation that either former tares or wheat are raised up to be mixed and then separated, while the burning of existing “tares’ and the elevation of then living “wheat” *coincides* with abundant Pre-Mill, prophecy. The consistency of our doctrine is seen in this: that *after* the one thousand years are ended the dead tares—“the rest of the dead,” who “lived not again until the thousand years were finished,” are *also* raised up and their destiny awarded.
