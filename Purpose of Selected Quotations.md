@@ -4,7 +4,7 @@ To call attention to this forgotten 141 year old book (1884) whose topic is God'
 
 To encourage you to buy the three volume book set (as I have done) and read the full work yourself. I have no financial gain in this. "Selected Quotations" is merely some of my personally selected quotations from Peters' 3-volume, 2100 page book.
 
-To provide a free and handy electronic subset of Peters' work that supports:
+To provide a free and convenient electronic subset of Peters' work that supports:
 - searching the selected quotations (using your epub reader)
 - providing an electronic list of all 206 propositions in the "**List of Propositions**"
 - providing a **Props Mentioned** section in each proposition to ease further research of related propositions
