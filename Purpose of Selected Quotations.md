@@ -1,18 +1,14 @@
 # Purpose of Selected Quotations
 
-To call attention to this forgotten 140 year old book (1884) whose topic is God's magnficent **Kingdom, yet to come**, a very major theme of the Bible.
+I heard about "The Theocratic Kingdom" book by George N. H. Peters (originally published 1884) earlier in my life but never looked into it.  I was told it was perhaps the largest work attempting to show that the early church believed in a literal 1000 year kingdom that would be set up here on this earth when Jesus returned from heaven.  This is the doctrine known as Premillenialism or Chiliasm.  This is in opposition to the views called Amillenialism and Postmillenialism.
 
-To encourage you to buy the three volume book set (as I have done) and read the full work yourself. I have no financial gain in this. "Selected Quotations" is merely some of my personally selected quotations from Peters' 3-volume, 2100 page book. 
+After retirement, I took the time to buy Peters' 2100 page 3-volume book and began to read and enjoy it.  As I read it I marked it up (as I usually do when I read a book) and then considered that it might be more beneficial to take my own notes electronically.  I chose to use a free tool called Obsidian.  Obsidian also has the ability to export notes in other formats (like epub and pdf). I wanted to be able to review my notes on my smart phone using the freely available epub readers. 
 
-To provide a free and convenient electronic subset of Peters' work that I use to help me:
-- search the selected quotations (using an epub reader, I use my epub reader on my phone and computer)
-- review the list of all 206 propositions of Peters book in the "**List of Propositions**"
-- with a new **Props Mentioned** section in each proposition to ease further research of related propositions
-- with **pericopes** for most observations to enhance thought organization and recall. NOTE: These pericopes are mainly phrases taken directly from Peters' text.
-- review an outline view of each proposition's title and pericopes only (using the epub reader's **Table of Contents** view). This is also one way to navigate the content.
-- "Selected Quotations" has also been generated in PDF.
+I encourage you to buy Peters' three volume book set and read the full work yourself. 
 
-To glorify God -- Father, Son and Holy Spirit
+These are my notes but they are mostly direct quotations from Peters' work.
+
+To the glory of God -- Father, Son and Holy Spirit
 
 Come, Lord Jesus
 Rev. 22:20
