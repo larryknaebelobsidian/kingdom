@@ -6,7 +6,7 @@ After retirement, I took the time to buy Peters' 2100 page 3-volume book and beg
 
 I encourage you to buy Peters' three volume book set and read the full work yourself. 
 
-These are my notes but they are mostly direct quotations from Peters' work. 
+These are my notes and my selected quotations but they are mostly direct quotations from Peters' work. 
 Direct quotations are shown as indented blocks. I have attempted to include precise references to all quotations so you can find them in the printed book for further research.
 
 To the glory of God -- Father, Son and Holy Spirit
