@@ -48,7 +48,7 @@ Obs. 5
 >Under the influence of the Church-Kingdom theory, this Scripture has received the most varied interpretations.
 >p. 563 Vol. 2 Prop. 153 Obs. 5
 
->There are only two interpretations which reconcile, fully, this passage with the I peculiar phraseology contained in it, and, especially, without doing violence to the implied *personal* Coming.
+>There are only two interpretations which reconcile, fully, this passage with the peculiar phraseology contained in it, and, especially, without doing violence to the implied *personal* Coming.
 >p. 564 Vol. 2 Prop. 153 Obs. 5
 
 >... the Son of man alludes to His triumphal entry into Jerusalem,...
