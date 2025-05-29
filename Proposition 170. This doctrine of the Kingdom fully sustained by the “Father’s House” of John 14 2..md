@@ -56,7 +56,7 @@ Obs. 3
 
 >... these disciples are encouraged with the hope of being *specially near* to Him *in the very place* of royal manifestation, which is explained in other passages as sitting upon thrones and judging the twelve tribes of Israel, agreeably to the Theocratic ordering.
 >p. 57 Vol. 3 Prop. 170 Obs. 3
-### If it were no so, I would have told you
+### If it were not so, I would have told you
 Obs. 4
 >... “*If it were not so*," i.e. if you believed wrong—if your faith and hope were erroneous, etc.
 >p. 58 Vol. 3 Prop. 170 Obs. 4
