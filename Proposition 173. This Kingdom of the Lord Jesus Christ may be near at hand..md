@@ -35,7 +35,7 @@ tags:
 >Hence it is, that this Coming—this Advent embracing from its first stage to the last a distinctive interval of time—is represented as one that may happen *at any time*; one that we are to watch *for constantly*; one that we are to look for without placing *anything intervening* (to be yet fulfilled) between it and the present, seeing that the stage or manifestation (to saints) at its beginning is never included in dates, but always enshrouded in mystery; always represented as coming *unknown* to all men and to the angels. From this it follows, not knowing the length of this interval, and not having definite events (for those are embraced in this interval) to guide us into a recognition of the time when the Advent really begins, that such a Coming and its resultant (the Kingdom) *may be near*, so near that we dare not positively assert that it shall be delayed a single day, week, year, etc.
 >p. 97 Vol. 3 Prop. 173 Obs. 4
 
-### Intentional unanimity to encourage watchfulness
+### Intentional obscurity to encourage watchfulness
 >We believe that this very diversity—this inability by a unanimity to fix *the exact* closing of the sixth Milliad—the introduction of those chasms, and the obscurity of certain dates, is *intentional* in order to place us in the commanded position of *watching*.
 >p. 98 Vol. 3 Prop. 173 Obs. 5
 
