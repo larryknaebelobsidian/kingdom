@@ -33,12 +33,12 @@ Observation 3 (p. 114-160) discusses 38 signs.
 12. Recovering strength of the Papacy
 13. Confidence in the flesh (increase in Humanism)
 14. A practical unbelief in the Word inducing a spirit of worldliness
-15. Earnest desire for union upon a truly scriptural basis
+15. Earnest desire of some for union upon a truly scriptural basis
 16. Widespread corruption
 17. Increase in 'doctrines of demons' and false spiritualism (1 Tim. 4:1-4)
 18. 2 Tim. 3:1-9
 19. Continued unbelief of the Jewish nation
-20. Restoration of a portion of the Jews to Jerusalem/Hold Land
+20. Restoration of a portion of the Jews to Jerusalem/Holy Land
 21. Weakening of the Ottoman power
 22. Roman Empire in disintegrated/divided condition
 23. Political scene
