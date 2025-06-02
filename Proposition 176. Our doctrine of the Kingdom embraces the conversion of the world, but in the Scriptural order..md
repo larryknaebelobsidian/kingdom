@@ -24,6 +24,7 @@ tags:
 >When the Theocratic ordering is in full sway, then this will be forcibly realized. To this period belong such passages as the following: Ps. 22:27,28, "*All the ends of the world shall remember and turn unto the Lord; and all the Kindreds of the nations shall worship before thee. For the Kingdom is the Lord's; and He is the Governor among the nations.*" Ps. 9:1-8; Ps. 21:7-13, etc.
 >p. 215 Vol. 3 Prop. 176 Obs. 6 note
 ### Psalm 9:1-8
+א ALEPH
 I will give thanks to Yahweh with all my heart;
 I will recount all Your wondrous deeds.
 א ALEPH
