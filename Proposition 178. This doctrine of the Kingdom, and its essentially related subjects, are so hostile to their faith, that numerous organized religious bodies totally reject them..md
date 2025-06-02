@@ -30,10 +30,10 @@ tags:
 >p. 253 Vol. 3 Prop. 178 Obs. 7 
 ### Our doctrine dismissed by some who are pious and useful laborers
 >Obs. 8. The faith of multitudes is influenced by that expressed by pious and useful laborers of the Church, and when our doctrine—which evidently has never been studied, either in its historical or scriptural aspects—is curtly dismissed by them as unworthy of credence or attention, the reputation, the godly life of such sways many to treat it with indifference and even with contempt.
->p. 254 Vol. 3 Prop. 178 Obs. 78
+>p. 254 Vol. 3 Prop. 178 Obs. 8
 ### Church literature does not teach
 >Indeed, it is a fact that many are so familiarized to such a “Church Literature,” that they are utterly unacquainted with our doctrines, and the scriptural reasons assigned in their behalf.
->p. 254 Vol. 3 Prop. 178 Obs. 9
+>p. 255 Vol. 3 Prop. 178 Obs. 9
 ### Delay of His return sinks some into apathy and unbelief
 >... these expectations and data passed by without His return, and many, because of the non-fulfilment, remain sunken in a state of apathy and unbelief—just as if the event depended on man’s estimate or measuring of time, and not on God’s own appointment.
 >p. 254 Vol. 3 Prop. 178 Obs. 10
