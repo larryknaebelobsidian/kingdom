@@ -18,7 +18,7 @@ tags:
 >Neander tells us (*His. Ch*., vol. 1, p. 129), “*such an anticipation was foreign to the thoughts of the older teachers of the Church*. They could conceive of the Pagan state in no other relation than one of constant hostility to Christianity, and *expected the triumph of the Church only as the result of a supernatural interposition, at the Second Coming of Christ*.”
 >p. 171 Vol. 3 Prop. 175 Obs. 1
 
->Let the reader carefully notice a feature (that is overlooked even hymen of ability) which shows *how deeply rooted* some portions of the early Church doctrine remained. However much the Origenistic and Augustinian views (which allied the Millennial predictions with this dispensation, commencing with the Advent of Christ or the day of Pentecost, etc.) prevailed and the prophetic delineations of the Kingdom in its glory were— especially after Constantine’s conversion—applied to the Church as her predicted triumph and dominion, yet even then the adherents of such opinions never advocated such a conversion of the world that all evil would cease, etc. For we find in their writings the most abundant evidence that they anticipated more or less evil down to the Advent, the culmination of Anti-christian power before the Advent, etc., thus retaining in a great measure the early characteristics.
+>Let the reader carefully notice a feature (that is overlooked even by men of ability) which shows *how deeply rooted* some portions of the early Church doctrine remained. However much the Origenistic and Augustinian views (which allied the Millennial predictions with this dispensation, commencing with the Advent of Christ or the day of Pentecost, etc.) prevailed and the prophetic delineations of the Kingdom in its glory were— especially after Constantine’s conversion—applied to the Church as her predicted triumph and dominion, yet even then the adherents of such opinions never advocated such a conversion of the world that all evil would cease, etc. For we find in their writings the most abundant evidence that they anticipated more or less evil down to the Advent, the culmination of Anti-christian power before the Advent, etc., thus retaining in a great measure the early characteristics.
 >p. 173 Vol. 3 Prop. 175 Obs. 2
 ### Reformers refused to believe in a future millenium prior to the Second Advent of Christ
 >The Reformers and their immediate successors still more or less under the influence of the Augustinian method of applying the prophecies, *refused to believe in a Millennium still future prior to the Advent of Jesus*. However contradictory they may have been in some of their expositions of Scripture, *one thing is certain*, from the positive statements made and opinions entertained at the close of life, that they could give no encouragement to a triumph and deliverance of the Church *previous* to the Advent of the Lord Jesus Christ.
@@ -30,7 +30,8 @@ tags:
 >The conversion even of all nations *could not restore* the Kingdom.
 >p. 181 Vol. 3 Prop. 175 Obs. 5
 
-The church is "a preparatory stage" to the ushering in of the glorious Messianic Kingdom
+>The advocates of such a theory forget how clearly and distinctly *the design* of the present dispensation, Props. 86 and 87, is pointed out in Scripture, representing the Church as *a preparatory stage*, Prop. 88, to the ushering in of the glorious Messianic Kingdom.
+  p. 181 Vol. 3 Prop. 175 Obs. 5
 
 >It is remarkable that for the complete success of our argument *not one link*, essential to its perfection, is missing in the Scriptures.
 >p. 181 Vol. 3 Prop. 175 Obs. 5
