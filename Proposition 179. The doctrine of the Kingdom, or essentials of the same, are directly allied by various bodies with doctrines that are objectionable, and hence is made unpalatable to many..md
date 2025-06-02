@@ -32,7 +32,7 @@ tags:
 >They assert the following: that the Seventh Day alone was instituted as a Sabbath; that this was incorporated in the ten commandments; that these commandments were never abrogated, and hence are binding upon us; that Jesus only kept the Seventh Day, and we are exhorted to follow His example; that unless we keep the ten commandments as given we have no right to enter the New Jerusalem; that the New Test, contains no passage affirming a change to be made from the seventh day to the first; and that the change from the seventh day to the first is due to the Papacy.
 >p. 264 Vol. 3 Prop. 179 Obs. 2
 ### Millerism
->Obs. 3. “Millerism” is most frequently associated with Pre-Millenarian-ism, when the simple truth is this: it has more points of association in belief with Post-Millenarianism than with Chiliasm.
+>Obs. 3. “Millerism” is most frequently associated with Pre-Millenarianism, when the simple truth is this: it has more points of association in belief with Post-Millenarianism than with Chiliasm.
 >p. 267 Vol. 3 Prop. 179 Obs. 3
 
 >The only points of contact between Millerism and Pre-Millenarianism are the nearness of the Sec. Advent, and the duty of constant watchfulness.
