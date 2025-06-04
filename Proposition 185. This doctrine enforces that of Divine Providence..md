@@ -32,7 +32,7 @@ tags:
 >5. the removal from Egypt; 
 >6. the establishment of a Theocratic Kingdom; 
 >7. the varied transactions of that Kingdom; 
->8. the care of good and ‘punishment of wicked kings; 
+>8. the care of good and punishment of wicked kings; 
 >9. the raising up of prophets; 
 >10. the removal of the Theocracy; 
 >11. the provisions made for its re-establishment; 
