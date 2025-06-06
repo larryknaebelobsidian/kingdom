@@ -15,14 +15,14 @@ tags:
 >p. 388 Vol. 3 Prop. 192
 
 ### Simple promises are clarified
-#### Matt. 7:33
+#### Matt. 6:33
+Note: Book has a typo here. Book shows 7:33 but then quotes 6:33.
+
+6:33 But seek first His kingdom and His righteousness, and all these things will be added to you. (LSB)
 #### Psalm 23
 
 >Thus a variety of promises receive a deeper significancy and assurance of perfect fulfilment when considered as standing related to this Kingdom.
 >p. 390 Vol. 3 Prop. 192 Obs. 1
-#### John 14:12-14
-
-#### John 16:23-24
 ### Grand conception and power becomes noticeable
 >Obs. 2. An aptness of description, grand in conception and power, is noticeable in various predictions, provided *the time* of fulfilment is carefully observed.
 >p. 391 Vol. 3 Prop. 192 Obs. 2
@@ -40,7 +40,7 @@ tags:
 ### Balaam's prophecy
 >Obs. 5. Balaam’s prophecy,
 >. . .
->it was *eminently fitting* for one outside of the nation to predict the irresistible power of the Theocracy and the certain overthrow of its enemies.
+>it was *eminently fitting* for one outside of the nation to predict the irresistible power of the Theocracy and the certain overthrow of its enemies. Hence the repetition of it, enforces the idea of its certainty to conquer—however long delayed—all opposition. The remarkable part of the prophecy is, that, aside from the general affirmation bearing upon this point, it even passes from the present—as if foreseeing the downfall of the Theocracy and the miserable condition of the nation for centuries, and yet not allowing the mouth of an enemy to proclaim it—*to the far distant future*, and enters into details respecting the triumphant Theocracy *then established* with this same elect people who then shall overcome a still more formidable confederation, etc. It will richly repay us to direct our attention to portions of the prophecy illustrative of this passing from the present to the future, —from the existing Theocratic ordering *to that of the future one* under the Messiah—for it will confirm the arguments adduced by Kurtz, Hengstenberg, Newton, and many others, in favor of its *Messianic character*.
 >p. 401 Vol. 3 Prop. 192 Obs. 5
 
 >Balaam’s prediction, coming when *the first confederation* arises against the Theocracy, directs the eye of faith onward to the time when *the last great confederation* shall be broken by the Theocratic King.
