@@ -32,4 +32,4 @@ tags:
 >p. 446-447 Vol. 3 Prop. 195 Obs. 4
 ### Constitution of the Theocracy evidences a union
 >Obs. 5. This union, however, with other worlds, is evidenced by the very constitution of the Theocracy itself as realized and exhibited in the person of the Theocratic King and His associated Rulers.
->p. 447 Vol. 3 Prop. 195 Obs. 3
+>p. 447 Vol. 3 Prop. 195 Obs. 5
