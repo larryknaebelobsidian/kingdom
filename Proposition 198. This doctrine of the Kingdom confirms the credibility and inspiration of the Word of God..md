@@ -54,7 +54,7 @@ tags:
 >(2) that in virtue of this Kingdom being the End proposed in the Redemptive process, all other announcements, facts, etc., must be regarded in their relationship
 >p. 475 Vol. 3 Prop. 198 Obs. 4 slightly reformatted
 
->... let it be traced in its initiatory establishment, its overthrow, its promised restoration, its predicted glory, etc., and with all this before the mind, lot reason carefully examine its design, its merits, its adaptability to secure the deliverance of man, the race, and the world, and reason must confess that if carried out according to the pre-determined programme laid down in the Word, it will *fully and most perfectly* meet the wants and the desires of humanity.
+>... let it be traced in its initiatory establishment, its overthrow, its promised restoration, its predicted glory, etc., and with all this before the mind, let reason carefully examine its design, its merits, its adaptability to secure the deliverance of man, the race, and the world, and reason must confess that if carried out according to the pre-determined programme laid down in the Word, it will *fully and most perfectly* meet the wants and the desires of humanity.
 >p. 475 Vol. 3 Prop. 198 Obs. 4
 
 >... there is *no phase* of imperfection, suffering, and evil which it does not propose to remove, and that there is *no blessing* which the heart of man has longed for both for himself and society which it does not intend to bestow.
