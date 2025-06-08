@@ -41,7 +41,7 @@ tags:
 >Obs. 6. The student will also observe how often (as in connection with Peter’s confession, etc.) the disciples were charged *not to make Him known* as “the Christ.” . If “Christ” is merely “a doctrinal word,” no satisfactory reason can be given for this prohibition.
 >p. 573 Vol. 3 Prop. 205 Obs. 6
 
->... this prohibition extended only to the death of Jesus, because afterward it became the favorite title, seeing (1) that in view of His death it became essential to show that He was still “the Christ (2) that notwithstanding His death, faith in “the Christ” evinced hope in the ultimate fulfilment of covenant and prophecy pertaining to it; and (3) the death of Jesus would, owing to unbelief, enable the Christship to be proclaimed without the fear of being regarded in rebellion against the Roman Empire, for what could earthly Kingdoms fear from a dead, crucified Christ?
+>... this prohibition extended only to the death of Jesus, because afterward it became the favorite title, seeing (1) that in view of His death it became essential to show that He was still “the Christ;" (2) that notwithstanding His death, faith in “the Christ” evinced hope in the ultimate fulfilment of covenant and prophecy pertaining to it; and (3) the death of Jesus would, owing to unbelief, enable the Christship to be proclaimed without the fear of being regarded in rebellion against the Roman Empire, for what could earthly Kingdoms fear from a dead, crucified Christ?
 >p. 573 Vol. 3 Prop. 205 Obs. 6
 ### Christ as "the King of kings"
 >Obs. 8. Our whole argument shows that when He comes again, *He comes as “the Christ,*" the Anointed King who is to reign as David’s Son and Lord just as covenant and prophecy require.
