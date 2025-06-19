@@ -35,7 +35,7 @@ p. 273-278 Vol. 2 Prop. 127 Obs. 4
 >This inheriting of the earth Christ promises to all the meek (Matt. 5:5), but to do this they must, of necessity, arise from the dead, and when they inherit the wicked are “cut off,” “perish,” “are not,” etc., thus *corresponding* with the period under consideration.
 >p. 274 Vol. 2 Prop. 127 Obs. 4
 
->6. A most circumstantial statement indicating the Pre-Millennial resurrection and that the rest of the dead do not participate in it, is found in Isa. chs. 24, 25, and 26.
+>A most circumstantial statement indicating the Pre-Millennial resurrection and that the rest of the dead do not participate in it, is found in Isa. chs. 24, 25, and 26.
 >p. 274 Vol. 2 Prop. 127 Obs. 4
 ### Objections alleged against Chiliastic interpretation of Rev. 20
 p. 278-284 Vol. 2 Prop. 127 Obs. 5
@@ -49,7 +49,7 @@ p. 284-285 Vol. 2 Prop. 127 Obs. 6
 ### Rev. 20:4-6
 p. 285-287 Vol. 2 Prop. 127 Obs. 7
 
->Rev. 20:4-6 is *retrospective*.
+>... Rev. 20:4-6 is *retrospective*.
 >p. 286 Vol. 2 Prop. 127 Obs. 7
 
 >For then we have -- not the saints of past ages, but -- the martyrs and those associated with them *under the last great tribulation* of the culminated Antichrist. All that we contend for is, that the persons designated are persons who at a time still future experience this persecution and martyrdom, and that the rest of the saints are included in the "thrones", "judgement", and general affirmation respecting the first resurrection and the reign.
