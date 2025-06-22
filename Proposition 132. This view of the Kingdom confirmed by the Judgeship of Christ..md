@@ -20,7 +20,7 @@ tags:
 >... no single doctrine is perhaps so greatly misapprehended as this one; for which we are indebted to the originators of monkery and to the schoolmen.
 >p. 352 Vol. 2 Prop. 132 Obs. 1
 ### A matter of congratulation and rejoicing
->... the Prophets describe this Judgeship—the exercise of it—as a matter of *congratulation and rejoicing*, and not, as it would be if it *only denoted* judicial investigation of character, a subject of dread or apprehension. Thus e.g. Ps. 67:4, “*O let the nations be glad, and sing for joy; for Thou shalt judge the people righteously, and govern the nations upon earth*.” Comp. Ps. 96:10-13; Ps. 98:5-9, etc. It is represented as a *joyful event* by the Spirit; one which will cause exultation and happiness, and this only becomes apparent if we understand it to embrace the reign, Kingdom of Jesus.
+>... the Prophets describe this Judgeship—the exercise of it—as a matter of *congratulation and rejoicing*, and not, as it would be if it *only denoted* judicial investigation of character, a subject of dread or apprehension. Thus e.g. Ps. 67:4, “*O let the nations be glad, and sing for joy; for Thou shalt judge the people righteously, and govern the nations upon earth*.” Comp. Ps. 96:10-13; Ps. 98:5-9, etc. 
 >p. 353 Vol. 2 Prop. 132 Obs. 2
 ### Joyful event, causing exultation and happiness
 >It is represented as *a joyful event* by the Spirit; one which will cause exultation and happiness, and this only becomes apparent if we understand it to embrace the reign, Kingdom of Jesus.
